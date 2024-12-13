@@ -1,7 +1,7 @@
 ---
 title: Sharing Stories that Resonate with Crowds
-date: 2024-08-28T03:08:25.203Z
-updated: 2024-08-29T03:08:25.203Z
+date: 2024-12-08T21:59:15.944Z
+updated: 2024-12-12T16:08:08.856Z
 tags:
   - facebook
 categories:
@@ -37,15 +37,16 @@ thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d
 
 ![Instagram, Facebook, and Twitter on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/social-media-apps.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  There are a host of social media platforms available to you. Different social media niches may not always perform the same on every platform.
 
  Jokes, short commentaries, and witty observations about the world do well on Twitter. Visually-oriented topics like fashion and artwork capture a lot of interest on Instagram. YouTube videos and podcasts allow you to create skits, long-form commentaries, and reactions to what's going on in the world to attract viewership. TikTok can often be a combination of all of the above.
 
  Instead of trying to post content on every social media platform, choose one or two and build your following from there. It'll be easier to keep up with your audience when you only have to pay attention to one or two apps rather than four or five.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Quality Over Quantity, But Be Consistent
 
  There are thousands of influencers in every popular niche, each competing for users' attention span. Your content needs to be unique, thoughtfully constructed—and most of all, consistent.
@@ -56,9 +57,17 @@ thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d
 
  Instagram users should check out the best[ways to get noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Network With Other Influencers
 
 ![large networking crowd of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/large-networking-crowd-of-people.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Being an influencer is a social game, and you absolutely cannot win it alone. Don't think of social media as only a place for you to talk about your niche to your followers. Think of it also as a place where you learn more about your own subject of interest from other influencers.
 
@@ -76,16 +85,14 @@ thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d
 
  Treat your followers with respect, but be careful of crossing the threshold into developing[parasocial relationships](https://www.makeuseof.com/how-to-communicate-online-healthily/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Advertise Your Channel
 
 ![Woman recording herself on a mounted smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/woman-recording-herself-on-a-mounted-smartphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Even the best social media channels are in a constant battle to put their channel in front of prospective followers. Some of the simplest ways you can advertise your channel include:
 
 * Requesting a shout-out from other popular influencers in your niche.
@@ -108,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d
 * Brainstorm ideas for new activities related to your niche that you can participate in and talk about on your channel. For instance, many popular YouTubers have started doing reaction videos, and rack up tens of thousands of views simply filming their reaction to other videos.
 * Ask your followers for ideas on new additions to your channel. Find out what parts of your channel appeal to them the most, and expand on those themes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Reach Out to Potential Sponsors
 
  When your profile is worth some serious ad revenue, it's time to talk to the sponsors who would actually want to use your account to promote their products. Don't wait around for the advertisers to come to you.
@@ -118,39 +129,31 @@ thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d
 
  If you're able to carefully manage your relationship with your followers as well as the companies whose products you sponsor, you will be able to maintain a steady stream of income every month by selling ad space on your channel or by personally endorsing products. Remember, building up that kind of trust takes time.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Create Trackable Goals
 
 ![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  As with anything you want in life, creating goals is a fantastic way to help you reach them faster. If you simply start posting to Instagram or creating videos for YouTube without an end goal in mind, your account may not do too well.
 
  Think about what initial success would look like to you, and make one to three goals for yourself with a specific end date. For example, within six months, I want to have 500 followers and at least 10,000 views on my videos.
 
  Then consider how you'll go about reaching and tracking that goal. For example, to gain followers and views, I will brainstorm ideas at the beginning of each month and post something new on Mondays and Fridays every week. Record the number of followers and views you have every week to help you assess how close you are to reaching your goal.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Should You Become a Social Media Influencer?
 
  Becoming a social media influencer can often start off as a side gig and ultimately become a full-time job. If you're passionate about your niche, creating content should come easy to you. It's okay to want to share information about your niche and also make some money while doing it, but the latter shouldn't be your main goal.
 
  If you embark on the journey of becoming a social media influencer, it won't happen quickly. You'll need to commit yourself to your channel for the long haul and work at your account for months before seeing progress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +162,22 @@ thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-craft-a-captivating-story-integrating-images-on-instagram/"><u>[New] 2024 Approved Craft a Captivating Story Integrating Images on Instagram</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-characters-that-captivate-key-growth-strategies-for-2024/"><u>[New] Characters That Captivate Key Growth Strategies for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/adjust-your-monitors-display-size-with-simple-tips-from-yl-software-experts/"><u>Adjust Your Monitor's Display Size with Simple Tips From YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-messenger-encryption-in-fb/"><u>Assessing Messenger Encryption in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-barrier-of-a-frozen-account/"><u>Breaking the Barrier of a Frozen Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-foundation-of-trust-with-facebooks-open-network-portal/"><u>Building a Foundation of Trust with Facebook's Open Network Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-hearts-and-eyes-top-6-profile-pic-ideas/"><u>Capturing Hearts and Eyes: Top 6 Profile Pic Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-community-of-positivity-online/"><u>Cultivating a Community of Positivity Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-cord-a-step-by-step-guide-to-leaving-facebook-for-good/"><u>Cut the Cord: A Step-by-Step Guide to Leaving Facebook for Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-mantras-key-personal-details-to-keep-offline/"><u>Cybersecurity Mantras: Key Personal Details to Keep Offline</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effortless-format-transformation-turn-your-dvr-mpeg2-and-asf-files-into-multiple-formats-including-mp4-and-avi/"><u>Effortless Format Transformation: Turn Your DVR MPEG2 & ASF Files Into Multiple Formats Including MP4 and AVI</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fix-and-download-wireless-device-model-1eb-1535-system-driver-issue-solved/"><u>Fix & Download Wireless Device Model 1Eb-1535 System Driver - Issue Solved</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-tweet-to-facebook-a-step-by-step-guide/"><u>In 2024, Tweet to Facebook A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ntly-access-all-episodes-premium-downloader-tools-reviewed/"><u>Instantly Access All Episodes Premium Downloader Tools Reviewed</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-15-pro-max-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>Unlocking iPhone 15 Pro Max Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-12-02T16:09:37.247Z
-updated: 2024-12-06T21:49:49.529Z
+date: 2024-12-08T16:27:21.218Z
+updated: 2024-12-12T20:56:07.169Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does the Poll Say?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -83,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  By contrast, Apple probably became an unlikely hero for fighting the FBI to prevent access to its users' phones. In addition, Apple users are passionate about Apple products.
 
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Regulation Is Coming
 
@@ -109,20 +109,22 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-beyond-acid-the-future-of-graphic-vectors/"><u>[New] Beyond ACID The Future of Graphic Vectors</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-humorhub-design-your-own-jokes-and-gifs/"><u>[New] HumorHub Design Your Own Jokes and Gifs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-your-step-by-step-adventure-in-metaverse-avatar-crafting/"><u>[Updated] 2024 Approved Your Step-by-Step Adventure in Metaverse Avatar Crafting</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-write-podcast-script-plus-10plus-free-examples/"><u>2024 Approved How To Write Podcast Script (Plus 10+ Free Examples)</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-disconnection-a-guide-to-living-offline/"><u>Discover Disconnection: A Guide to Living Offline</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/generate-funny-image-for-giphy-for-2024/"><u>Generate Funny Image for Giphy for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-fbcta-affect-your-social-media-feed/"><u>How Does FBCTA Affect Your Social Media Feed?</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-htc-u23-pro-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-opt-for-dark-scheme-in-facebook/"><u>How to Opt for Dark Scheme in Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/renewable-rush-facebooks-full-transition-to-clean-energy/"><u>Renewable Rush: Facebook's Full Transition to Clean Energy</u></a></li>
-<li><a href="https://facebook.techidaily.com/silicon-overlords-why-governments-are-challenging-the-status-quo/"><u>Silicon Overlords: Why Governments Are Challenging the Status Quo</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210884577-9781646042210-the-little-book-of-rootwork/"><u>The Little Book of Rootwork | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-shifting-landscape-tiktok-overtaking-facebooks-market-share/"><u>The Shifting Landscape: TikTok Overtaking Facebook's Market Share</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/ultimate-guide-to-removing-copycat-images-from-your-ipad-air-pro-and-mini/"><u>Ultimate Guide to Removing Copycat Images From Your iPad, Air, Pro & Mini</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-global-reach-strategies-for-multilingual-fb-posts/"><u>Unlock Global Reach - Strategies for Multilingual FB Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-watchers-unveiling-who-sees-your-content/"><u>[Updated] 2024 Approved Instagram Watchers Unveiling Who Sees Your Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-time-for-fb-on-trump-ban/"><u>Decision Time for FB on Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-dynamics-removing-a-business-page-from-social-media/"><u>Deletion Dynamics: Removing a Business Page From Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/deterred-by-design-how-dark-patterns-control-us/"><u>Deterred by Design: How Dark Patterns Control Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-your-contact-details-get-stolen-by-facebook-mistake/"><u>Did Your Contact Details Get Stolen by Facebook Mistake?</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-fb-tracking-navigating-the-off-facebook-hub/"><u>Disable Fb Tracking: Navigating the Off-Facebook Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-8-key-crowdflower-capabilities-for-success/"><u>Discover 8 Key CrowdFlower Capabilities for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-how-six-factors-make-facebook-indispayer-for-modern-life/"><u>Discover How Six Factors Make Facebook Indispayer for Modern Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-2022s-biggest-technological-missteps/"><u>Dissecting 2022'S Biggest Technological Missteps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-oneplus-nord-3-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from OnePlus Nord 3 5G Phones with/without a PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-xr-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone XR without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-enhancing-mac-use-top-5-recommended-sniping-apps/"><u>In 2024, Enhancing Mac Use Top 5 Recommended Sniping Apps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-pathways-select-7-tools-for-artwork-conversion-to-nfts/"><u>In 2024, Innovative Pathways Select 7 Tools for Artwork Conversion to NFTs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-ultimate-flashback-2022s-snowboard-x-winners/"><u>In 2024, Ultimate Flashback 2022'S Snowboard X Winners</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-made-fun-oculus-quest-and-mondly-collaboration/"><u>Language Learning Made Fun: Oculus Quest and Mondly Collaboration</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-excel-2013-files-from-virus-infected-pen-drives-for-free-by-stellar-guide/"><u>Recover Excel 2013 Files from Virus-Infected Pen Drives for Free</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-realtek-hd-audio-hardware-connection-problems/"><u>Troubleshooting: Realtek HD Audio Hardware Connection Problems</u></a></li>
 </ul></div>
 

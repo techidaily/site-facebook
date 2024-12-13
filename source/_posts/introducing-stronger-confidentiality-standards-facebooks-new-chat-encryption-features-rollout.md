@@ -1,7 +1,7 @@
 ---
 title: "Introducing Stronger Confidentiality Standards: Facebook’s New Chat Encryption Features Rollout"
-date: 2024-08-28T03:11:39.863Z
-updated: 2024-08-29T03:11:39.863Z
+date: 2024-12-11T21:44:22.006Z
+updated: 2024-12-12T21:17:00.943Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
 ## Introducing Stronger Confidentiality Standards: Facebook’s New Chat Encryption Features Rollout
 
  Facebook is expanding end-to-end encryption to Messenger voice and video calls, as well as direct messages (DMs) on Instagram. Turning on the feature will let users communicate securely, whether over calls or text messages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Brings End-to-End Encryption to More Services
 
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -41,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -57,8 +62,20 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-make-looping-videos-for-instagram/"><u>[New] In 2024, How To Make Looping Videos for Instagram?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-guide-deleting-items-from-your-youtubeumbers-list-for-2024/"><u>[Updated] Guide Deleting Items From Your YouTube'umbers List for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-transforming-your-instagram-video-into-a-social-sensation/"><u>[Updated] In 2024, Transforming Your Instagram Video Into a Social Sensation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-quickmemes-your-meme-toolkit/"><u>[Updated] QuickMemes Your Meme Toolkit</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleash-creativity-with-the-best-online-screen-changers/"><u>[Updated] Unleash Creativity with the Best Online Screen Changers</u></a></li>
+<li><a href="https://win-help.techidaily.com/1728487937866-aomei-onekey/"><u>分析不同版本的一鍵修復: AOMEI OneKey</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4movavi-video-files-of-xiaomi-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of Xiaomi</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-keyboard-glitch-how-to-restore-spacebar-functionality-in-windows-11/"><u>Fixing the Keyboard Glitch: How to Restore Spacebar Functionality in Windows 11</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/founding-figures-the-leadership-behind-the-establishment-of-the-peoples-republic-of-china-1949-insights-from-yl-computing/"><u>Founding Figures: The Leadership Behind the Establishment of the People's Republic of China, 1949 - Insights From YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-overuse-facebook-advises-youngsters-for-insta-break/"><u>Prevent Overuse: Facebook Advises Youngsters for Insta Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151223653-raising-the-bar-for-online-privacy-facebook-adds-end-to-end-encryption-to-chat-services/"><u>Raising the Bar for Online Privacy: Facebook Adds End-to-End Encryption to Chat Services.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-covert-elements-filtering-your-fb-timeline/"><u>The Covert Elements Filtering Your Fb Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-monitors-your-uploaded-imagery/"><u>Who Monitors Your Uploaded Imagery?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->

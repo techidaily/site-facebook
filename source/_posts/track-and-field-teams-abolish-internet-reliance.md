@@ -1,7 +1,7 @@
 ---
 title: Track and Field Teams Abolish Internet Reliance
-date: 2024-08-28T03:11:02.605Z
-updated: 2024-08-29T03:11:02.605Z
+date: 2024-12-10T20:44:56.183Z
+updated: 2024-12-12T16:05:42.245Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/4cde13e35fb005f35b03fe575a760700ef2f31716
 
  Stamping out racism in any respect is, quite rightly, very much on many people's agendas. One example being England's athletes and sports stars who, along with their teams, are taking a social media stand against online racism.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## England Sports' Social Media Blackout Has Begun
 
  We reported previously that[English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
@@ -25,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/4cde13e35fb005f35b03fe575a760700ef2f31716
 
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Will the Social Media Blackout Involve?
 
  As with any blackout, it involves sports players and teams steering clear of social media. So there will be no posts about football, cricket, or rugby, from the teams and players involved in each respective sport. That is because they have boycotted all the platforms mentioned above.
@@ -32,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/4cde13e35fb005f35b03fe575a760700ef2f31716
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Are Sports Teams Boycotting Social Media?
 
  One word. Racism. It is unacceptable to racially abuse anyone, on or offline. Sporting personalities want you to know this. The Premier League announcement says:
@@ -45,20 +54,18 @@ thumbnail: https://thmb.techidaily.com/4cde13e35fb005f35b03fe575a760700ef2f31716
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Taking a Stand Against Racism
 
  Perhaps if more people followed suit and abandoned social media on the grounds of stamping out racism, then platform owners might stop and pay attention. While it isn't going to end racism overnight, unfortunately, it is a great place for everyone who uses social media to start.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -67,4 +74,21 @@ thumbnail: https://thmb.techidaily.com/4cde13e35fb005f35b03fe575a760700ef2f31716
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-is-watching-facebook-on-the-television-set-a-future-possibility/"><u>[Updated] In 2024, Is Watching Facebook on the Television Set a Future Possibility?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-infallible-technique-for-embedding-profile-urls-in-tiktok/"><u>[Updated] The Infallible Technique for Embedding Profile URLs in TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-establishing-industry-ties-via-facebook/"><u>A Step-by-Step Guide to Establishing Industry Ties via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-robust-account-protection-through-2fa-on-gmail-and-outlook-systems/"><u>Achieving Robust Account Protection Through 2FA on Gmail & Outlook Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-revised-page-tagging-system/"><u>Breaking Down Facebook's Revised Page Tagging System</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/re-spectacular-video-on-youtube-top-webcam-picks-for-2024/"><u>Capture Spectacular Video on YouTube Top Webcam Picks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-three-dimensional-photos-for-social-media/"><u>Crafting Three-Dimensional Photos for Social Media</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/diy-solutions-for-reactivating-computers-displaying-no-signs-of-power/"><u>DIY Solutions for Reactivating Computers Displaying No Signs of Power</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/future-forward-adapting-skills-for-an-intelligent-labor-market/"><u>Future Forward: Adapting Skills for an Intelligent Labor Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719143617196-overlooked-technology-moments-heres-what-you-missed-out/"><u>Overlooked Technology Moments, Here's What You Missed Out</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/reimagining-classic-beats-premium-pcdj-sb2-dex-3-throwback-designs-featuring-iconic-red-52-visual-skins/"><u>Reimagining Classic Beats: Premium PCDJ SB2 DEX 3 Throwback Designs Featuring Iconic Red 5.2 Visual Skins</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/snappy-screen-recording-tool-for-pcs-for-2024/"><u>Snappy Screen Recording Tool for PCs for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/which-ios-app-crushes-in-video-editing-in-2024-cameo-or-filmorago/"><u>Which iOS App Crushes in Video Editing, In 2024 Cameo or FilmoraGo?</u></a></li>
+<li><a href="https://win-online.techidaily.com/1728510070950-windows-115/"><u>Windows 11更新後の消えたファイルを取り戻す手順：上位5選</u></a></li>
+</ul></div>
 

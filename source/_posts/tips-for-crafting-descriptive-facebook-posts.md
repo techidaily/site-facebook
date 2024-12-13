@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2024-11-25T13:53:03.302Z
-updated: 2024-11-27T01:57:07.989Z
+date: 2024-12-11T22:46:51.465Z
+updated: 2024-12-12T18:11:49.685Z
 tags:
   - facebook
 categories:
@@ -36,13 +36,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
  Related:[How to Use Poll Games on Messenger to Learn More About Your Friends](https://www.makeuseof.com/how-to-use-poll-games-facebook-messenger/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Alt Text to Images You Upload on Facebook
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Add Alt Text to Images on the Facebook App
 
@@ -50,11 +50,11 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
-![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 Close
 
@@ -69,16 +69,12 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Add Alt Text to Facebook Images on the Web
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Here’s how to add alt text to your photos on Facebook's web browser.
@@ -93,12 +89,16 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
@@ -139,24 +139,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-debut-video-capture-review/"><u>[New] Debut Video Capture Review</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-enhancing-youtube-video-screens-without-barriers/"><u>[New] In 2024, Enhancing YouTube Video Screens Without Barriers</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/how-to-create-time-travel-teleportation-effects-for-2024/"><u>How to Create Time Travel Teleportation Effects for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-se-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone SE to iPhone 8/X/11 | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-exploring-3dr-by-himself-an-experts-opinion/"><u>In 2024, Exploring '3DR' By Himself – An Expert's Opinion</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-rank-the-best-tools-top-8-apps-to-increase-likes-on-fb/"><u>In 2024, Rank the Best Tools Top 8 Apps to Increase Likes on FB</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-reviewing-screenmasters-latest-tech-for-recording/"><u>In 2024, Reviewing ScreenMaster's Latest Tech for Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-metaai-set-to-overtake-common-ai-chatbots/"><u>Is MetaAI Set to Overtake Common AI Chatbots?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/macs-optimal-clipping-options-reviewed/"><u>Mac's Optimal Clipping Options Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-every-post-count-in-your-facebook-chronology/"><u>Making Every Post Count in Your Facebook Chronology</u></a></li>
-<li><a href="https://facebook.techidaily.com/monitor-your-digital-presence-facebook-breach-alerts/"><u>Monitor Your Digital Presence: Facebook Breach Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevent-facebook-from-suggesting-connections/"><u>Prevent Facebook From Suggesting Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-insight-your-latest-watches-on-facebook/"><u>Quick Insight: Your Latest Watches on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/shielding-your-social-network-hide-it-from-outsiders/"><u>Shielding Your Social Network: Hide It From Outsiders</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/solution-found-overcoming-the-not-launching-problem-with-baldurs-gate-3/"><u>Solution Found! Overcoming the 'Not Launching' Problem with Baldur's Gate 3</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/stream-control-showdown-is-obs-best-over-twitch-studio-for-2024/"><u>Stream Control Showdown Is OBS Best over Twitch Studio for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-for-silencing-fb-noises/"><u>The Ultimate Strategy for Silencing FB Noises</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-costs-of-friendship-networks-top-10-reasons-to-cut-off-facebook/"><u>The Unseen Costs of Friendship Networks - Top 10 Reasons to Cut Off Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/trend-of-doubt-grows-for-large-internet-entities-facebook-most-targeted/"><u>Trend of Doubt Grows for Large Internet Entities; Facebook Most Targeted</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-artistry-in-your-pocket-the-bestiary-of-top-8-iphone-drawing-apps-for-2024/"><u>[New] Artistry in Your Pocket The Bestiary of Top 8 iPhone Drawing Apps for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-from-idea-to-implementation-guiding-vendors-in-youtube-sponsorships/"><u>[New] In 2024, From Idea to Implementation Guiding Vendors in Youtube Sponsorships</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-high-performance-video-calls-a-curated-ranking-of-top-10-apps-for-2024/"><u>[Updated] High-Performance Video Calls A Curated Ranking of Top 10 Apps for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-art-of-digital-broadcasting-in-real-time/"><u>[Updated] Unveiling the Art of Digital Broadcasting in Real Time</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-traffic-and-sales-using-advanced-targeting-by-cookiebot-technology/"><u>Boost Traffic and Sales Using Advanced Targeting by Cookiebot Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commitment-to-advancing-the-rust-language/"><u>Facebook's Commitment to Advancing the Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-facebooks-integrated-internet-access/"><u>Halt Facebook's Integrated Internet Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/"><u>How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-breaking-down-asus-pa32u-a-4k-professional-review/"><u>In 2024, Breaking Down ASUS PA32U A 4K Professional Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approaches-for-identifying-new-online-communities/"><u>Innovative Approaches for Identifying New Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-facebook-an-overview/"><u>Life Without Facebook: An Overview</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-top-10-easy-to-use-cartoon-video-creation-tools-online-and-pc/"><u>New 2024 Approved Top 10 Easy-to-Use Cartoon Video Creation Tools (Online & PC)</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-back-finding-former-job-references-on-fb/"><u>Tracing Back: Finding Former Job References on FB</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/ultimate-selection-premium-ipad-air-add-ons-reviewed-and-rated/"><u>Ultimate Selection: Premium iPad Air Add-Ons Reviewed and Rated!</u></a></li>
+<li><a href="https://games-able.techidaily.com/uncovering-ps5s-secret-web-browser/"><u>Uncovering PS5's Secret Web Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/vanishing-act-messengers-secret-hideaway/"><u>Vanishing Act: Messenger's Secret Hideaway</u></a></li>
 </ul></div>
 

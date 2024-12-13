@@ -1,7 +1,7 @@
 ---
 title: Optimize Friends' Right to See You Active
-date: 2024-08-28T03:09:12.366Z
-updated: 2024-08-29T03:09:12.366Z
+date: 2024-12-06T00:02:21.391Z
+updated: 2024-12-12T23:24:47.862Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -60,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Switch Off Facebook Online Status Completely
 
  So what if you don't want anyone to see you online on Facebook? You can appear offline or invisible on Facebook at all times if you want to.
@@ -73,21 +78,17 @@ thumbnail: https://thmb.techidaily.com/8b677f86d933a2dc57f7b5d236aa4e6146da7e283
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 Close
 
 1. Select the Messenger icon at the top right of your Facebook home screen.
@@ -101,9 +102,6 @@ Close
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -125,28 +123,25 @@ This is different from a full Facebook block.
 4. Choose the option for**Block messages and calls** .  
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
 
  Use the settings in this article to regain some privacy when it comes to whether or not your contact list can see if you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +150,23 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-avoiding-common-pitfalls-in-pc-based-youtube-video-editing/"><u>[Updated] 2024 Approved Avoiding Common Pitfalls in PC-Based YouTube Video Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-donation-boosts-worldwide-covid-19-fight/"><u>$5 Million Donation Boosts Worldwide COVID-19 Fight</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-premier-football-vids-key-youtube-infographic-data/"><u>2024 Approved Premier Football Vids Key YouTube Infographic Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-preserving-your-digital-self-narrative-on-facebook/"><u>A Guide to Preserving Your Digital Self-Narrative on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-cause-chaos-provoke-one-star-reviews-on-social-network/"><u>Activists Cause Chaos: Provoke One-Star Reviews on Social Network</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/cinematiccapture-easy-screen-recorder-for-win11-pcs/"><u>CinematicCapture Easy Screen Recorder for Win11 PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-dissemination-strategies-sending-reels-from-instagram-to-facebook/"><u>Content Dissemination Strategies: Sending Reels From Instagram to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-unique-visionaries-on-your-fans-feeds-with-facebook-reels/"><u>Crafting Unique Visionaries on Your Fans' Feeds with Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-removal-its-impact-on-privacy-and-safety-for-facebook-users/"><u>Data Removal – Its Impact on Privacy and Safety for Facebook Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elevate-your-video-conferencing-mastering-zoom-filters/"><u>Elevate Your Video Conferencing Mastering Zoom Filters</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/handling-connectivity-issues-with-amazon-prime-video-for-smooth-playback/"><u>Handling Connectivity Issues with Amazon Prime Video for Smooth Playback</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-all-facets-of-adobes-storage-system-and-its-equivalents-in-the-market/"><u>In 2024, All Facets of Adobe's Storage System & Its Equivalents in the Market</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-integrating-youtube-tracks-into-imovie-projects-easily/"><u>In 2024, Integrating YouTube Tracks Into iMovie Projects Easily</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-screen-snag-reviewed-in-depth-analysis/"><u>In 2024, Screen Snag Reviewed In-Depth Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147503681-is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed</u></a></li>
+<li><a href="https://win-popular.techidaily.com/unveiling-apples-bold-satire-of-windows-laptops-identifying-the-target/"><u>Unveiling Apple's Bold Satire of Windows Laptops – Identifying the Target</u></a></li>
+</ul></div>
 

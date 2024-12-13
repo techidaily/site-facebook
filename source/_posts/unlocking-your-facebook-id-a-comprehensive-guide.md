@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Your Facebook ID: A Comprehensive Guide"
-date: 2024-08-28T03:08:30.474Z
-updated: 2024-08-29T03:08:30.474Z
+date: 2024-12-07T22:18:47.321Z
+updated: 2024-12-12T20:06:43.621Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,6 @@ To change your password:
 
  If you couldn't find a device where you were still logged into Facebook, proceed with the following recovery options.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### Recover Your Account From Its Profile Page
 
  Use this option if you can access your profile from the account of a Facebook friend. This could be a friend or family member. Note that it will require logging out of the other account.
@@ -49,22 +46,28 @@ To change your password:
 
 ![Find Support or Report Profile option to recover your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Support-or-Report-Profile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  From the next menu, select the appropriate option, in this case**Something else > Recover this account** .
 
 ![Facebook Recover This Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-recover-this-account.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook will log you out of the account you're using, to start the account recovery. This method will lead you to the same**Reset Your Password** window described under**Option 2** . The recovery is based on the contact data you added to your account.
 
 ![Facebook Reset Your Password menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### Option 2: Find and Recover Your Account With Contact Details
 
  If you don't have access to Facebook at all or prefer not to log out of another account, open a new browser profile and head to the[Facebook recovery page](https://www.facebook.com/login/identify/) .
@@ -73,13 +76,25 @@ To change your password:
 
 ![Facebook Find Your Account menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Your-Account.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you have successfully managed to identify your account, you will see a summary of your profile. Before you proceed, carefully check if this really is your account and if you still have access to the email address or phone number listed. You may be able to choose between email or phone recovery.
 
 ![Facebook Reset Your Password With Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-reset-your-password-with-code.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If all looks well with the contact details that Facebook has on file for you, click**Continue** . Facebook will send you a security code. Retrieve the code from your email or phone (depending on which method you chose), enter it, and rejoice in having recovered your Facebook account.
 
 ![Facebook Enter Security Code menu to recover an account.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Enter-Security-Code.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  At this point, you can set a new password, which we strongly recommend.
 
@@ -89,9 +104,6 @@ To change your password:
 
  You can try again, or maybe you'll realize that you don't have access to the account after all.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ### Log Back Into Your Facebook Account
 
  If you managed to regain access to your account, and if you suspect that[your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
@@ -110,38 +122,26 @@ To change your password:
 
 ![Get Back on Facebook Not Recognized](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-not-recognized.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  If Facebook recognizes your device, you will go through a similar process as described above, but this time you'll see an additional option in the bottom left.
 
 ![No longer have access to Facebook password reset options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
  Click the**No longer have access to these?** link to start a new recovery process.
 
 ![Facebook Lost Access Recovery Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-lost-access-recovery-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
  When you click on**Start** , Facebook will ask for a new login email and send you a code to that email address. Enter your email address and click**Get code** .
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
  Immediately check your email, including the spam folder or any filters, for the code sent from <security@facebookmail.com>. Enter the code to confirm the email address, and click**Confirm** . If the code didn't come through, you can either click**Resend code** or go back and enter a different email address.
 
  You won't get back into your account immediately. First, you have to upload your ID to confirm it's really you who's trying to recover the account. Once you've done that, wait until Facebook gets in touch to confirm your ID verification. Be patient.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Report Your Hacked Facebook Account
 
  In the event that your account was hacked and is posting spam while you can no longer access it, you should report your Facebook account as compromised on[Facebook.com/hacked](http://www.facebook.com/hacked) .
@@ -153,6 +153,10 @@ To change your password:
 ![Log into your account with a current or old password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Login-With-Old-Password.jpg)
 
  This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Confirm Your Identity With Facebook
 
@@ -168,23 +172,17 @@ To change your password:
 
  Either way, hearing back from Facebook can take several weeks, so you'll need to be patient. If you didn't use your real name on Facebook, your hopes for recovering your account this way are close to zero.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## If All Else Fails, Create a New Facebook Profile
 
  Over the past few years, we have received countless messages from people who weren't able to recover their Facebook accounts, even after going through all of these steps, one by one. Usually, their contact information was outdated, the recovery codes Facebook provided didn't work, or the company would never respond to verify their identity. And at that point, you're out of options.
 
  Eventually, you just have to move on. As much as it hurts, learn from your mistakes, and create a new account. Be sure to add several valid contact details, secure your Facebook account, and rebuild your profile from scratch. It's a pain, but it's better than nothing.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -193,4 +191,18 @@ To change your password:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-broadcasting-with-gopro-tips-for-facebookperiscope-integration/"><u>[Updated] 2024 Approved Broadcasting with GoPro Tips for Facebook/Periscope Integration</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unraveling-the-mystery-of-social-media-success-on-instagram-learn-how-in-less-than-a-page/"><u>[Updated] In 2024, Unraveling the Mystery of Social Media Success on Instagram Learn How in Less Than a Page</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-bargains-in-the-market-6-leading-4k-projectors/"><u>2024 Approved Best Bargains in the Market 6 Leading 4K Projectors</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-figures-understanding-facebooks-real-impact/"><u>Beyond Figures: Understanding Facebook’s Real Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/ceo-to-reconsider-trump-page-ban-policy/"><u>CEO to Reconsider Trump Page Ban Policy</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ensure-compatibility-and-optimize-your-pc-download-the-newest-nvidia-quadro-graphics-drivers-for-windows-10/"><u>Ensure Compatibility and Optimize Your PC: Download the Newest NVIDIA Quadro Graphics Drivers for Windows 10</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-nubia-red-magic-9-proplus-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Nubia Red Magic 9 Pro+ Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/schnelle-zollerleichterungen-ermoglichen-den-schnellen-austausch-von-gutern-zwischen-grossbritannien-und-der-eu-fertigung-in-nur-5-minuten/"><u>Schnelle Zollerleichterungen Ermöglichen Den Schnellen Austausch Von Gütern Zwischen Großbritannien Und Der EU – Fertigung in Nur 5 Minuten</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153977821-secure-communication-grows-facebook-rolls-out-encrypted-chat-for-messenger-and-dms/"><u>Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146826714-the-final-say-awaits-facebooks-oversight-board-reviewing-the-ban/"><u>The Final Say Awaits: Facebook's Oversight Board Reviewing the Ban.</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unified-sound-experience-syncing-your-bluetooth-speakers-for-maximum-impact/"><u>Unified Sound Experience: Syncing Your Bluetooth Speakers for Maximum Impact</u></a></li>
+</ul></div>
 

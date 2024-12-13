@@ -1,7 +1,7 @@
 ---
 title: "Respectful Repartee: Keeping Discussions Healthy"
-date: 2024-08-28T03:11:50.001Z
-updated: 2024-08-29T03:11:50.001Z
+date: 2024-12-06T22:27:54.535Z
+updated: 2024-12-12T16:58:41.731Z
 tags:
   - facebook
 categories:
@@ -15,10 +15,18 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
 ## Respectful Repartee: Keeping Discussions Healthy
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What Is Poking on Facebook?](#what-is-poking-on-facebook)
 * [How to Poke Someone on Facebook in 2024](#how-to-poke-someone-on-facebook-in-2024)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -28,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
  You may have thought poking was dead on Facebook. But it turns out the feature is still there and Facebook is even trying to revive it. Here's what you need to know about poking someone on Facebook and how you can still use the feature.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## What Is Poking on Facebook?
 
  Those who used Facebook in its early days will remember the ability to "poke" someone on Facebook to get their attention. This would essentially send a notification to the person letting them know that you poked them. But the feature was eventually buried, with Facebook leaning towards post reactions and interactions instead.
@@ -45,15 +49,13 @@ Close
  You should also note that you can only use the feature with friends, so the button will not appear next to the names of people you're not Facebook friends with.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Poke Someone on Facebook in 2024
 
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
 
  If you don't see this button, or you're using the Facebook website, you can still access the poke feature in a slightly more roundabout way.
@@ -66,37 +68,32 @@ To do this, follow these steps:
 ![facebook pokes feature on website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/facebook-pokes-feature.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  From this page, you can also access the poke button to send pokes to friends. Facebook will provide a list of suggested users to poke, but you can also use the search bar to look for someone specific.
 
 ![list of friends to poke on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/list-of-friends-to-poke-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
  When you poke someone, Facebook will send the person a notification to let them know that you used the feature.
 
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like[seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
 
  Facebook does not keep a history of people you have poked in the past, but you will be able to tell who you have poked based on whether the button is available when you search their name on the poke page. This prevents someone from spamming others with pokes. You don't want poking to end up being the reason you[block someone on Facebook](https://www.makeuseof.com/how-to-block-facebook/) , after all.
 
  So if you want to catch a friend's attention or just give the feature a try, check out the poke feature on Facebook for a sense of nostalgia or a new way to attract someone's notice.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +102,26 @@ To do this, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-your-step-by-step-kinemaster-meme-creation/"><u>[New] In 2024, Your Step-by-Step KineMaster Meme Creation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-incorporate-engaging-text-in-videos-at-no-extra-cost-for-2024/"><u>[New] Incorporate Engaging Text in Videos at No Extra Cost for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-hone-your-hashtag-game-tripled-traffic-6kplus-vistas/"><u>[Updated] 2024 Approved Hone Your Hashtag Game Tripled Traffic, $6K+ Vistas</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-experience-beyond-reality-choosing-the-premier-10-headsets-for-360-video-on-pc/"><u>[Updated] Experience Beyond Reality Choosing the Premier 10 Headsets for 360 Video on PC</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-master-your-snapchats-the-top-6-editing-apps-for-both-devices/"><u>2024 Approved Master Your Snapchats The Top 6 Editing Apps for Both Devices</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-xiaomi-14-ultra-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Xiaomi 14 Ultra Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/free-online-conversion-change-wmv-files-into-avi-format-with-just-a-click/"><u>Free Online Conversion: Change WMV Files Into AVI Format with Just a Click</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-ideal-soundtracks-the-15-ultimate-music-selections-for-diverse-film-projects/"><u>New Ideal Soundtracks The 15 Ultimate Music Selections for Diverse Film Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripple-effects-how-stablecoins-revolutionize-crypto/"><u>Ripple Effects: How Stablecoins Revolutionize Crypto</u></a></li>
+<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-halt-fb-wa-and-ig-services-disrupted/"><u>Social Media Halt: FB, WA & IG Services Disrupted</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-ungrouping-from-facebook-pages/"><u>The Do's and Don'ts of Ungrouping From Facebook Pages</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-restoring-audio-on-your-google-hangouts-device/"><u>Troubleshooting Guide: Restoring Audio on Your Google Hangouts Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-verified-status-on-meta-us-platform/"><u>Unlock Verified Status on Meta US Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-past-connections-discovering-friends-timelines/"><u>Unveiling Past Connections: Discovering Friends' Timelines</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-motorola-razr-40-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Motorola Razr 40 Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>
 

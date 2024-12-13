@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-11-25T08:27:54.206Z
-updated: 2024-11-27T15:06:18.550Z
+date: 2024-12-11T23:21:06.570Z
+updated: 2024-12-12T19:15:56.710Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Lock Your Facebook Profile Down
@@ -85,11 +85,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -106,7 +102,11 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
@@ -130,22 +130,21 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/1715860403365-updated-engaging-recorders-within-huawei-mate-and-p-series-for-video-capture/"><u>[Updated] Engaging Recorders Within Huawei Mate and P-Series for Video Capture.</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/1728475056888-windows-11hddssd/"><u>如何在Windows 11下有效地从HDD到SSD转移数据:利用安全启动的技巧</u></a></li>
-<li><a href="https://win11.techidaily.com/adjust-desktop-presence-embedding-this-pc-icons/"><u>Adjust Desktop Presence: Embedding 'This PC' Icons</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-text-plugins-for-after-effects/"><u>Best Text Plugins For After Effects</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-steps-to-clean-up-your-facebook-profile/"><u>Essential Steps to Clean Up Your Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/expanding-your-conversation-realm-with-messenger/"><u>Expanding Your Conversation Realm with Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-clarifies-laugh-worthy-limits/"><u>Facebook Clarifies Laugh-Worthy Limits</u></a></li>
-<li><a href="https://win-forum.techidaily.com/fastboot-tips-enhancing-windows-11-startup-efficiency-with-revouninstaller/"><u>FastBoot Tips: Enhancing Windows 11 Startup Efficiency with RevoUninstaller</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/from-zero-to-hero-youtube-intro-wonders-with-imovie-for-2024/"><u>From Zero to Hero YouTube Intro Wonders with iMovie for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/get-notified-about-hidden-screenshots-messenger-style/"><u>Get Notified About Hidden Screenshots, Messenger Style</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/encing-factors-for-popular-youtube-videos/"><u>Influencing Factors for Popular YouTube Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/radiate-on-screen-quicker-ways-to-brighten-iphone-media-for-2024/"><u>Radiate on Screen Quicker Ways to Brighten iPhone Media for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-hosted-network-startup-error-in-windows-10-expert-tips-and-tricks/"><u>Resolving 'Hosted Network Startup Error' In Windows 10: Expert Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-giants-face-public-doubt-focus-on-facebook/"><u>Tech Giants Face Public Doubt: Focus on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-does-fbcta-mean-for-you-online/"><u>What Does FBCTA Mean for You Online?</u></a></li>
-<li><a href="https://facebook.techidaily.com/zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency.</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-enhancing-on-screen-appeal-essential-tips-for-talking-head-shots/"><u>[New] 2024 Approved Enhancing On-Screen Appeal Essential Tips for Talking-Head Shots</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-dissecting-digital-dynamics-comparative-channel-analysis-for-2024/"><u>[New] Dissecting Digital Dynamics Comparative Channel Analysis for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aunching-a-lucrative-channel-youtubes-most-accessible-biz-setups/"><u>[New] Launching a Lucrative Channel YouTube's Most Accessible Biz Setups</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-image-editing-remove-background-in-picsart-guide/"><u>[New] Navigating Image Editing Remove Background in Picsart Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-universe-explored-three-underlying-fears/"><u>Facebook Universe Explored: Three Underlying Fears</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/honoring-heritage-photo-conversion-and-visual-storytelling/"><u>Honoring Heritage Photo Conversion and Visual Storytelling</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-become-a-social-media-influencer/"><u>How to Become a Social Media Influencer</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-itel-p55-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Itel P55 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-understanding-and-utilizing-sleep-mode-feature/"><u>Mastering Messenger Kids: Understanding and Utilizing Sleep Mode Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategic-moves-spark-concern-over-european-tech-titans-future/"><u>Meta’s Strategic Moves Spark Concern Over European Tech Titans' Future</u></a></li>
+<li><a href="https://driver-error.techidaily.com/no-hassle-guide-addressing-unavailable-drivers-in-itbm-systems/"><u>No Hassle Guide: Addressing Unavailable Drivers in ITBM Systems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/optimize-your-gopro-shoot/"><u>Optimize Your GoPro Shoot</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-redmi-note-13-5g-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Redmi Note 13 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharp-sanctions-to-combat-falsehood-spreaders-on-fb/"><u>Sharp Sanctions to Combat Falsehood Spreaders on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-experiment-with-engaging-information-posts/"><u>Social Networks: Experiment with Engaging Information Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplug-and-recharge-steps-to-drop-facebook/"><u>Unplug and Recharge: Steps to Drop Facebook</u></a></li>
 </ul></div>
 

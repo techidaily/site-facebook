@@ -1,7 +1,7 @@
 ---
 title: Online Interaction as an Income Source
-date: 2024-12-01T20:13:00.103Z
-updated: 2024-12-06T16:23:20.225Z
+date: 2024-12-07T20:37:32.744Z
+updated: 2024-12-13T00:04:23.746Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Venture Capital
 
 ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
@@ -39,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Advertising
@@ -47,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
@@ -60,9 +56,17 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. User Data
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -87,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Transaction Fees and Virtual Products
@@ -107,10 +111,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  It's why Meta owns Facebook, WhatsApp, Instagram, and Oculus. It's also why Twitter has acquired companies like Gnip, MoPub, and Periscope. Not only do they get the technologies and user data that these companies possess, but they can also use them as an additional revenue source to fund their social media platform.
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
 
@@ -133,21 +133,19 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-creation-software.techidaily.com/dvdtop5/"><u>「優秀な無料・有料のDVDコンバーターソフトウェアTOP5推薦」</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-your-blueprint-for-an-instantaneously-crafted-virtual-avatar/"><u>2024 Approved Your Blueprint for an Instantaneously Crafted Virtual Avatar</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-social-platforms-a-safe-choice/"><u>Best Social Platforms: A Safe Choice?</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-your-fb-fanbase-hidden-secrets/"><u>Discover Your FB Fanbase Hidden Secrets</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-hidden-social-hubs-on-facebook/"><u>Discovering Hidden Social Hubs on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-a-new-face-facebooks-renaming-regulations/"><u>Embracing a New Face: Facebook's Renaming Regulations</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclude-acquaintances-from-on-this-day-highlights/"><u>Exclude Acquaintances From On This Day Highlights</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-features-of-claude-2-a-comprehensive-guide/"><u>Exploring the Features of Claude 2: A Comprehensive Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-mac-to-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share Mac to Apple iPhone 15 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-lut-basics-for-enhanced-visual-effects-in-ae/"><u>In 2024, LUT Basics for Enhanced Visual Effects in AE</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/keyboard-conundrum-solved-reviving-your-unresponsive-dell-laptop-keys/"><u>Keyboard Conundrum Solved: Reviving Your Unresponsive Dell Laptop Keys</u></a></li>
-<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-xiaomi-mix-fold-3-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Xiaomi Mix Fold 3, is it possible?</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-call-logs-from-samsung-galaxy-a05s-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Samsung Galaxy A05s</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-facebooks-potential-for-work-related-client-expansion/"><u>Unlocking Facebook's Potential for Work-Related Client Expansion</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-are-facebooks-recommendations-permanent/"><u>Why Are Facebook's Recommendations Permanent?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-fluid-fusion-combining-videos-for-a-unified-youtube-presence/"><u>[Updated] 2024 Approved Fluid Fusion Combining Videos for a Unified Youtube Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-explore-and-compare-20plus-best-free-video-editors-for-ios/"><u>[Updated] In 2024, Explore and Compare 20+ Best Free Video Editors for iOS</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-strategies-for-crafting-a-trusted-contacts-list-in-googles-mail-service/"><u>Expert Strategies for Crafting a Trusted Contacts List in Google's Mail Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-future-fbs-metaverse-with-six-pivotal-reasons/"><u>Exploring the Future: FB's Metaverse with Six Pivotal Reasons</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-purify-windows-ram-cache-quickly/"><u>How to Purify Windows' RAM Cache Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-acquaintances-elevate-your-chat-experience-with-messenger/"><u>Introducing Acquaintances: Elevate Your Chat Experience with Messenger</u></a></li>
+<li><a href="https://discover-great.techidaily.com/maximizing-browser-speed-expert-tips-from-yl-computings-latest-guide/"><u>Maximizing Browser Speed: Expert Tips From YL Computing's Latest Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-to-metas-profile-management-hub-facebook-and-instagram/"><u>Navigate to Meta's Profile Management Hub: Facebook & Instagram</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/photographic-soundtracking-online/"><u>Photographic Soundtracking Online</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/restore-windows-previous-installation-from-old-backup/"><u>Restore Windows Previous Installation From .Old Backup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-20-social-media-apps-and-sites/"><u>The Top 20 Social Media Apps and Sites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-seamless-replay-on-youtube-with-our-pro-tips-for-2024/"><u>Unlock Seamless Replay on YouTube with Our Pro Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-the-functions-within-facebook-help-center/"><u>Utilizing the Functions Within Facebook Help Center</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/guide-to-choosing-the-ideal-youtube-downloader-android-for-2024/"><u>Your Guide to Choosing the Ideal YouTube Downloader (Android) for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unraveling 2022'S Pivotal Moments in Google News
-date: 2024-08-28T03:08:10.289Z
-updated: 2024-08-29T03:08:10.289Z
+date: 2024-12-10T21:42:09.700Z
+updated: 2024-12-12T22:44:22.665Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## 3\. The End of YouTube Originals
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
@@ -52,49 +49,50 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. The Violation of Sonos Patents
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
  In early 2022, the US International Trade Commission ruled that Google did indeed violate a total of five Sonos patents. But in August of the same year, Google hit Sonos back with its own lawsuit, claiming that Sonos had actually violated seven of Google's patents, such as its voice assistant technology.
 
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. A "Secret" Facebook Deal
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
  This deal was reportedly proposed to consolidate the online advertising market and was formed in 2018, with suspicions arising around its possible existence back in 2020\. The CEO of Facebook, as it was then called, Mark Zuckerberg, and Google CEO Sundar Pichai allegedly formed the deal, though it was originally thought that the signature was solely provided by Facebook COO Sheryl Sandberg.
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## 6\. The FTC Pixel Lawsuit
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. The $25B UK and Netherlands Lawsuits
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
@@ -103,18 +101,19 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Google Has Gone Through a Lot in 2022
 
  There's no doubt that Google has seen its fair share of trials and tribulations throughout 2022, with various lawsuits, rumors, and changes to services giving it plenty of reasons to be featured in the news. But Google is no stranger to legal disputes and criticism, so we may see more similar headlines in 2023.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +122,26 @@ thumbnail: https://thmb.techidaily.com/0ec3b3e91ce6c2fd312d0c52b550de8f05b444cc8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-pinnacle-zooctorial-template-repositories/"><u>[New] Pinnacle Zooctorial Template Repositories</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>[New] Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-ultimate-social-media-analysis-manual-for-decoding-ig-engagement-and-more/"><u>[Updated] 2024 Approved Ultimate Social Media Analysis Manual for Decoding IG Engagement and More</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-steps-to-curate-youtube-music-selections-for-2024/"><u>[Updated] Essential Steps to Curate YouTube Music Selections for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-laughing-in-the-metaverse-how-to-create-your-own-funny-memes/"><u>2024 Approved Laughing in the Metaverse How to Create Your Own Funny Memes</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-ways-to-boost-engagement-through-a-facebook-circle/"><u>6 Ways to Boost Engagement Through a Facebook Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/actions-to-take-when-facing-a-frozen-facebook-account/"><u>Actions to Take When Facing a Frozen Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-apocalypse-facebook-whatsapp-offline/"><u>App Apocalypse: Facebook, WhatsApp Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-in-broadcast-facebook-updates-platform/"><u>Breaking Barriers in Broadcast: Facebook Updates Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-the-implications-of-full-access-control-on-oculus-go/"><u>Breaking Barriers: The Implications of Full Access Control on Oculus Go</u></a></li>
+<li><a href="https://win-latest.techidaily.com/can-you-enjoy-immersive-audio-with-your-current-sound-cards-surround-sound-capability-unveiling-by-yl-software/"><u>Can You Enjoy Immersive Audio with Your Current Sound Card's Surround Sound Capability - Unveiling by YL Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-monitoring-your-digital-activity-on-fb/"><u>Comprehensive Guide to Monitoring Your Digital Activity on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-personalized-facebook-profile-photo/"><u>Crafting a Personalized Facebook Profile Photo</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/effective-sales-strategies-uncovered/"><u>Effective Sales Strategies Uncovered</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mastering-the-art-of-shrinking-your-videos-seamless-whatsapp-transmissions-from-pcs-online-tools-and-mobile-phones/"><u>Mastering the Art of Shrinking Your Videos: Seamless WhatsApp Transmissions From PCs, Online Tools, and Mobile Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148986166-new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/revolutionary-office-companion-discovering-a-remarkable-and-underappreciated-feature-of-the-best-new-2-in-1-tech-this-year/"><u>Revolutionary Office Companion: Discovering a Remarkable and Underappreciated Feature of the Best New 2-in-1 Tech This Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150058146-social-media-preference-poll-here/"><u>Social Media Preference Poll Here!</u></a></li>
+</ul></div>
 

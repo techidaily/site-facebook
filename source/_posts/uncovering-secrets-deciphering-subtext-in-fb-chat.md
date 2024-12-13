@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Secrets: Deciphering Subtext in FB Chat"
-date: 2024-08-28T03:09:35.792Z
-updated: 2024-08-29T03:09:35.792Z
+date: 2024-12-09T19:56:18.236Z
+updated: 2024-12-12T18:46:05.507Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,15 @@ thumbnail: https://thmb.techidaily.com/ce80644caee7b986767dc148a3626afb6dedcf8d3
 
 ![Messenger Desktop Message Requests](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Desktop-Message-Requests.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To see your hidden messages in the mobile Messenger app, tap the hamburger menu at the top-left and choose**Message requests** from the resulting menu. We’ll use the desktop version to illustrate below, but the same applies to the mobile apps too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Replying to Hidden and Spam Messages
 
@@ -36,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/ce80644caee7b986767dc148a3626afb6dedcf8d3
  For both types, you can read what the person sent you. You’ll see basic details about them at the top of the chat, like where they live and if you have any connection on Facebook.
 
 ![Messenger Requests Main View](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Requests-Main-View.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Until you reply, the other person can’t see if you’ve read their message or when you’re online on Messenger. Once you respond, Messenger will move the chat to your main inbox and treat it like any other. That person will then be able to see your online status, know that you’ve read their messages[via Messenger’s icons](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/) , and can call you.
 
@@ -56,25 +68,19 @@ thumbnail: https://thmb.techidaily.com/ce80644caee7b986767dc148a3626afb6dedcf8d3
 ![Facebook Message Request Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Message-Request-Delivery.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  To see this on the mobile Messenger app, slide out the left menu, tap the**Settings** gear, and go to**Privacy & safety > Message delivery** .
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ### Potential Connections: Legitimate Requests
 
  In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### Other People: Probably Spam
 
  For the**Other people** section, you can choose to have messages go to**Message requests** , or**Don’t receive requests** to block them.**Others on Facebook** includes anyone you don’t have a connection with.
@@ -82,6 +88,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Since Messenger now works across Facebook and Instagram, the**Accounts on Instagram** toggle controls people reaching out from the other app. If you’re checking these controls in the mobile Messenger app, tap**Add your Instagram account** to link your Facebook and Instagram accounts for a more seamless experience.
 
 ![01a Messenger Settings Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01a-Messenger-Settings-Menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
@@ -100,13 +110,11 @@ Close
 ![Messenger Archived Chats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Archived-Chats.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Block People on Facebook Messenger
 
  To complete our discussion on managing hidden and unread messages on Messenger, don’t forget you can[block people on Messenger](https://www.makeuseof.com/how-to-block-and-unblock-messenger/) to prevent them from contacting you. To access this page, click the same three-dot menu in Messenger and choose**Preferences > Manage blocking** . This brings you to the[Blocking tab](https://www.facebook.com/settings/?tab=blocking) of your Facebook settings.
@@ -115,9 +123,6 @@ Close
 
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Seek and Find Hidden Messages on Facebook Messenger
 
  We’ve walked through all the ways to find hidden messages in Messenger, along with how to control what messages you receive.
@@ -126,14 +131,11 @@ Close
 
  Meanwhile, if you love Messenger, there’s a lot more to discover about it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +144,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-securing-youtube-partnership-a-comprehensive-guide-for-video-creators/"><u>[New] 2024 Approved Securing YouTube Partnership A Comprehensive Guide for Video Creators</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rom-creator-to-critic-evaluating-video-value-across-platforms/"><u>[New] From Creator to Critic Evaluating Video Value Across Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-visual-storytelling-applying-advanced-techniques-with-luts-in-after-effects/"><u>[New] Innovative Visual Storytelling Applying Advanced Techniques with LUTs in After Effects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-highest-paid-youtuber-in-the-world/"><u>[Updated] Highest Paid YouTuber in the World</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-strategies-uniting-communities-via-platforms/"><u>8 Strategies: Uniting Communities via Platforms</u></a></li>
+<li><a href="https://video-capture.techidaily.com/gif-gif/"><u>文字を生かした GIF 魔術 - 流れるアニメーションやモーションGIFを作り方</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-tale-of-two-platforms-will-meta-displace-facebook-and-instagram-in-europe/"><u>A Tale of Two Platforms: Will Meta Displace Facebook & Instagram in Europe?</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusations-social-media-fights-false-advertising/"><u>Accusations: Social Media Fights False Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-application-alternatives-quick-android-plays/"><u>Agile Application Alternatives: Quick Android Plays</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-buzz-navigating-a-world-without-social-media/"><u>Beyond the Buzz: Navigating a World without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/bold-personalities-setting-the-tech-stage-on-fire/"><u>Bold Personalities Setting the Tech Stage on Fire</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-past-browsing-a-facebook-method/"><u>Clearing Up Past Browsing: A Facebook Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-distinctive-facebook-page/"><u>Crafting a Distinctive Facebook PAGE</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-6s-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 6s Plus without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-6-plus-the-right-way-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock On iPod and Apple iPhone 6 Plus The Right Way</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-xiaomi-redmi-note-13-pro-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Xiaomi Redmi Note 13 Pro 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-oppo-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Oppo has been deleted.</u></a></li>
+</ul></div>
 

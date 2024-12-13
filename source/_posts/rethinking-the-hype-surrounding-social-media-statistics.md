@@ -1,7 +1,7 @@
 ---
 title: Rethinking the Hype Surrounding Social Media Statistics
-date: 2024-08-28T03:10:54.795Z
-updated: 2024-08-29T03:10:54.795Z
+date: 2024-12-10T20:10:41.985Z
+updated: 2024-12-12T18:03:03.911Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/b50fe0cbd9cbb19ed8809a46e26fef3c1e35eecf8
 
  Since the report, the internet has been going crazy, and headlines have been looking at why Facebook is doomed, or failing, or not popular anymore, as if the platform's about to shut down. That's not the case at all, and people need to calm down!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Where Have These Facebook Stats Come From?
 
  Meta released its[annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
@@ -35,6 +39,10 @@ Image Credit: Meta
 
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Has Barely Lost Any Users
 
  As Meta's report included rounded figures, we have to take an average decrease of 500,000 users. It could be slightly more, it could be slightly less. That equates to a decrease in users of 0.025%.
@@ -45,9 +53,6 @@ Image Credit: Meta
 
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. It's Natural for Facebook to Lose Some Users
 
  When you're a social media platform as large as Facebook, it's only natural to eventually see a slight decline in users. This is especially the case when you're talking about an existing userbase of almost two billion individuals. Let's put our business hats on for a second.
@@ -61,8 +66,9 @@ Image Credit: Meta
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
 
  Delving even deeper, you can consider the critical mass curve for a platform's users. Critical mass is the minimum number of users you need to sustain value in the product with no other product changes. Usually businesses want to work up this curve towards critical mass, but there's a point when you exceed it.
@@ -70,8 +76,9 @@ Image Credit: Meta
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Meta Is Focusing on the Metaverse
 
  In 2021, Facebook (the company) changed its name to Meta. This is now the holding company that owns all of Facebook's products, including WhatsApp and Instagram. With this new name came a shift in focus–to the metaverse.
@@ -85,22 +92,20 @@ Image Credit: Meta
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Chill Out! Facebook Is Fine
 
  While we've been looking at why the drop in users isn't a big deal, it's important to acknowledge that Facebook did lose some users. Why? Because people's heads have been turned to other social platforms focusing on short-form content, especially the younger generation.
 
  We acknowledge Facebook's slight drop in users, we're OK to talk about it, but we're pretty sure it isn't the end of the world. In other words, chill out, because Facebook is doing just fine, thank you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,4 +114,19 @@ Image Credit: Meta
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-10-key-strategies-to-enhance-insta-highlights/"><u>[New] 10 Key Strategies to Enhance Insta Highlights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters-for-2024/"><u>[Updated] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters) for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-starting-with-nfts-your-no-stress-guide/"><u>[Updated] Starting with NFTs Your No-Stress Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-negative-effects-of-social-media-on-people-and-users/"><u>7 Negative Effects of Social Media on People and Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-engagement-with-an-impactful-profile-photo/"><u>Boosting Engagement with an Impactful Profile Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/breach-rates-amongst-online-users/"><u>Breach Rates Amongst Online Users</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-samsung-galaxy-s23-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Samsung Galaxy S23 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-realme-11-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Realme 11 Pro Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://os-tips.techidaily.com/1723620242260-in-depth-analysis-of-macgo-ios-erase-app-strengths-weaknesses-alternatives-and-faqs-covered/"><u>In-Depth Analysis of Macgo iOS Erase App – Strengths, Weaknesses, Alternatives, and FAQs Covered!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/meet-the-competitor-to-apples-budget-friendly-earbuds-beats-unveils-solo-edition-for-under-100-tech-analysis/"><u>Meet the Competitor to Apple's Budget-Friendly Earbuds: Beats Unveils Solo Edition for Under $100 | Tech Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154148882-reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer!</u></a></li>
+</ul></div>
 

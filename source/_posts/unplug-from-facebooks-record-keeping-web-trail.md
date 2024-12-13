@@ -1,7 +1,7 @@
 ---
 title: Unplug From Facebook’s Record-Keeping Web Trail
-date: 2024-08-28T03:07:03.557Z
-updated: 2024-08-29T03:07:03.557Z
+date: 2024-12-11T16:05:26.098Z
+updated: 2024-12-12T23:27:00.256Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 * [How to Check if You've Opted In to Facebook's Link History](#how-to-check-if-you-39-ve-opted-in-to-facebook-39-s-link-history)
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Enabling Link History in the Facebook app will allow Meta to track your data.
@@ -29,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -42,8 +47,9 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -56,13 +62,14 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
@@ -79,27 +86,13 @@ Close
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
 Close
@@ -108,14 +101,11 @@ Close
 
 [Meta is notorious for tracking its users](https://www.makeuseof.com/tag/facebook-tracking-stop/) , so if you don't want the company to track the websites you visit while using Facebook, it's best not to enable Link History. However, if you'd rather see ads relevant to you than completely unrelated ones that are of no value, then you should opt in. The key is knowing what the feature does and what implications that has for your privacy and security.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +114,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-ace-your-social-media-game-essential-video-marketing-techniques-on-facebook/"><u>[New] In 2024, Ace Your Social Media Game Essential Video Marketing Techniques on Facebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-ultimate-cartoony-transformation-tools-for-pcs-and-macs-for-2024/"><u>[New] Ultimate Cartoony Transformation Tools for PCs & Macs for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-steps-for-creating-a-popular-individual-podcast-show/"><u>[Updated] 2024 Approved Steps for Creating a Popular Individual Podcast Show</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-pixelperfect-screen-capture-software/"><u>[Updated] In 2024, PixelPerfect Screen Capture Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-disinformation-enhanced-penalties-by-social-media/"><u>Debunking Disinformation: Enhanced Penalties by Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-delayed-facebook-watchdogs-withhold-verdict/"><u>Decision Delayed: Facebook Watchdogs Withhold Verdict</u></a></li>
+<li><a href="https://facebook.techidaily.com/declining-connectivity-top-4-user-loss-indicators-on-fb/"><u>Declining Connectivity: Top 4 User Loss Indicators on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-on-the-horizon-when-can-i-expect-it-from-fb/"><u>E2EE on the Horizon: When Can I Expect It From FB?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-apple-iphone-12-mini-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your Apple iPhone 12 mini</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2024-11-23T19:28:00.699Z
-updated: 2024-11-26T19:01:08.657Z
+date: 2024-12-08T19:56:22.746Z
+updated: 2024-12-12T21:12:10.375Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Social Media Is Bad for You
@@ -33,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Depression and Anxiety
 
@@ -48,9 +44,17 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
@@ -62,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -70,13 +78,13 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -102,10 +110,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Unhealthy Sleep Patterns
 
  On top of increasing the cases of anxiety and depression, another bad thing about social media is that spending too much time on it can lead to poor sleep. Numerous studies have shown that increased use of social media has a negative effect on your sleep quality.
@@ -119,10 +123,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 ## 7\. General Addiction
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -153,24 +153,17 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-4-top-ranked-ways-to-grab-your-chromebook-screen-shot/"><u>[New] 4 Top-Ranked Ways To Grab Your Chromebook Screen Shot</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-choosing-the-best-iphone-video-editor-filmorago-or-cameo-for-2024/"><u>[New] Choosing the Best iPhone Video Editor FilmoRaGo or Cameo for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-conquer-copious-drafts-with-clever-edits-on-tiktok/"><u>[New] In 2024, Conquer Copious Drafts with Clever Edits on TikTok</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-best-practices-in-apple-podcast-file-formatting/"><u>[Updated] Best Practices in Apple Podcast File Formatting</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-decode-the-digital-dollar-with-youtube-an-effective-triple-step-method-for-income-analysis/"><u>[Updated] Decode the Digital Dollar with YouTube An Effective Triple Step Method for Income Analysis</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-top-5-mid-range-gaming-keyboards-costing-99plus/"><u>[Updated] Top 5 Mid-Range Gaming Keyboards Costing $99+</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/battle-of-smart-security-comparing-features-between-ring-and-nest-doorbells/"><u>Battle of Smart Security: Comparing Features Between Ring & Nest Doorbells</u></a></li>
-<li><a href="https://facebook.techidaily.com/giphys-survival-at-stake-as-fb-divestment-rumors-swirl/"><u>Giphy's Survival at Stake as FB Divestment Rumors Swirl</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-to-select-the-perfect-printer-important-points-to-think-about/"><u>How to Select the Perfect Printer: Important Points to Think About</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/innovative-cloud-storage-solutions-mematic-app/"><u>Innovative Cloud Storage Solutions Mematic App</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-cartoonize-your-videos-the-ultimate-conversion-tutorial/"><u>New In 2024, Cartoonize Your Videos The Ultimate Conversion Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-presence-top-secure-practices-for-facebook-users/"><u>Protect Your Presence: Top Secure Practices for Facebook Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-hidden-usage-in-your-tech-environment/"><u>Spotting Hidden Usage in Your Tech Environment</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-plans-retrieving-a-disabled-facebook-profile/"><u>Strategic Plans: Retrieving a Disabled Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-effect-of-sheryl-sandberg-on-tech-giants/"><u>The Effect of Sheryl Sandberg on Tech Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pivotal-moment-when-i-joined-facebook/"><u>The Pivotal Moment: When I Joined Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-players-of-techs-most-divided-arena/"><u>The Power Players of Tech's Most Divided Arena</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-scams-how-to-protect-your-online-presence/"><u>Understanding Scams: How to Protect Your Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/winning-a-share-of-the-725-million-facebook-settlement/"><u>Winning a Share of the $725 Million Facebook Settlement</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-best-waterproof-gopro-filters-for-undersea-film/"><u>[New] Best Waterproof GoPro Filters for Undersea Film</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-how-to-stay-grounded-in-virtual-reality-spaces/"><u>[New] In 2024, How to Stay Grounded in Virtual Reality Spaces</u></a></li>
+<li><a href="https://fox-http.techidaily.com/decoding-best-practices-to-hire-a-level-film-directors/"><u>Decoding Best Practices to Hire A-Level Film Directors</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-overcoming-top-11-facebook-glitches/"><u>Essential Tips for Overcoming Top 11 Facebook Glitches</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/highlighting-the-top-10-budget-friendly-video-communication-platforms-for-industry-and-academia/"><u>Highlighting the Top 10 Budget-Friendly Video Communication Platforms For Industry & Academia</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-linkedin-premium-worth-it-8-reasons-why-you-should-subscribe/"><u>Is Linkedin Premium Worth It? 8 Reasons Why You Should Subscribe</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-milestones-six-intriguing-facebook-updates/"><u>Metaverse Milestones: Six Intriguing Facebook Updates</u></a></li>
+<li><a href="https://discover-community.techidaily.com/resolving-the-black-screen-issue-on-camtasia-a-comprehensive-guide/"><u>Resolving the Black Screen Issue on Camtasia: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-to-understand-for-better-control-over-your-data-with-facebook/"><u>The Essentials to Understand for Better Control Over Your Data with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-perfect-moment-to-overhaul-facebook-image/"><u>The Perfect Moment to Overhaul Facebook Image</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/top-techniques-for-optimizing-chrome-a-guide-to-managing-high-memory-consumption-in-13-easy-steps/"><u>Top Techniques for Optimizing Chrome: A Guide to Managing High Memory Consumption in 13 Easy Steps</u></a></li>
 </ul></div>
 

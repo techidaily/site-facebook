@@ -1,7 +1,7 @@
 ---
 title: Essential Sites & Locales for Job Hunting (Freelancer)
-date: 2024-08-28T03:08:54.648Z
-updated: 2024-08-29T03:08:54.648Z
+date: 2024-12-06T22:18:32.438Z
+updated: 2024-12-12T17:19:52.558Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
  You can also use LinkedIn to find freelance work by using hashtags and keeping an eye out on your feed for people who may need your services.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Job Boards
 
 ![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
@@ -66,13 +70,14 @@ Job boards that you can find great gigs on include:
 * [Vue.js for Hire](https://www.facebook.com/groups/vuejsforhire)
 * [Remote Work & Jobs for Digital Nomads](https://www.facebook.com/groups/remotework.digitalnomads/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. Twitter
 
 ![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Twitter is a popular platform for freelancers to connect with others on the same path as them. But beyond that, it's also a great place to find freelance work.
 
  Related:[Essential Twitter Tips for Beginners](https://www.makeuseof.com/tag/twitter-tips-for-beginners/)
@@ -87,9 +92,6 @@ Job boards that you can find great gigs on include:
 
  Both of these tips work if you don't have a Twitter account; you can just use the search bar to look for hashtags and profiles. Of course, though, you won't be able to follow accounts.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Emails
 
 ![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
@@ -105,27 +107,20 @@ Job boards that you can find great gigs on include:
  If you're a writer, you can also send pitches through email. If you have a few article ideas that you think would look good on a company blog or magazine website, send a brief outline about your subject and why you think the piece would be interesting. Regardless of how you send emails, the key is to treat the recipient as a person.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Tips for Achieving Success as a Freelancer
 
  In addition to the job-hunting methods that we outlined above, there are a few things you should keep in mind once you start getting serious about landing gigs.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Build Relationships
 
 ![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The phrase "it's not what you know, but who you know" is especially important in the world of freelancing. Often, the best roles are hidden. And if you don't have a strong network, your risks of faltering are higher.
 
@@ -142,8 +137,9 @@ Job boards that you can find great gigs on include:
 ![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The worst time to let down your guard is when things are going well in your freelance career—that is precisely when you might find that the tank begins to dry up.
 
  While it's important not to burn yourself out, keeping the momentum going is a good idea. Even if you've got a healthy pool of clients, keep sending letters of introduction and networking with new people.
@@ -153,15 +149,13 @@ Job boards that you can find great gigs on include:
  When you've got a steady base, you might want to focus more on your marketing, too. That way, you can start attracting clients rather than having to go out and get the work.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Offer Free Value
 
 ![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
  For others to trust you enough to want to spend their money on you, you must provide free value first. But that doesn't mean you need to work for free for other clients (though in some cases, doing so can be worth it).
 
  Offering free value simply means sharing your knowledge with the world. You can publish how-to posts on LinkedIn or blog regularly on your website.
@@ -174,14 +168,11 @@ Job boards that you can find great gigs on include:
 
  Diversify how you search for work and market yourself. In the meantime, focus on offering your insights and building your network. You'll eventually find yourself in a healthy position and may find that work starts coming to you (instead of the other way around).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -190,4 +181,20 @@ Job boards that you can find great gigs on include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-explore-the-best-smartphone-compatible-vr-for-2024/"><u>[New] Explore the Best Smartphone-Compatible VR for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/achieving-audiovisual-excellence-with-srt-and-mp4-the-ultimate-guide/"><u>Achieving Audiovisual Excellence with SRT and MP4 - The Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-unique-vision-staying-away-from-metaverse-frenzy/"><u>Apple's Unique Vision: Staying Away From Metaverse Frenzy</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-and-banners-discovering-premium-dj-templates-for-2024/"><u>Beats & Banners Discovering Premium DJ Templates for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-facebooks-reel-challenge-succeed-against-tiktoks-appeal/"><u>Can Facebook’s Reel Challenge Succeed Against TikTok's Appeal?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-every-interaction-download-tactics-for-facebook-history/"><u>Capture Every Interaction: Download Tactics for Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-connections-the-covert-evolution-of-facebooks-wrist-tech/"><u>Crafting Connections: The Covert Evolution of Facebook’s Wrist Tech</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-gif-animation-explained/"><u>In 2024, The Art of GIF Animation Explained</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-infinix-hot-30-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Infinix Hot 30 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionize-roleplay-with-chatgpt-6-essential-tips-to-optimizing-your-games-dungeon-master-experience/"><u>Revolutionize Roleplay with ChatGPT: 6 Essential Tips to Optimizing Your Game's Dungeon Master Experience</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-getting-started-with-microsofts-bing-ai-search/"><u>Step-by-Step Guide: Getting Started with Microsoft's Bing AI Search</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/trimming-tactics-for-time-strapped-youtubers-for-2024/"><u>Trimming Tactics for Time-Strapped YouTubers for 2024</u></a></li>
+</ul></div>
 

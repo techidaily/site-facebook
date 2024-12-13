@@ -1,7 +1,7 @@
 ---
 title: "Revising Profile Rules: Forward, No Backward to Faith or Politics"
-date: 2024-12-02T16:53:49.796Z
-updated: 2024-12-06T21:40:44.500Z
+date: 2024-12-06T22:38:22.481Z
+updated: 2024-12-12T21:41:10.815Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Remove Sensitive Information
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -75,19 +75,19 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ow-to-broadcast-your-online-meeting-via-youtube-google-meet-steps/"><u>[New] How To Broadcast Your Online Meeting via YouTube - Google Meet Steps</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-unveiling-stardew-valleys-most-innovative-game-updates/"><u>2024 Approved Unveiling Stardew Valley's Most Innovative Game Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-the-ultimate-2022-eco-friendly-solar-gift-ideas-ranked-by-zdnet/"><u>Discover the Ultimate 2022 Eco-Friendly Solar Gift Ideas Ranked by ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-mdm-on-iphone-15-with-ease-via-third-tools-by-drfone-ios-unlock-ios-unlock/"><u>How to Bypass MDM on iPhone 15 with Ease Via third Tools?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-nubia-red-magic-8s-proplus-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Nubia Red Magic 8S Pro+</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-this-years-most-puzzling-tech-failures/"><u>Investigating This Year's Most Puzzling Tech Failures</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/optimize-your-pc-now-swift-installation-of-updated-intel-iris-540-video-card-drivers/"><u>Optimize Your PC Now: Swift Installation of Updated Intel Iris 540 Video Card Drivers</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-to-correct-xerox-error-code-0x800f020b-for-windows-users/"><u>Step-by-Step Guide to Correct Xerox Error Code 0X800F020B for Windows Users</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-tutorial-troubleshooting-and-solving-secure-internet-connectivity-problems-on-windows-pcs/"><u>Step-by-Step Tutorial: Troubleshooting & Solving Secure Internet Connectivity Problems on Windows PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-online-presence-effective-follow-and-unfollow-techniques-on-facebook/"><u>Tailoring Your Online Presence: Effective Follow & Unfollow Techniques on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-6-benefits-cutting-ties-with-facebook-for-a-better-life/"><u>Top 6 Benefits: Cutting Ties with Facebook for a Better Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-ancient-artifacts-iphone-x-selfies/"><u>[Updated] Ancient Artifacts – iPhone X Selfies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-forge-partnerships-from-initial-contact-to-final-deal-on-youtube/"><u>[Updated] Forge Partnerships From Initial Contact to Final Deal on Youtube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-journey-to-metaverse-leading-vr-headsets-reviewed/"><u>2024 Approved Journey to Metaverse Leading VR Headsets Reviewed</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/best-logiteche-gaming-controller-setup-for-windows-os/"><u>Best Logiteche Gaming Controller Setup for Windows OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-quality-connections-how-to-block-on-fb/"><u>Ensuring Quality Connections: How to Block on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/friend-quotas-not-connections-prioritize-safety-online/"><u>Friend Quotas, Not Connections: Prioritize Safety Online</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/hashtag-strategies-for-successful-instagram-growth/"><u>Hashtag Strategies for Successful Instagram Growth</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photo-trickery-how-faces-decipher-on-apple-and-samsung-gadgets/"><u>Photo Trickery How Faces Decipher on Apple & Samsung Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-alert-top-social-shares-to-steer-clear-of/"><u>Privacy Alert! Top Social Shares to Steer Clear Of</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/strategies-to-dodge-content-advisory-strikes-for-2024/"><u>Strategies to Dodge Content Advisory Strikes for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dawn-of-metas-enigmatic-ai-goliath/"><u>The Dawn of Meta's Enigmatic AI Goliath</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-facebooks-newsfeed-design/"><u>The Evolution of Facebook's Newsfeed Design</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-make-a-movie-like-a-pro-easy-tips-and-tricks/"><u>Updated In 2024, Make a Movie Like a Pro Easy Tips and Tricks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/viair-88p-compact-compressor-assessment-unmatched-power-but-with-notable-limitations/"><u>Viair 88P Compact Compressor Assessment: Unmatched Power but With Notable Limitations</u></a></li>
 </ul></div>
 

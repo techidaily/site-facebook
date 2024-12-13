@@ -1,7 +1,7 @@
 ---
 title: Mastering Social Media Account Exploration
-date: 2024-11-30T22:28:39.514Z
-updated: 2024-12-06T21:08:42.482Z
+date: 2024-12-08T19:05:35.494Z
+updated: 2024-12-12T23:23:26.840Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View and Review Your Activity on Facebook
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 3. You will be able to filter by**Date** or review**Activity Types.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 4. You will be able to review your**Posts** . Things like photos, videos, or status updates that you have shared.  
@@ -48,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 5. You'll be able to review the**Activity You're Tagged** in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. You'll also see your**Interactions** such as what you've liked, reacted to, or commented on.
@@ -58,7 +58,7 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 5. You'll see your**Logged Actions and Other Activity** to review things like your devices, logins and videos you've watched.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Reviewing Your Activity on Facebook
@@ -80,17 +80,19 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-tailored-touch-up-top-6-apps-to-exclude-unwanted-elements-from-photos-for-2024/"><u>[New] Tailored Touch-Up Top 6 Apps to Exclude Unwanted Elements From Photos for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-blending-binaries-digital-photographic-techniques-for-2024/"><u>[Updated] Blending Binaries Digital Photographic Techniques for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-crafting-winning-twitter-sponsored-content-for-2024/"><u>[Updated] Crafting Winning Twitter Sponsored Content for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/constructing-a-unique-avatar-for-social-media/"><u>Constructing a Unique Avatar for Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-opportunities-in-facebooks-725-million-deal/"><u>Exploring Opportunities in Facebook’s $725 Million Deal</u></a></li>
-<li><a href="https://facebook.techidaily.com/halt-non-playing-vids-quick-fixes-for-facebook-issues/"><u>Halt Non-Playing Vids: Quick Fixes for Facebook Issues</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Realme GT 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/life-beyond-likes-gaining-perspective-without-platforms/"><u>Life Beyond Likes: Gaining Perspective Without Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/preserving-your-digital-footprint-full-facebook-activity-archives/"><u>Preserving Your Digital Footprint: Full Facebook Activity Archives</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/revolutionizing-multi-user-interactions-jdis-two-view-displays-with-dual-touch-capability/"><u>Revolutionizing Multi-User Interactions: JDI's Two View Displays with Dual Touch Capability</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/silence-broken-expert-tips-to-resolve-borderlands-3s-sound-malfunction-on-pc/"><u>Silence Broken: Expert Tips to Resolve Borderlands 3'S Sound Malfunction on PC</u></a></li>
-<li><a href="https://win-online.techidaily.com/windows-server-2012-r2-hdd-cloning-techniques-two-effective-methods/"><u>Windows Server 2012 R2 HDD Cloning Techniques - Two Effective Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-harnessing-famebits-secrets-to-thrive-with-key-channel-sponsors/"><u>[New] 2024 Approved Harnessing FameBit's Secrets to Thrive with Key Channel Sponsors</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-giants-the-role-of-governments-in-dismantling-tech-titans/"><u>Deconstructing Giants: The Role of Governments in Dismantling Tech Titans</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/demystifying-the-removal-of-interlace-defects/"><u>Demystifying the Removal of Interlace Defects</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-tutorial-setting-up-fbs-mobile-generator/"><u>Detailed Tutorial: Setting Up FB's Mobile Generator</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-tweets-linger-forever-in-the-web/"><u>Do Tweets Linger Forever in the Web?</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-techniques-for-language-diversity-in-fb-posts/"><u>Effective Techniques for Language Diversity in FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-safety-the-benefits-of-facebooks-new-privacy-design/"><u>Elevate Your Online Safety: The Benefits of Facebook's New Privacy Design</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-tecno-pop-7-pro-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Tecno Pop 7 Pro Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/peeling-back-layers-of-the-metaverse-with-6-studies-for-2024/"><u>Peeling Back Layers of the Metaverse with 6 Studies for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-6-best-fps-counter-apps-for-windows-11/"><u>The 6 Best FPS Counter Apps for Windows 11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-savings-at-best-buy-exclusive-offers-and-discounts-in-june-2024-spotted-by-zdnet/"><u>Top Savings at Best Buy: Exclusive Offers & Discounts in June 2024 - Spotted by ZDNet</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-realme-narzo-60-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Realme Narzo 60 5G FRP Bypass</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-6s-plus-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From iPhone 6s Plus?</u></a></li>
 </ul></div>
 

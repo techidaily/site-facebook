@@ -1,7 +1,7 @@
 ---
 title: "Interactions Reimagined: Unveiling the Four Pivotal Socio-Media Revolutions"
-date: 2024-08-28T03:09:15.892Z
-updated: 2024-08-29T03:09:15.892Z
+date: 2024-12-05T23:42:29.375Z
+updated: 2024-12-12T23:14:21.979Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,25 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 
  Here is a look back at a few ways that different social media giants changed in 2022.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook’s Increased Focus on the Metaverse
 
 ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to[CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
 
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Elon Musk Took Over Twitter
 
@@ -36,22 +48,17 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Reels, Reels, Reels
 
 ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
  Reels are Instagram’s answer to TikTok gaining popularity. TikTok isn’t the only social media that Instagram copied in 2022 though.[Instagram also tested Candid Stories](https://www.makeuseof.com/instagram-candid-challenges-test-bereal-feature/) in 2022 which are the same concept as new social media app BeReal, where a notification at a random time each day prompts you to immediately post a picture of whatever you are doing at that moment.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. The Rise of BeReal
 
  Speaking of BeReal, the French social media app rose to over 10 million downloads in 2022, going from a small new platform to a ubiquitous concept that Instagram and TikTok are both now copying. Instagram has Candid Stories, while[TikTok launched TikTok Now](https://www.makeuseof.com/what-is-tiktok-now/) . BeReal’s longevity is yet to be seen, but the fun and authentic platform definitely made its mark in 2022.
@@ -59,27 +66,22 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media in 2022
 
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
  Were the changes we saw in 2022 for the better or did they make things worse? Many of them were controversial or unpopular, but others will help us remember 2022 positively. It will be exciting to see how these changes will shape the future of the social media world.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,4 +90,24 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-extract-and-play-fb-soundtracks/"><u>[Updated] 2024 Approved Extract and Play FB Soundtracks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-higher-integrating-dji-drones-for-facebook-live/"><u>[Updated] Broadcasting Higher - Integrating DJI Drones for Facebook Live</u></a></li>
+<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-look-at-djis-quadcopter-standard-flight-for-2024/"><u>A Comprehensive Look at DJI's Quadcopter Standard Flight for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-googles-major-press-breakthroughs/"><u>Analyzing Google’s Major Press Breakthroughs</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-public-records-in-online-platforms-ever-cleared/"><u>Are Public Records in Online Platforms Ever Cleared?</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-authenticity-and-relationship-with-ripls-tips/"><u>Building Authenticity and Relationship with Ripl's Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-social-web-mastery-of-facebooks-open-platform-portal/"><u>Clarifying the Social Web: Mastery of Facebook’s Open Platform Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-connectivity-accessing-and-using-facebook-groups/"><u>Community Connectivity: Accessing and Using Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-intentional-facebook-experience-avoiding-reels/"><u>Crafting an Intentional Facebook Experience: Avoiding Reels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-the-skies-with-top-10-beginner-drones-for-2024/"><u>Exploring the Skies with Top 10 Beginner Drones for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-access-netflix-on-your-nintendo-switch-console/"><u>How to Access Netflix on Your Nintendo Switch Console</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-maximizing-your-search-for-stellar-pexels-artwork/"><u>In 2024, Maximizing Your Search for Stellar Pexels Artwork</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-shield-from-ai-crafted-youtube-video-selections/"><u>In 2024, Shield From AI-Crafted YouTube Video Selections</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterful-dissection-the-complete-guide-to-bublcams-vision-for-2024/"><u>Masterful Dissection The Complete Guide to Bublcam's Vision for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-unlock-the-potential-of-your-videos-with-our-comprehensive-list-of-best-free-converters-onlineoffline/"><u>Updated 2024 Approved Unlock the Potential of Your Videos with Our Comprehensive List of Best Free Converters (Online/Offline)</u></a></li>
+</ul></div>
 

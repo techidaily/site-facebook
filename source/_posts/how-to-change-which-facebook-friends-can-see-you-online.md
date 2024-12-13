@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-11-21T09:22:34.305Z
-updated: 2024-11-26T16:05:18.371Z
+date: 2024-12-07T16:00:53.248Z
+updated: 2024-12-12T19:08:48.500Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Do People See Who's Online on Facebook?
 
 ![facebook online dot active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-online-dot-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When it comes to showing your online status on Facebook and Messenger, the company uses something called Active Status.
 
@@ -65,14 +65,14 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
 
@@ -85,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
@@ -100,10 +104,6 @@ Close
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -126,18 +126,18 @@ This is different from a full Facebook block.
 4. Choose the option for**Block messages and calls** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -160,24 +160,17 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-pixels-to-perfection-youtubes-beauty-color-techniques/"><u>[New] In 2024, Pixels to Perfection Youtube's Beauty Color Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-prime-tools-and-techniques-image-to-video-conversion/"><u>[New] Prime Tools and Techniques Image-to-Video Conversion</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-rekindle-ambition-top-10-motivational-moments-for-2024/"><u>[New] Rekindle Ambition Top 10 Motivational Moments for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-win-and-mac-mp3-converter-unlock-your-music-from-youtube/"><u>2024 Approved Win & Mac MP3 Converter Unlock Your Music From YouTube</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/25-popular-tiktok-creators-with-anime-flair-for-2024/"><u>25 Popular TikTok Creators with Anime Flair for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/first-steps-in-urdu-language-learning/"><u>First Steps in Urdu Language Learning</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-your-pages-standards-ban-users-with-confidence/"><u>Fortifying Your Page's Standards: Ban Users with Confidence</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-good-to-great-transforming-your-professional-persona-on-facebook/"><u>From Good to Great: Transforming Your Professional Persona on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-delete-facebook-notifications/"><u>How to Delete Facebook Notifications</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-itel-s23plus-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Itel S23+ in Minutes | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-behind-the-scenes-music-insights-for-ig/"><u>In 2024, Behind the Scenes Music Insights for IG</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-updated-feeds/"><u>Navigating Through Facebook's Updated Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviewing-friendships-a-facebook-guide/"><u>Reviewing Friendships: A Facebook Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-under-scrutiny-but-facebook-sees-worst-impact/"><u>Tech Titans Under Scrutiny, but Facebook Sees Worst Impact</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-troubles-why-chat-and-sharing-platforms-stalled/"><u>Tech Troubles: Why Chat & Sharing Platforms Stalled?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-definitive-verdict-on-samsungs-latest-smart-tv-a-look-at-the-qn5e5q6f-model/"><u>The Definitive Verdict on Samsung's Latest Smart TV: A Look at the QN5e5Q6F Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-reality-of-fbcta-what-it-means-for-you/"><u>The Reality of FBCTA: What It Means for You</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-top-4-business-meta-analytical-tools/"><u>Unlock Potential: Top 4 Business Meta Analytical Tools</u></a></li>
-<li><a href="https://program-issues.techidaily.com/unlock-solutions-to-tame-the-centipede-error-in-destiny-2-gaming-experience/"><u>Unlock Solutions to Tame the Centipede Error in Destiny 2 Gaming Experience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-soundwaves-on-social-a-guide-to-embedding-tracks-in-stories-for-2024/"><u>[New] Soundwaves on Social A Guide to Embedding Tracks in Stories for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-htc-vive-comfort-top-strategies-to-prevent-discomfort/"><u>[Updated] HTC Vive Comfort Top Strategies to Prevent Discomfort</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/effective-strategies-to-eradicate-rankbet-popups-insights-from-malwarefox/"><u>Effective Strategies to Eradicate RankBet Popups: Insights From MalwareFox</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fugetek-ft-568-selfie-stick-analysis-an-in-depth-look-at-a-premium-quality-extension-arm/"><u>Fugetek FT-568 Selfie Stick Analysis: An In-Depth Look at a Premium Quality Extension Arm</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-the-ghostly-side-of-digital-conversations/"><u>Insight Into the Ghostly Side of Digital Conversations</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-performance-issues-why-farming-simulator-22-experiences-frame-rate-dips/"><u>PC Performance Issues: Why Farming Simulator 22 Experiences Frame Rate Dips</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-personal-info-a-comprehensive-fb-safety-manual/"><u>Protecting Personal Info: A Comprehensive FB Safety Manual</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-updated-missing-screenshots-detected-in-messenger/"><u>Stay Updated: Missing Screenshots Detected in Messenger</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/transform-your-images-basic-tips-with-lunapic/"><u>Transform Your Images Basic Tips with LunaPic</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-3gp-file-trimmer-edit-and-split-your-videos-easily/"><u>Updated 2024 Approved 3GP File Trimmer Edit and Split Your Videos Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-joining-forces-on-facebook-heres-the-proof/"><u>Why Joining Forces on Facebook? Here's the Proof!</u></a></li>
 </ul></div>
 

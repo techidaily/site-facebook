@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-11-20T08:23:36.721Z
-updated: 2024-11-27T14:40:12.090Z
+date: 2024-12-07T23:31:19.498Z
+updated: 2024-12-12T16:13:04.145Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Facebook Blocked List on Mobile
@@ -33,16 +33,20 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -55,10 +59,6 @@ Close
 5. In the**Privacy** section, select**Blocking** .
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
 
@@ -74,7 +74,7 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -104,21 +104,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-convert-your-srt-files-for-free-with-top-websites-for-2024/"><u>[New] Convert Your SRT Files for FREE with Top Websites for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-secrets-to-writing-compelling-vlog-dialogues/"><u>[Updated] 2024 Approved Secrets to Writing Compelling Vlog Dialogues</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/capture-your-screen-like-a-pro-ultimate-techniques-for-taking-screenshots-on-pcs/"><u>Capture Your Screen Like a Pro: Ultimate Techniques for Taking Screenshots on PCs</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-online-safety-with-facebooks-defensive-measures/"><u>Enhancing Online Safety with Facebook's Defensive Measures</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expert-insights-on-the-samsung-galaxy-s10-an-exceptional-luxury-device/"><u>Expert Insights on the Samsung Galaxy S10: An Exceptional Luxury Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-a-new-transparency-center-detailing-its-policies/"><u>Facebook Launches a New Transparency Center Detailing Its Policies</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/facesave-videorecorder-pro-for-2024/"><u>FaceSave Videorecorder Pro for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Honor 90 Lite? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/mac-users-path-to-professional-audio-with-audacity/"><u>Mac Users' Path to Professional Audio with Audacity</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-chat-frontier-facebook-enhances-sound-interaction/"><u>New Chat Frontier: Facebook Enhances Sound Interaction</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-fb-world-informations-pathway/"><u>Post-FB World: Information’s Pathway</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/proven-methods-for-snappy-signature-bg-removal/"><u>Proven Methods for Snappy Signature Bg Removal</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/synthetic-sentience-showdown-advanced-gemini-vs-gptplusplus/"><u>Synthetic Sentience Showdown: Advanced Gemini Vs GPT++</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-leaving-social-networking-behind/"><u>The Ultimate Guide to Leaving Social Networking Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-access-strategies-for-facebookinsta-profile-management/"><u>Unraveling Access Strategies for Facebook/Insta Profile Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/wave-bye-bye-to-fb-on-android-devices-a-simple-guide/"><u>Wave Bye-Bye to FB on Android Devices - A Simple Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-acquiring-large-format-fb-videos-effortlessly/"><u>[New] 2024 Approved Acquiring Large-Format FB Videos Effortlessly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-choosing-prime-audio-editors-for-youtube-creators/"><u>[New] In 2024, Choosing Prime Audio Editors for YouTube Creators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-precision-record-keeper-for-chromebook/"><u>[New] In 2024, Precision Record Keeper for ChromeBook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-delving-into-the-drawbacks-of-vr-experiences/"><u>[Updated] 2024 Approved Delving Into the Drawbacks of VR Experiences</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-spark-interest-with-style-mixing-tiktoks-genius-techniques-for-insta/"><u>[Updated] Spark Interest with Style Mixing TikTok's Genius Techniques for Insta</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-best-practices-for-secondary-footage-selection-and-use/"><u>2024 Approved Best Practices for Secondary Footage Selection and Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-content-policies-on-facebooks-white-list/"><u>Exploring Content Policies on Facebook's White List</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-and-explore-fbs-latest-views/"><u>Find and Explore FB's Latest Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-fb-log-in-without-prior-generated-codes/"><u>How to Regain FB Log In Without Prior Generated Codes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/linkedin-prowess-leveraging-chatgpt-for-a-competitive-edge-in-employment-searches/"><u>LinkedIn Prowess: Leveraging ChatGPT for a Competitive Edge in Employment Searches</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-fbs-facial-recognition-systema-detailed-analysis/"><u>Meta Drops FB's Facial Recognition System—A Detailed Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-forum-participation-a-guide/"><u>Stealthy Forum Participation: A Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitsoundscape-audio-from-tweets-for-2024/"><u>TwitSoundscape Audio From Tweets for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrecy-of-facebook-chats/"><u>Unveiling the Secrecy of Facebook Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-truths-about-facebooks-popularity-claims/"><u>Unveiling Truths About Facebook’s Popularity Claims</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide for Retrieving Images and Vids From FB
-date: 2024-08-28T03:06:59.733Z
-updated: 2024-08-29T03:06:59.733Z
+date: 2024-12-05T16:21:40.615Z
+updated: 2024-12-12T23:13:57.126Z
 tags:
   - facebook
 categories:
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
  You can use this method to download Facebook photos. It's as simple as that.
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Download Facebook Albums
 
@@ -64,23 +68,18 @@ Follow these steps to download your Facebook album:
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Select whether you want to download all or just specific information on the next page. Since we want to download Facebook photos only, click**Select types of information** .  
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-information-download-option.jpg)
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 
  After submitting the request, Facebook will take you back to the**Download your information** page, indicating you have a pending request.
 
@@ -89,28 +88,23 @@ Follow these steps to download your Facebook album:
  Download and unzip the file to see all of your posts and images, with albums as sub-folders.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Which Is the Best Facebook Photo Downloader App?
 
  As of July 2023, there's no reliable Facebook photo downloader app that we can recommend. Most apps work for videos only, and they are filled with intrusive ads. Towards the end of 2022, Multi Downloader for Facebook was one of the best Facebook picture downloader apps out there. It was free, super easy to use, and it worked for videos, too.
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## How to Save Facebook Videos to Your Computer or Phone
 
 ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
 Here's how to use it:
@@ -128,20 +122,21 @@ Here's how to use it:
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Other Facebook Download Tools
 
  Apart from photos and videos, Facebook has a ton of other information about you. The company is also notorious for its data collection.
 
  The above methods let you download photos and videos easily, but you might want to consider backing up your Facebook history and learning about other download and data management tools.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +145,20 @@ Here's how to use it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-essential-tips-for-attending-tiktok-live-events/"><u>[New] Essential Tips for Attending TikTok Live Events</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xplore-new-movie-landscapes-top-7-alternates/"><u>[New] Explore New Movie Landscapes - Top 7 Alternates</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-obs-tutorial-capturing-every-moment-of-gameplay/"><u>[Updated] OBS Tutorial Capturing Every Moment of Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-making-for-your-ideal-social-media-hub/"><u>Decision-Making for Your Ideal Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-securityfbcom/"><u>Determining the Credibility of Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-age-advantages-the-positive-seven-for-society/"><u>Digital Age Advantages: The Positive Seven for Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-how-each-like-and-share-matters/"><u>Digital Footprints: How Each Like & Share Matters</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-governance-strategy-in-its-latest-launch/"><u>Dissecting Facebook’s Governance Strategy in Its Latest Launch</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723202547685-expert-tips-for-a-cheating-free-gaming-experience-on-apex-legends-fix-those-errors/"><u>Expert Tips for a Cheating-Free Gaming Experience on Apex Legends - Fix Those Errors!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-tecno-camon-20-premier-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Tecno Camon 20 Premier 5G</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-v29-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-aero-tech-machine-varieties/"><u>In 2024, Aero Tech Machine Varieties</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-nubia-red-magic-8s-pro-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Nubia Red Magic 8S Pro Device</u></a></li>
+</ul></div>
 

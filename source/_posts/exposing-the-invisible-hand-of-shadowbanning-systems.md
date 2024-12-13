@@ -1,7 +1,7 @@
 ---
 title: Exposing the Invisible Hand of Shadowbanning Systems
-date: 2024-08-28T03:13:34.448Z
-updated: 2024-08-29T03:13:34.448Z
+date: 2024-12-10T18:13:48.406Z
+updated: 2024-12-12T21:18:52.757Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/e6c6b6e32249dbf76f20abd6c6055b57975d7da74
 
 ## Exposing the Invisible Hand of Shadowbanning Systems
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Shadowbanning is the practice of partially or fully blocking a user's content without their knowledge.
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/e6c6b6e32249dbf76f20abd6c6055b57975d7da74
  When it comes to social media, if you don't play by the rules, you don't get to use the platform. This is made pretty clear to all users. However, there has been one practice that has been shrouded in mystery, so much so that users are confused as to whether it actually exists or not.
 
  We are talking about shadowbanning. So, what is shadowbanning? And what can you do to prevent a social media platform from shadowbanning you?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is Shadowbanning?
 
@@ -42,15 +50,13 @@ thumbnail: https://thmb.techidaily.com/e6c6b6e32249dbf76f20abd6c6055b57975d7da74
  However, the mystery is whether the practice actually really exists in a tangible form, or if people just cry "Shadowbanned!" when their content just doesn't get a lot of views.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Are People Really Getting Shadowbanned?
 
 ![Angry woman holding smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/angry-woman-smartphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  There have been numerous claims of shadowbanning across different social media platforms. With the politically charged environment making it harder than ever to distinguish genuine news from fake news, social media platforms have been accused of having a bias and using shadowbanning to silence the opinions they dislike.
 
 ### Shadowbanning on X
@@ -65,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/e6c6b6e32249dbf76f20abd6c6055b57975d7da74
 
  Even after Twitter's switch to X, talk about shadowbanning was still prominent. X addressed shadowbanning, explaining that some posts will have their reach limited if they go against the platform's rules.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Shadowbanning on Instagram
 
  Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to[check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
@@ -78,6 +80,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  However, this did not convince everyone. If you follow some smaller accounts on Instagram with a few thousand followers, you might have seen them complain about low reach all of a sudden.
 
  It could have happened to you, too, where an Instagram story posted by you had fewer views than you expected. This might not necessarily be shadowbanning. It could be up to algorithmic decisions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Shadowbanning on Facebook
 
@@ -91,16 +97,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Zuckerberg has assured users that they are constantly working on the flaws. You can also simply[get permanently banned from Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) , but this is rare.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Shadowbanning on TikTok
 
 ![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  TikTok also doesn't explicitly shadowban, but its rules state that it may reduce visibility on content that violates its community guidelines. This includes content containing nudity, drugs, hate speech, or other prohibited content. Many TikTok creators feel like they have been shadowbanned at least temporarily.
 
  TikTok users notice they might have been shadowbanned when their TikToks rapidly lose engagement, like views and likes, from the For You Page. Posts may not even upload correctly or at all, and their fans have a hard time seeing their videos.
@@ -114,22 +114,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Social networks can also flag you for suspicious activity. That means you need to have your account details up to date, and your email verified. You also have to ensure that you aren't posting in a manner that makes you look like a spammer or bot. Using banned hashtags is also a bad idea if you want to avoid being shadowbanned.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Shadowbanning Will Stay Controversial
 
  There is no real way to determine if social media networks are really trying to shut down opinions they don't like, or just trying to ensure that the content users are putting out is safe for everyone.
 
  Either way, the onus is on us as users to be careful and stick to the rules or risk the consequences. There will always be talk about whether shadowbanning is good, bad, or even necessary, but if you want to stay active on your favorite platforms, then it is best to just avoid the risk.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +136,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-appreciate-with-us-open-source-and-subscription-outro-samples/"><u>[New] In 2024, Appreciate with Us Open-Source & Subscription Outro Samples</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-leading-video-kick-offs-the-best-16-youtube-vlogs-to-increase-views/"><u>[Updated] Leading Video Kick-Offs The Best 16 YouTube Vlogs to Increase Views</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-ultimate-top-8-converter-list-for-sub-to-srt/"><u>[Updated] Ultimate Top 8 Converter List for Sub to SRT</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-strategies-to-acquire-top-notch-hdr-cameras/"><u>2024 Approved Strategies to Acquire Top-Notch HDR Cameras</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-send-ringtones-from-apple-iphone-xr-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Send Ringtones from Apple iPhone XR to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-how-content-is-screened-by-facebook/"><u>Decoding How Content Is Screened by Facebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-download-of-current-hp-officejet-pro-9015-printer-drivers-compatible-with-all-os/"><u>Easy Download of Current HP Officejet Pro 9015 Printer Drivers - Compatible with All OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-hashtags-to-harmony-what-i-discovered-post-social-media/"><u>From Hashtags to Harmony: What I Discovered Post-Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-online-image-on-facebook/"><u>Mastering Your Online Image on Facebook</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mp4-video-compression-techniques-a-step-by-step-guide/"><u>MP4 Video Compression Techniques: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-leads-facebooks-customized-mobile-payments-exceeding-expectations/"><u>Personalization Leads: Facebook's Customized Mobile Payments Exceeding Expectations</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-steps-for-restarting-windows-apps/"><u>Quick Steps for Restarting Windows Apps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/revolutionize-your-feed-with-these-10-insta-tools/"><u>Revolutionize Your Feed with These 10 Insta-Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-the-significant-date-of-my-digital-enlightenment-facebook/"><u>Seeking the Significant Date of My Digital Enlightenment: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-guide-updating-your-facebook-birthday/"><u>Simple Guide: Updating Your Facebook Birthday</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-describing-photos-on-popular-networks/"><u>Strategies for Describing Photos on Popular Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rationale-behind-multiplying-user-identities-in-a-single-facebook-profile/"><u>The Rationale Behind Multiplying User Identities in a Single Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-11-social-network-snags-and-how-to-tackle-them/"><u>Top 11 Social Network Snags and How to Tackle Them</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/worldwide-word-weaving-into-english-dialects/"><u>Worldwide Word Weaving Into English Dialects</u></a></li>
+</ul></div>
 

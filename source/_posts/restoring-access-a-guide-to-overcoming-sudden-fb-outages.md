@@ -1,7 +1,7 @@
 ---
 title: "Restoring Access: A Guide to Overcoming Sudden FB Outages"
-date: 2024-08-28T03:09:39.048Z
-updated: 2024-08-29T03:09:39.048Z
+date: 2024-12-08T20:23:05.889Z
+updated: 2024-12-12T20:54:02.224Z
 tags:
   - facebook
 categories:
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/99c9865a6c9c6ec80635e573e65ff37309dc9b7d7
 
  If the problem persists following the above checks and fixes, apply the following troubleshooting...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Ensure Facebook Isn't Facing Technical Difficulties
 
  First, you should ensure that the issue isn't caused by a technical difficulty on Facebook's end. For that, go to[DownDetector's official website](https://downdetector.com/) and search for "Facebook" in the search bar in the top right of the screen.
@@ -59,14 +63,13 @@ thumbnail: https://thmb.techidaily.com/99c9865a6c9c6ec80635e573e65ff37309dc9b7d7
 3. Go to**Security and login** .  
 ![Opening Security and Login Settings in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-2-Opening-Security-and-Login-Settings-in-Facebook.jpg)
 4. To log out of a session active on an unknown device, click the**three vertical dots** next to it and hit**Log out** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
-![Logging Out of a Session Active on Unknown Device by Clicking on Log Out Button in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-3-Logging-Out-of-a-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Facebook-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Logging Out of a Session Active on Unknown Device by Clicking on Log Out Button in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-3-Logging-Out-of-a-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Facebook-Settings.jpg)
+
 ### Exit Suspicious Facebook Sessions on the Facebook App
 
  To log out of a suspicious Facebook session on the Facebook app, follow the below steps:
@@ -78,11 +81,16 @@ thumbnail: https://thmb.techidaily.com/99c9865a6c9c6ec80635e573e65ff37309dc9b7d7
 
 ![Navigating to the Facebook Settings by Clicking on Settings and Privacy Option in Facebook for iOS’ More Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Navigating-to-the-Facebook-Settings-by-Clicking-on-Settings-and-Privacy-Option-in-Facebook-for-iOS’-More-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Opening the Security and Login Settings in Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Opening-the-Security-and-Login-Settings-in-Facebook-for-iOS.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Logging Out of the Session Active on Unknown Device by Clicking on Log Out Button in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Logging-Out-of-the-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Settings-of-Facebook-for-iOS.jpg)
 
 Close
@@ -106,13 +114,11 @@ Close
 4. In the left sidebar, click**Apps and websites** .  
 ![Opening Apps and Websites Linked to Our Facebook Account in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-5-Opening-Apps-and-Websites-Linked-to-Our-Facebook-Account-in-Facebook-Settings.jpg)
 5. Click**Remove** right next to the app you'd like to unlink.  
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Unlinking the Linked App to Our Facebook Account by Clicking on Remove Button Next in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-6-Unlinking-the-Linked-App-to-Our-Facebook-Account-by-Clicking-on-Remove-Button-Next-in-Facebook-Settings.jpg)
 6. When the confirmation pop-up appears, click**Remove** again.
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To remove linked apps on the Facebook app, follow the below steps:
@@ -129,18 +135,16 @@ To remove linked apps on the Facebook app, follow the below steps:
 
 ![Clicking on Apps and Websites Settings under Security Tab to Check Linked Apps in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Clicking-on-Apps-and-Websites-Settings-under-Security-Tab-to-Check-Linked-Apps-in-Settings-of-Facebook-for-iOS.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Unlinking Linked App to Our Facebook Account by Clicking on Remove Button Next in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Unlinking-Linked-App-to-Our-Facebook-Account-by-Clicking-on-Remove-Button-Next-in-Settings-of-Facebook-for-iOS.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 Close
 
  If unlinking the apps and websites doesn't solve the problem, your browser might be to blame.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Rule Out Browser Issues
 
  Before rolling up your sleeves and applying browser-related fixes, ensure the browser is actually causing the problem. To confirm this, switch the browser and run the same Facebook account there.
@@ -153,15 +157,13 @@ Close
 * Clear your browser's cache and cookies to ensure the accumulated data in the cache isn't interfering. If you're unfamiliar with the process, you can check out our guides that explain the[process of clearing cookies and cache in Edge](https://www.makeuseof.com/how-to-clear-microsoft-edge-cache-browsing-data/) ,[Chrome](https://www.makeuseof.com/how-to-clear-cookies-cache-in-chrome/) , and[Firefox](https://www.makeuseof.com/clear-cache-firefox/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Clean the Cache of Your App
 
  For the same reason we cleared the cache on a browser to eliminate chances of cached data causing the problem, you should also clear your app cache. Check out our guide explaining[how to clear the app cache in Android](https://www.makeuseof.com/tag/clear-cache-android/) and[iOS](https://www.makeuseof.com/tag/how-to-clear-cache-on-iphone-ipad/) if you've never done so before.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Report the Issue to Facebook Support
 
  When you've tried all other options to fix the issue at hand, and nothing seems to work, you should report the problem to Facebook. Here is how to do it:
@@ -171,34 +173,31 @@ Close
 3. Select**Help & support** from the menu.  
 ![Opening Help and Support Option from the Menu by Clicking on Profile Icon on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-7-Opening-Help-and-Support-Option-from-the-Menu-by-Clicking-on-Profile-Icon-on-Facebook.jpg)
 4. Click on**Report a problem** .
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 5. Choose**Something went wrong** in the menu.  
 ![Choosing Something Went Wrong Option by Clicking on Report a Problem Button on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-8-Choosing-Something-Went-Wrong-Option-by-Clicking-on-Report-a-Problem-Button-on-Facebook.jpg)
 6. Fill out the required information and click**Submit** .  
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Clicking on Submit Button after Reporting a Problem on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-9-Clicking-on-Submit-Button-after-Reporting-a-Problem-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Don't Let Facebook Log You Out at Random
 
  Hopefully, the fixes covered in the article will help you determine why Facebook logs you out randomly and fix it. If all else fails, report the problem to Facebook.
 
  Like Facebook may log you out without apparent reason, Facebook Messenger may also suddenly stop working.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +206,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unleashing-voice-windows-10-audio-basics/"><u>[New] 2024 Approved Unleashing Voice Windows 10 Audio Basics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-dominate-youtube-with-effective-content-strategies/"><u>[New] In 2024, Dominate YouTube with Effective Content Strategies</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-average-podcast-income-whats-the-payoff/"><u>[Updated] 2024 Approved Average Podcast Income What's the Payoff?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-wealth-accumulation-mr-beasts-journey/"><u>2024 Approved Wealth Accumulation Mr. Beast's Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-no-cost-strategies-for-managing-fb-post-timing/"><u>5 No-Cost Strategies for Managing FB Post Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-essential-elements-to-feature-on-your-snapshots/"><u>6 Essential Elements to Feature on Your Snapshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-engaging-fb-polls-for-pages-and-groups/"><u>Building Engaging FB Polls for Pages & Groups</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-the-ultimate-study-tool-for-note-taking-pros/"><u>ChatGPT: The Ultimate Study Tool for Note Taking Pros</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145420800-deliberations-continue-expected-decision-from-platforms-oversight-board/"><u>Deliberations Continue: Expected Decision From Platform’s Oversight Board</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/october-release-for-new-intelligent-features-in-apple-products-insights-coverage/"><u>October Release for New 'Intelligent' Features in Apple Products - Insights Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153152787-privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages.</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-6-common-pitfalls-when-chatgpt-might-mislead-your-inquiries/"><u>Unveiling 6 Common Pitfalls: When ChatGPT Might Mislead Your Inquiries</u></a></li>
+</ul></div>
 

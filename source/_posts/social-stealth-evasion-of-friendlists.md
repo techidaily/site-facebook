@@ -1,7 +1,7 @@
 ---
 title: "Social Stealth: Evasion of Friendlists"
-date: 2024-10-19T23:21:10.838Z
-updated: 2024-10-20T17:04:51.486Z
+date: 2024-12-11T19:22:52.537Z
+updated: 2024-12-12T17:14:55.563Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Who Can See Your Facebook Friends?
 
  At the moment, there are two likely scenarios: either everyone can see your friends list or only your friends can see your friends list. No matter who can or can't see your full friends list, though, anyone can see if they have mutual friends with you and also see who they are. This is possible even if they're not your friends. In the example below, you can see we have 23 mutual friends in the grey text under the profile name.
@@ -32,16 +36,13 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Hide Your Facebook Friends List
 
  You can hide your friends list either from the Facebook app or on the desktop website. Either way, you will be able to change the same setting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hiding Your Friends List on Mobile
 
@@ -59,31 +60,15 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
-
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -101,22 +86,23 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
  On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Gaining Privacy on Facebook
 
@@ -139,17 +125,24 @@ The steps are similar on Facebook's desktop website.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-vlc-video-recording-performance-study/"><u>[New] VLC Video Recording Performance Study</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-beyond-obs-streamer-friendly-broadcast-software/"><u>[Updated] In 2024, Beyond OBS Streamer-Friendly Broadcast Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-optimize-accessibility-top-free-speech-conversion-tools-for-macos-for-2024/"><u>[Updated] Optimize Accessibility Top Free Speech Conversion Tools for MacOS for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-social-space-adding-users-to-your-private-facebook-circle/"><u>Secure Your Social Space: Adding Users to Your Private Facebook Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/socializing-made-simple-add-new-people-on-facebook-messenger/"><u>Socializing Made Simple: Add New People on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-bitter-truth-unraveling-five-key-failures-in-facebooks-user-journey/"><u>The Bitter Truth: Unraveling Five Key Failures in Facebook’s User Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-joy-of-authenticity-why-leave-facebook-behind/"><u>The Joy of Authenticity: Why Leave Facebook Behind</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/troubleshooting-common-js-issues-in-your-discord-bot-code/"><u>Troubleshooting Common JS Issues in Your Discord Bot Code</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/youtubes-timeline-with-our-4-key-methods/"><u>Undo YouTube's Timeline with Our 4 Key Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-the-social-media-titans-temporarily-tremble/"><u>Why Did the Social Media Titans Temporarily Tremble?</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/dva-sposobov-klonirovaniya-dannyh-s-starogo-pk-na-sovremennoe-ustrojstvo/"><u>Два Способов Клонирования Данных С Старого ПК На Современное Устройство</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-skyward-savings-for-your-snaps-the-best-free-to-premium-cloud-storages/"><u>[New] In 2024, Skyward Savings for Your Snaps The Best Free to Premium Cloud Storages</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-screen-sanctuary-your-haven-of-a-thousand-games-for-2024/"><u>[Updated] Screen Sanctuary Your Haven of a Thousand Games for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/audio-essentials-latest-speakers-for-2024/"><u>Audio Essentials Latest Speakers for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/creative-commons-chill-vibes/"><u>Creative Commons Chill Vibes</u></a></li>
+<li><a href="https://win-docs.techidaily.com/discovering-lost-documents-a-step-by-step-guide-to-retrieve-accidentally-deleted-files-in-windows-1110/"><u>Discovering Lost Documents: A Step-by-Step Guide to Retrieve Accidentally Deleted Files in Windows 11/10</u></a></li>
+<li><a href="https://facebook.techidaily.com/encouraging-insightful-dialogue-facebooks-experimental-prompt/"><u>Encouraging Insightful Dialogue: Facebook's Experimental Prompt</u></a></li>
+<li><a href="https://facebook.techidaily.com/hiding-like-counts-the-new-facebook-and-instagram-trend/"><u>Hiding Like Counts: The New Facebook & Instagram Trend</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>How to Fix when Apple Account Locked On Apple iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-hevc-h-265-on-razr-40-ultra-is-it-possible-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Play HEVC H.265 on Razr 40 Ultra, is it possible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tip-recent-fb-video-discovery/"><u>Quick Tip: Recent FB Video Discovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/seven-myths-about-the-metaverse-fact-checked/"><u>Seven Myths About the Metaverse, Fact-Checked</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-journey-leadership-at-facebook/"><u>Sheryl's Journey: Leadership at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-anatomy-revealed-through-facebooks-openness-portal/"><u>Social Network Anatomy Revealed Through Facebook's Openness Portal</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/speedy-and-straightforward-tricks-to-correct-malfunctioning-pc-drivers/"><u>Speedy and Straightforward Tricks to Correct Malfunctioning PC Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-method-to-delete-a-fb-group/"><u>The Step-by-Step Method to Delete a FB Group</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-dji-mavic-air-2s-analysis-a-comprehensive-guide/"><u>Top DJI Mavic Air 2S Analysis: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-shifted-semantics-in-facebooks-changed-page-labels/"><u>Unraveling the Shifted Semantics in Facebook's Changed Page Labels</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2593838-9781683250296-virgo/"><u>Virgo | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/web-wanderer-writes-facebook-page-and-group-link-secrets/"><u>Web Wanderer' Writes: Facebook Page & Group Link Secrets</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Checklist for Safe Transactions on FB Marketplace
-date: 2024-08-28T03:09:19.386Z
-updated: 2024-08-29T03:09:19.386Z
+date: 2024-12-07T22:22:30.809Z
+updated: 2024-12-12T16:22:19.231Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,10 @@ To check a seller's profile on Facebook Marketplace:
 
 ![Screenshot of Facebook Marketplace seller profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/Screenshot-Facebook-Marketplace-Seller-Profile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If the buyer or seller you're dealing with has an established profile with lots of friends, this means that they probably didn't make a "burner" profile for selling or buying items. It will also be comforting if the buyer or seller has mutual friends in common with you.
 
 ## 3\. Discuss the Details of the Transaction Before Meeting
@@ -53,12 +57,13 @@ To check a seller's profile on Facebook Marketplace:
 
  We also suggest checking their profile for a picture of them so that you know what they look like and can spot them in a crowd.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## 4\. Do a Reverse Image Search of the Item Listed
 
 ![person browsing on google chrome](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/person-browsing-on-google-chrome.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Perhaps the easiest way to verify whether the seller is genuine is to do a reverse image search. If you're on desktop, right-click on the photo and select**Search the web for image** from the menu; you can also drag and drop the image onto the Google Search page. If you're on mobile, open the Google app, tap Google Lens in the search bar, and select the photos.
 
@@ -74,35 +79,19 @@ To check a seller's profile on Facebook Marketplace:
 
  You can either use cash or complete an e-transfer at the time of the meeting. Make sure you only walk away once the payment is complete. Meeting the person in public and conducting the sale on the spot ensures a smooth and equal transaction for everyone involved.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Consider Bringing a Friend With You
 
 ![four people sitting in a group on a ledge talking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/MUO--four-people-in-a-group.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
  When you're meeting someone to buy or sell an item, especially if it's a bigger ticket item, we would suggest bringing a friend or a family member with you.
 
  Bringing a friend with you to buy or sell on Facebook Marketplace has a few benefits. If the item you are selling or buying is cumbersome or large, you will have help carrying it. This will reduce your chances of injury.
 
  If you are carrying a large amount of cash for buying, or an expensive item, having a friend there will lower the risk of anything nefarious happening during the transaction. Not only will having a friend there help keep you safe, but they will also be a witness for you if something does go awry during the exchange.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Meet in a Public Place
 
@@ -112,27 +101,30 @@ Key features:
 
  If you are concerned about your personal safety, sometimes a device can help foster confidence. This list of the[best personal safety devices](https://www.makeuseof.com/tag/best-personal-safety-alarms/) can give you some ideas for protective devices.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Trust Your Instincts
 
 ![person standing on boardwalk](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/Person-Standing-Alone-On-Boardwalk.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  When you are conducting business on Facebook Marketplace, always remember that this person is a stranger to you. Even if you have mutual friends, you do not know this person and should avoid sending money or items to them.
 
  If you are selling or buying an item from someone and something doesn't feel right, do not meet with them. Cancel the meeting and find another buyer or seller. Above all, you should trust your instincts because if something doesn't feel right, you're probably feeling this way for a reason.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Don't Divulge Personal Information
 
 ![house number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/Black-House-Number-Fourty-Four.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  This is a one-time transaction, you do not owe the buyer or seller any answers to personal questions they may ask. Questions like whether you have a spouse, your working hours or place of employment, and where you live are inappropriate in most cases.
 
  If someone is asking you these types of questions, protect yourself and refuse to answer them. It is probably just curiosity—but in some cases, criminals will go as far as conducting a valid transaction to gain access to your home or personal information.
@@ -143,14 +135,11 @@ Key features:
 
  If you put your personal safety first, conducting the transaction will be a smooth and worthwhile process for both parties.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +148,22 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/accessing-your-previous-facebook-ties/"><u>Accessing Your Previous Facebook Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-facebooks-date-of-birth/"><u>Altering Facebook's Date of Birth</u></a></li>
+<li><a href="https://games-able.techidaily.com/audio-integration-playstation-5-plus-wireless-headphones/"><u>Audio Integration: PlayStation 5 + Wireless Headphones</u></a></li>
+<li><a href="https://facebook.techidaily.com/beat-the-system-how-to-dodge-facebooks-trackers/"><u>Beat the System: How to Dodge Facebook’s Trackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-likes-and-shares-unraveling-facebook-fact-from-fiction/"><u>Beyond the Likes and Shares: Unraveling Facebook Fact From Fiction</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-selection-of-cost-effective-social-media-tools/"><u>Cutting-Edge Selection of Cost-Effective Social Media Tools</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effective-solutions-to-get-your-amd-rx-560-graphics-card-running-flawlessly-on-various-windows-editions/"><u>Effective Solutions to Get Your AMD RX 560 Graphics Card Running Flawlessly on Various Windows Editions</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-honor-100-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Honor 100 Devices | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/ifa-2023-discover-tecnos-streamlined-phones/"><u>IFA 2023: Discover Tecno's Streamlined Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-3-ways-to-unlock-your-apple-iphone-12-mini-for-free-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Your Apple iPhone 12 mini for Free</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-g2-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo G2 To Phone | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-gionee-f3-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Gionee F3 Pro Device</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153363520-speak-like-a-socialite-learn-these-30-trending-acronyms-today/"><u>Speak Like a Socialite: Learn These 30 Trending Acronyms Today!</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-time-dispute-unite-divergent-seconds/"><u>Windows Time Dispute: Unite Divergent Seconds</u></a></li>
+</ul></div>
 

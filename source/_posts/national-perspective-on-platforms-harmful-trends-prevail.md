@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-12-05T23:27:17.919Z
-updated: 2024-12-06T23:45:44.594Z
+date: 2024-12-08T18:32:24.337Z
+updated: 2024-12-12T17:57:24.050Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## US Adults Use Social Media Despite Believing It Divides People
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -67,13 +67,13 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -99,14 +99,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-gif-making-software-showdown/"><u>[New] The Ultimate GIF Making Software Showdown</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-a-guide-to-designing-spectacular-photo-tileworks-for-2024/"><u>[Updated] A Guide to Designing Spectacular Photo Tileworks for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-diminishing-social-circle/"><u>A Closer Look at Facebook's Diminishing Social Circle</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/jujutsu-kaisen-tiktok-a-step-by-step-guide-for-2024/"><u>Jujutsu Kaisen TikTok A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/securing-and-storing-visual-previews-within-your-word-processed-textual-documents/"><u>Securing and Storing Visual Previews Within Your Word Processed Textual Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/tracing-sheryls-footsteps-in-the-tech-industry/"><u>Tracing Sheryl’s Footsteps in the Tech Industry</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-social-behaviors-in-online-network-invitations/"><u>Understanding Social Behaviors in Online Network Invitations</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthed-tech-moments-youve-overlooked-top-4-must-know/"><u>Unearthed Tech Moments You've Overlooked - Top 4 Must-Know!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-gaming-memories-made-easy-with-fraps-for-2024/"><u>[New] Gaming Memories Made Easy with Fraps for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-blending-music-into-your-ig-visuals/"><u>[Updated] The Art of Blending Music Into Your IG Visuals</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-top-picks-best-free-cross-platform-video-communication-tools/"><u>2024 Approved Top Picks Best Free Cross-Platform Video Communication Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/artificial-intelligence-and-job-uncertainty/"><u>Artificial Intelligence and Job Uncertainty</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-under-fire-protests-lead-to-decrease-in-app-ratings/"><u>Facebook Under Fire: Protests Lead to Decrease in App Ratings</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fix-your-logitech-g430-mic-handy-solutions-for-sound-problems/"><u>Fix Your Logitech G430 Mic: Handy Solutions For Sound Problems</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-correct-call-of-duty-world-at-war-error-code-4220-instantly-step-by-step-guide/"><u>How to Correct Call of Duty: World at War Error Code 4220 Instantly - Step by Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-professional-engagement-and-growth/"><u>Leveraging Facebook for Professional Engagement & Growth</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/playing-in-harmony-tips-for-group-listening-on-spotify-with-close-acquaintances/"><u>Playing in Harmony: Tips for Group Listening on Spotify with Close Acquaintances</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-evade-these-3-spying-apps/"><u>Privacy First: Evade These 3 Spying Apps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-solutions-for-repairing-windows-1110-operating-systems/"><u>Step-by-Step Solutions for Repairing Windows 11/10 Operating Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebook-visibility-for-privacy/"><u>Tailoring Facebook Visibility for Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-producing-high-impact-videos-for-your-fans-on-facebook/"><u>The Complete Guide to Producing High-Impact Videos for Your Fans on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-social-media-experience-with-smart-photo-descriptions/"><u>Transforming Social Media Experience with Smart Photo Descriptions</u></a></li>
 </ul></div>
 

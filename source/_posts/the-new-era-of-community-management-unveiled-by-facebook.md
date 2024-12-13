@@ -1,7 +1,7 @@
 ---
 title: The New Era of Community Management Unveiled by Facebook
-date: 2024-12-05T20:54:06.399Z
-updated: 2024-12-06T23:25:40.063Z
+date: 2024-12-07T16:17:28.004Z
+updated: 2024-12-12T19:26:38.268Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Launches New Admin Tools to Moderate Groups
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -83,21 +83,22 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-vr-game-guide-top-8-on-oculus-for-2024/"><u>[Updated] Essential VR Game Guide Top 8 on Oculus for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-full-application-evaluation-through-az-video-logger-for-2024/"><u>[Updated] Full Application Evaluation Through AZ Video Logger for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-illuminating-your-android-videos-a-quick-guide/"><u>[Updated] In 2024, Illuminating Your Android Videos A Quick Guide</u></a></li>
-<li><a href="https://fox-within.techidaily.com/aomei-centralized/"><u>AOMEI Centralized スケジュールドバックアップの利点と使い方</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/boosting-website-rankings-using-powerful-tools-from-cookiebot/"><u>Boosting Website Rankings Using Powerful Tools From Cookiebot</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/enhancing-productivity-seamlessly-discover-how-onlyoffice-docspace-leverages-chatgpt/"><u>Enhancing Productivity Seamlessly: Discover How ONLYOFFICE DocSpace Leverages ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/evade-conversation-trails-with-facebooks-feature/"><u>Evade Conversation Trails with Facebook's Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-trump-returns/"><u>Facebook and Instagram, Trump Returns?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-and-why-telegram-benefited-when-facebook-went-offline-for-six-hours/"><u>How and Why Telegram Benefited When Facebook Went Offline for Six Hours</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-elite-vs-the-titans-of-twitter-blue-and-meta-gold/"><u>Identity Elite: Vs. The Titans of Twitter Blue & Meta Gold</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-honor-70-lite-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Honor 70 Lite 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-scrutinizing-the-new-parrot-ar-drone-edition/"><u>In 2024, Scrutinizing the New Parrot AR Drone Edition</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/revitalize-your-pc-safely-comprehensive-instructions-for-reimaging-on-windows-1110-systems/"><u>Revitalize Your PC Safely: Comprehensive Instructions for Reimaging on Windows 11/10 Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-fourth-wave-of-connection-how-social-media-overhauled-us/"><u>The Fourth Wave of Connection: How Social Media Overhauled Us</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-common-marketsploits-on-facebook-preventative-measures/"><u>Unmasking Common Marketsploits on Facebook: Preventative Measures</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-masterclass-in-cinematic-viewing-youtube-edition/"><u>[Updated] 2024 Approved Masterclass in Cinematic Viewing - YouTube Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-safeguarding-sound-quality-while-speeding-up-tracks/"><u>[Updated] 2024 Approved Safeguarding Sound Quality While Speeding Up Tracks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-noworrycapture-quick-and-easy-win11-recordings/"><u>[Updated] In 2024, NoWorryCapture - Quick and Easy Win11 Recordings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlock-clear-shots-instagram-storys-in-and-out-tactics/"><u>[Updated] Unlock Clear Shots Instagram Story's In and Out Tactics</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-speech-to-text-magic-free-edition/"><u>2024 Approved Speech-to-Text Magic Free Edition</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streamline-music-craft-with-our-high-quality-beat-detection-software/"><u>2024 Approved Streamline Music Craft with Our High-Quality Beat Detection Software</u></a></li>
+<li><a href="https://games-able.techidaily.com/going-deeper-how-accessory-improves-play/"><u>Going Deeper: How Accessory Improves Play</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-xiaomi-redmi-note-13-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Xiaomi Redmi Note 13 Pro 5G Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindful-metrics-assessing-your-online-influence/"><u>Mindful Metrics: Assessing Your Online Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/missing-big-picture-in-tech-spotlight-on-4-unheralded-stories/"><u>Missing Big Picture in Tech: Spotlight on 4 Unheralded Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/patterns-in-internet-account-compromises/"><u>Patterns in Internet Account Compromises</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-shift-in-social-media-power-dynamics-as-fb-could-divest-gifpedia/"><u>Potential Shift in Social Media Power Dynamics as FB Could Divest Gifpedia</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-service-selective-lite-android-solutions/"><u>Speedy Service: Selective Lite Android Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-elite-deceptive-networks-in-sight/"><u>Steer Clear: Elite Deceptive Networks in Sight</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-an-era-instas-chats-discontinued/"><u>The End of an Era: Insta’s Chats Discontinued</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-secrets-of-building-bonds-through-facebooks-new-feature/"><u>Uncovering the Secrets of Building Bonds Through Facebook’s New Feature</u></a></li>
 </ul></div>
 

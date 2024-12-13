@@ -1,7 +1,7 @@
 ---
 title: "Not All Black & White: Understanding Facebook's Disclosures"
-date: 2024-08-28T03:09:20.588Z
-updated: 2024-08-29T03:09:20.588Z
+date: 2024-12-08T22:35:34.111Z
+updated: 2024-12-12T16:09:20.064Z
 tags:
   - facebook
 categories:
@@ -37,9 +37,17 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 
 ![Facebook Misinformation Warning](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Misinformation-Warning.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credits: Facebook
 
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
@@ -56,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -75,9 +84,9 @@ thumbnail: https://thmb.techidaily.com/c8cc0b50d6a862024b28911d2e2409173d05c3a9f
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credits: Anthony Quintano via Flickr
 
  Let's read that again. Zuckerberg claims 94 percent of the hate speech it finds**before a human reports it** is removed, and the report says less than five percent of**all hate speech** gets removed. Did you catch that? They're talking about two different things!
@@ -87,9 +96,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -98,14 +107,11 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +120,20 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-digital-media-visionaries-comprehensive-top-5-directory/"><u>[New] In 2024, Digital Media Visionaries Comprehensive Top 5 Directory</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unlock-creative-potential-macs-top-free-drawing-tools/"><u>[New] In 2024, Unlock Creative Potential Mac's Top Free Drawing Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-tutorial-for-effective-telegram-usage/"><u>2024 Approved Expert Tutorial for Effective Telegram Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-tips-to-make-a-great-profile-picture-for-more-likes-and-followers/"><u>6 Tips to Make a Great Profile Picture for More Likes and Followers</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-methods-for-reacquiring-facebook-log-in-access/"><u>Alternative Methods for Reacquiring Facebook Log In Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistry-meets-economics-instagrams-enhanced-monetization-strategies/"><u>Artistry Meets Economics: Instagram's Enhanced Monetization Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-facebook-unveiling-the-visionary-identity-of-meta/"><u>Beyond 'Facebook': Unveiling the Visionary Identity of Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/breathe-life-into-your-stopped-facebook-activity/"><u>Breathe Life Into Your Stopped Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-virtual-deletions-ever-fully-erase-traces/"><u>Can Virtual Deletions Ever Fully Erase Traces?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-cultivate-creativity-10-inspiration-boosting-videos/"><u>In 2024, Cultivate Creativity 10 Inspiration-Boosting Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-sony-bdp-s6700-review/"><u>In 2024, Sony BDP-S6700 Review</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722976821209-instant-access-obtain-your-samsung-c460-printer-software-today/"><u>Instant Access: Obtain Your Samsung C460 Printer Software Today!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/strategies-for-securing-a-technology-position-at-google-insights-from-zdnet/"><u>Strategies for Securing a Technology Position at Google: Insights From ZDNet</u></a></li>
+</ul></div>
 

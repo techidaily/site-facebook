@@ -1,7 +1,7 @@
 ---
 title: "Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls."
-date: 2024-08-28T03:12:16.657Z
-updated: 2024-08-29T03:12:16.657Z
+date: 2024-12-06T23:15:42.660Z
+updated: 2024-12-12T16:04:49.902Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9c
 ## Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls
 
  Facebook is expanding end-to-end encryption to Messenger voice and video calls, as well as direct messages (DMs) on Instagram. Turning on the feature will let users communicate securely, whether over calls or text messages.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Brings End-to-End Encryption to More Services
 
@@ -33,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9c
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -41,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9c
 
  That said, Facebook doesn't have the best reputation when it comes to security, and its expansion of end-to-end encryption doesn't necessarily make its apps more appealing security-wise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -57,22 +62,19 @@ thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-reanimated-warfare-gameplay-excellence-in-the-undead-genre/"><u>[New] Reanimated Warfare Gameplay Excellence in the Undead Genre</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-optimal-zoom-features-in-google-meet-webinars/"><u>[New] Unlocking Optimal Zoom Features in Google Meet Webinars</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-hunters-top-5-video-tools-of-today/"><u>[Updated] Hunters' Top 5 Video Tools of Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-we-blame-technology-for-personalized-marketing-prowess/"><u>Can We Blame Technology for Personalized Marketing Prowess?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-attract-candidates-posting-job-ads-on-facebook/"><u>How to Attract Candidates: Posting Job Ads on Facebook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/simple-steps-setting-up-auto-backup-from-windows-11-to-wd-my-cloud/"><u>Simple Steps: Setting Up Auto Backup From Windows 11 to WD My Cloud</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-engaging-posts-with-ripl/"><u>The Ultimate Guide to Engaging Posts with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/why-might-a-windows-11-computer-begin-to-boot-automatically/"><u>Why Might a Windows 11 Computer Begin to Boot Automatically?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->

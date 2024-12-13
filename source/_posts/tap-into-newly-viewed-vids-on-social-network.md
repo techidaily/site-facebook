@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2024-11-23T10:37:59.968Z
-updated: 2024-11-27T06:11:30.227Z
+date: 2024-12-05T16:25:08.130Z
+updated: 2024-12-12T18:43:46.489Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on the Web
@@ -41,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 4. Select the**Videos you've watched** option.  
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
@@ -52,6 +48,10 @@ That's it. Here you will find all the recently watched videos.
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -72,16 +72,16 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -104,7 +104,7 @@ Close
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -133,22 +133,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-elevate-your-online-sound-experience-with-these-5-steps/"><u>[Updated] In 2024, Elevate Your Online Sound Experience with These 5 Steps</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-15-plus-activation-lock-with-a-professional-tool-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 15 Plus activation lock with a professional tool</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dont-miss-out-on-amazing-discounts-oneplus-dream-offers-today-only/"><u>Don't Miss Out on Amazing Discounts - OnePlus' Dream Offers Today Only!</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enhancing-video-top-10-text-techniques/"><u>Enhancing Video Top 10 Text Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-mechanism-behind-facebook-whitelist/"><u>Exploring the Mechanism Behind Facebook Whitelist</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-assistance-hub-your-guide-to-usage/"><u>Facebook Assistance Hub: Your Guide to Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-digital-presence-practical-steps-to-add-2fa-to-gmail-and-outlook-accounts/"><u>Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-honor-x8b-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Honor X8b Data? | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-top-techniques-live-streaming-games-via-obs/"><u>In 2024, Top Techniques Live-Streaming Games via OBS</u></a></li>
-<li><a href="https://facebook.techidaily.com/intrigued-by-security-facebookers-buy-300-tech-for-account-recovery/"><u>Intrigued by Security? Facebookers Buy $300 Tech for Account Recovery</u></a></li>
-<li><a href="https://driver-install.techidaily.com/reboot-and-rollback-a-step-by-step-for-network-drivers/"><u>Reboot & Rollback: A Step-by-Step for Network Drivers</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethinking-whispers-insights-on-fb-investigations/"><u>Rethinking Whispers: Insights on FB Investigations</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-clear-meta-on-stopping-online-sensitive-pics/"><u>Steering Clear: Meta on Stopping Online Sensitive Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/three-dangers-of-metas-social-power/"><u>Three Dangers of Meta's Social Power</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-historical-facebook-bonds/"><u>Uncovering Historical Facebook Bonds</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/windows-movie-maker-win1110/"><u>Windows Movie Maker 在 Win11/10 系统中修复故障 - 解决无声音和其他问题</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-expert-insights-into-iptv-stream-logging/"><u>[New] 2024 Approved Expert Insights Into IPTV Stream Logging</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-documenting-xbox-gaming-tips-and-tricks-for-2024/"><u>[New] Documenting Xbox Gaming Tips & Tricks for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-become-a-streaming-star-utilizing-obs-capabilities/"><u>2024 Approved Become a Streaming Star Utilizing OBS Capabilities</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/choose-your-arena-top-platforms-without-cross-play-in-apex-legends-for-2024/"><u>Choose Your Arena Top Platforms Without Cross-Play in Apex Legends for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://extra-information.techidaily.com/masterclass-enhancing-live-streams-with-360-cameras/"><u>Masterclass Enhancing Live Streams with 360° Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/role-playing-realms-vintage-versus-variant-forms-for-2024/"><u>Role-Playing Realms Vintage Versus Variant Forms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-effortless-changes-to-boost-your-facebook-usage/"><u>Top 10 Effortless Changes to Boost Your Facebook Usage</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-making-your-usb-flash-drive-detectable-again/"><u>Troubleshooting Guide: Making Your USB Flash Drive Detectable Again</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-guide-transferring-files-from-your-printer-to-pc/"><u>Ultimate Guide: Transferring Files From Your Printer to PC</u></a></li>
+<li><a href="https://howto.techidaily.com/zte-nubia-z60-ultra-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>ZTE Nubia Z60 Ultra Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
 </ul></div>
 

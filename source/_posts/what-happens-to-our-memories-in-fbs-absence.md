@@ -1,7 +1,7 @@
 ---
 title: What Happens to Our Memories in FB's Absence?
-date: 2024-08-28T03:07:45.787Z
-updated: 2024-08-29T03:07:45.787Z
+date: 2024-12-10T18:25:44.860Z
+updated: 2024-12-12T20:27:33.945Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  But what if, for some crazy reason, Facebook ceases to exist? What would happen to all your personal data stored both on your public profile and in the company's servers? Let's take a look at what happened to Myspace and see if Facebook will suffer the same fate.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Happened to Your Myspace Data?
 
  For anyone old enough to use a computer between 2005 and 2008, you've probably heard of Myspace. Although that social media platform was short-lived, it was all the rage until Facebook surpassed it as everyone's preferred platform.
@@ -35,9 +39,17 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  Since Myspace isn't the large company that it was before Facebook overtook it in 2008, they might not have thought it was worth spending the resources to ensure the integrity of their files.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Facebook Would Probably Do
 
 ![laptop with facebook icon on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/laptop-with-facebook-icon-on-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When considering what might happen to your Facebook data if the platform didn't exist anymore, it's important to think about what happens to your data right now if you deactivate or delete your account.
 
@@ -55,16 +67,14 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  But if Facebook ever ceases to exist completely, your data will still likely be on the platform (whether on a public website or saved in a private database) until you request to remove it. But really, what's the likelihood that Facebook will ever go away?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## Facebook Is Here to Stay
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Facebook is way larger than Myspace ever was and, because the company has done so much to stay relevant, it's probably here to stay. When it launched in 2004, Facebook was just a sort of private online directory for Harvard College.
 
  However, in the years since then, the company has expanded into a global social media platform. It has also since acquired several other services like Instagram, WhatsApp, and Giphy. They then eventually rebranded themselves as Meta, a massive media conglomerate with a focus on expanding the[metaverse](https://www.makeuseof.com/what-is-the-metaverse/) .
@@ -82,8 +92,9 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
  For example, you can find major businesses on the platform, interacting with their customers through it. You can also find marketplace and eCommerce solutions on both Facebook and Instagram—platforms that are both under the Meta umbrella.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your Data Keeps It Going
 
  If, by some chance, Facebook ever ceased to exist, maybe 10 or 20 years in the future, you'd probably have enough warning to log back into your account and save as many any precious memories as you want.
@@ -92,14 +103,11 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
 
  After all, Facebook wants to hold onto your data for as long as it can. Because even though the company is evolving beyond social media, it'll likely keep your data as it fuels its growth.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -108,4 +116,18 @@ thumbnail: https://thmb.techidaily.com/7ec641d0887205acbcfc6836f03618d0eee863811
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-easy-ways-to-transfer-photos-and-videos-from-an-iphone-to-a-pc/"><u>[New] In 2024, Easy Ways to Transfer Photos and Videos From an iPhone to a PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-ideas-the-best-12-websites-to-access-no-cost-photographic-treasures/"><u>[Updated] Innovative Ideas The Best 12 Websites to Access No-Cost Photographic Treasures</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-essential-steps-for-a-tidy-social-media-space/"><u>7 Essential Steps for a Tidy Social Media Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-quick-guide-showing-you-are-via-fbmessenger/"><u>A Quick Guide: Showing You Are via FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-visual-dictionary-understanding-online-social-symbolism/"><u>A Visual Dictionary: Understanding Online Social Symbolism</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bring-back-the-hourglass-fixes-for-missing-windows-server-time/"><u>Bring Back the Hourglass: Fixes for Missing Windows Server Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-stronger-teams-identifying-8-facebook-collaborative-traits/"><u>Building Stronger Teams: Identifying 8 Facebook Collaborative Traits</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-presence-over-permanence-quit-fb/"><u>Choosing Presence Over Permanence, Quit FB</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-xiaomi-redmi-k70-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Xiaomi Redmi K70</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premiere-your-stories-with-free-templates/"><u>In 2024, Premiere Your Stories with Free Templates</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/the-digital-age-of-parenting-managing-a-newborn-in-2009-with-blogging-tools-from-massmail/"><u>The Digital Age of Parenting: Managing a Newborn in 2009 with Blogging Tools From MassMail</u></a></li>
+</ul></div>
 

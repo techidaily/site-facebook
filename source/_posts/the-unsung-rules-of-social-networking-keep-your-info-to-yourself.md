@@ -1,7 +1,7 @@
 ---
 title: "The Unsung Rules of Social Networking: Keep Your Info to Yourself"
-date: 2024-11-24T05:44:03.895Z
-updated: 2024-11-27T00:50:23.024Z
+date: 2024-12-10T23:16:56.778Z
+updated: 2024-12-12T22:35:00.830Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -32,19 +36,11 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Location Data
 
@@ -82,10 +78,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -99,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
@@ -112,11 +104,19 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
  If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Privileged Inside Information
 
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
@@ -157,18 +157,16 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/evergreen-or-fading-away-debunking-facebooks-status/"><u>'Evergreen' Or 'Fading Away': Debunking Facebook's Status</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-crafting-an-eye-catching-discord-avatar-picture/"><u>[New] In 2024, Crafting an Eye-Catching Discord Avatar Picture</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-understanding-optimal-frames-per-second-in-cinema-slow-mo/"><u>[New] Understanding Optimal Frames Per Second in Cinema Slow-Mo</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-best-tools-full-sphere-filming-and-photography/"><u>[Updated] Best Tools Full Sphere Filming and Photography</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-serene-visual-narratives-for-bedtime/"><u>[Updated] Serene Visual Narratives for Bedtime</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/efficiently-navigating-x-10-beginners-tips-to-boost-your-presence/"><u>Efficiently Navigating X: 10 Beginners' Tips to Boost Your Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/hearing-through-conversations-facebooks-sound-features/"><u>Hearing Through Conversations: Facebook's Sound Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-spot-a-shadowy-facebook-profile-creator/"><u>How to Spot a Shadowy Facebook Profile Creator</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/losung-des-problems-unerwarteter-neustart-wahrend-der-windows-installation/"><u>Lösung Des Problems: Unerwarteter Neustart Während Der Windows-Installation</u></a></li>
-<li><a href="https://facebook.techidaily.com/most-user-friendly-platforms-for-elderly-community/"><u>Most User-Friendly Platforms For Elderly Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/peak-hours-for-social-media-engagement/"><u>Peak Hours for Social Media Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/user-experiences-the-top-5-facebook-failures/"><u>User Experiences: The Top 5 Facebook Failures</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-score-big-with-these-8-no-cost-3d-videos-apps-for-windows-and-mac-os/"><u>[Updated] Score Big with These 8 No-Cost 3D Videos Apps for Windows & Mac OS</u></a></li>
+<li><a href="https://driver-download.techidaily.com/best-gtx-1650-super-drivers-available-now-compatible-with-windows-1011-os/"><u>Best GTX 1650 Super Drivers Available Now - Compatible with Windows 10/11 OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/fraudsters-on-social-media-the-cloning-menace/"><u>Fraudsters on Social Media: The Cloning Menace</u></a></li>
+<li><a href="https://facebook.techidaily.com/fundamentals-of-hashtag-marketing-does-it-work-within-facebooks-social-fabric/"><u>Fundamentals of #Hashtag Marketing: Does It Work Within Facebook's Social Fabric?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-c55-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-public-user-references-on-facebook/"><u>How to Avoid Public User References on Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-notes-from-iphone-15-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Notes from iPhone 15 Pro Max? | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/notification-service-identifying-disappeared-messages-on-messenger/"><u>Notification Service: Identifying Disappeared Messages on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-identity-shift-with-an-updated-facebook-graphic/"><u>Simplifying Identity Shift with an Updated Facebook Graphic</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tailoring-hashtags-for-impactful-fb-brand-presence-for-2024/"><u>Tailoring Hashtags for Impactful FB Brand Presence for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96059415-9781786781970-the-anatomy-of-loneliness/"><u>The Anatomy of Loneliness | Free Book</u></a></li>
 </ul></div>
 

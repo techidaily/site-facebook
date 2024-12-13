@@ -1,7 +1,7 @@
 ---
 title: Evade Facebook Trackers with Our Secrets
-date: 2024-08-28T03:08:29.431Z
-updated: 2024-08-29T03:08:29.431Z
+date: 2024-12-06T23:26:32.155Z
+updated: 2024-12-12T16:52:33.269Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
@@ -40,17 +44,9 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
  As with Facebook tracking via the Like and Share social plug-ins, the crux of the issue is whether Facebook provides enough information to users to make informed decisions regarding data tracking.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Facebook Cookies
 
  Facebook places a cookie on your computer if you have a Facebook account. It also places a cookie on your computer if you use "Facebook Products, including our website or apps, or visit other websites and apps that use Facebook Products (including the Like button or other Facebook Technologies)."
@@ -73,20 +69,15 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
  The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated[Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
@@ -97,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -112,18 +107,12 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Change Facebook Ad Preferences
 
  One of the first things you can do is change your[Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
@@ -132,23 +121,14 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### uBlock Origin
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has[blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
@@ -160,6 +140,10 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
 
 **Download** : NoScript for[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Privacy Badger
 
@@ -173,14 +157,15 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### Epic Privacy Browser
 
 [Epic Privacy Browser](http://www.epicbrowser.com/) protects you from "600+ tracking attempts in an average browsing session" and can see lower-quoted prices for flights and other services. It also has an integrated VPN with servers in eight countries.
 
 **Download:** Epic Privacy Browser for[Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tor Browser
 
@@ -195,8 +180,9 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 **Download** : Brave for Windows (64-bit) | Windows (32-bit) | macOS | Linux
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Advertising Opt-Outs and Disabling Third-Party Cookies
 
 Users can opt out of behavioral advertising using a regional tool.
@@ -211,14 +197,15 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
 
 **Download:** Cookie AutoDelete for[Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Block Facebook Tracking?
 
@@ -234,14 +221,11 @@ Facebook tracking serves one purpose: Facebook advertising.
 
 Image Credit: Sabphoto/Shutterstock
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -250,4 +234,19 @@ Image Credit: Sabphoto/Shutterstock
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-complete-review-for-hero4-black/"><u>[Updated] Complete Review for Hero4 Black</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-green-grounds-a-selection-of-free-downloadable-videography-sets/"><u>[Updated] Green Grounds A Selection of Free, Downloadable Videography Sets</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fists-vs-followers-choosing-the-champion/"><u>2024 Approved Fists vs Followers Choosing the Champion</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-interaction-on-social-platforms-using-ripl/"><u>Boost Interaction on Social Platforms Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-message-privacy-facebooks-latest-features-enable-secure-chat-and-call-communications/"><u>Boosting Your Message Privacy: Facebook's Latest Features Enable Secure Chat and Call Communications.</u></a></li>
+<li><a href="https://facebook.techidaily.com/court-of-public-opinion-when-will-judgment-for-trump-ban-arrive/"><u>Court of Public Opinion: When Will Judgment for Trump Ban Arrive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-leadership-behind-facebook/"><u>Current Leadership Behind Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/facebook-vids-fast-track-to-mp4-conversion/"><u>Facebook Vids Fast Track to MP4 Conversion</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-elevating-your-music-mix-changing-volume-in-audacity/"><u>New Elevating Your Music Mix Changing Volume in Audacity</u></a></li>
+<li><a href="https://some-skills.techidaily.com/techniques-to-write-persuasive-videographic-dialogues-for-2024/"><u>Techniques to Write Persuasive Videographic Dialogues for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-invisible-hand-deciphering-chatgpts-language-algorithm/"><u>The Invisible Hand: Deciphering ChatGPT's Language Algorithm</u></a></li>
+</ul></div>
 

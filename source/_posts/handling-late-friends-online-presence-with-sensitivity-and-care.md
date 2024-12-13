@@ -1,7 +1,7 @@
 ---
 title: Handling Late Friends' Online Presence with Sensitivity and Care
-date: 2024-11-29T16:15:59.619Z
-updated: 2024-12-06T23:09:58.482Z
+date: 2024-12-06T22:13:13.370Z
+updated: 2024-12-12T17:40:16.944Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Memorialized
 
  A memorialized Facebook profile becomes a platform for people to remember their loved ones. You can share their memories and talk about them. Once an account is memorialized, it gets “Remembering” in front of the name.
@@ -40,10 +36,6 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
@@ -55,7 +47,7 @@ To get a Facebook account memorialized, follow these steps:
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Get a Facebook Account Removed After the Person Dies
@@ -63,7 +55,7 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
@@ -78,6 +70,10 @@ To get a Facebook account memorialized, follow these steps:
 ![Special request form for deceased persons account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Special-request-form-for-deceased-persons-account.jpg)
 2. In the**Full Name** section, enter your official credentials.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
 4. After that, enter the deceased person’s name as written on their Facebook profile. It can differ from the name mentioned on their death certificate. This is why Facebook recommends using your actual name when creating a profile.
 5. Copy the URL from their Facebook profile and paste it under the**Link (URL) to the Person's Profile** section. To copy a URL on mobile, go to the deceased person's**Profile** , tap the three dots, and under**Profile Link** , select**Copy Profile Link** .
@@ -85,6 +81,10 @@ To get a Facebook account memorialized, follow these steps:
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
@@ -96,7 +96,7 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -122,24 +122,17 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-from-unorganized-to-organized-music-youtubes-magic-for-2024/"><u>[Updated] From Unorganized to Organized Music Youtube's Magic for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-premiere-pro-know-how-optimizing-youtube-video-uploads/"><u>2024 Approved Premiere Pro Know-How Optimizing YouTube Video Uploads</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-benefits-of-creating-a-facebook-group/"><u>6 Benefits of Creating a Facebook Group</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-11107/"><u>動画を縦から横に変更するためのWindows 11・10・7対応手順集</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-facebooks-tactile-engagement-value/"><u>Assessing Facebook's Tactile Engagement Value</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/elite-discordian-companions-automation-for-2024/"><u>Elite Discordian Companions Automation for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-guide-to-budget-friendly-4k-cameras/"><u>In 2024, Ultimate Guide to Budget-Friendly 4K Cameras</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-home-network-integration-with-facebook-portals-features/"><u>Mastering Home Network Integration with Facebook Portals' Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-engagement-sharing-content-across-various-fb-groups/"><u>Maximizing Engagement: Sharing Content Across Various FB Groups</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide/"><u>New In 2024, Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-unleash-your-creativity-3-simple-ways-to-record-video-games/"><u>New Unleash Your Creativity 3 Simple Ways to Record Video Games</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/d-screen-and-upload-to-youtube-pc-mac-online/"><u>Record Screen and Upload to YouTube [PC, Mac, Online]</u></a></li>
-<li><a href="https://facebook.techidaily.com/reel-potential-a-solution-for-tiktok-and-facebook/"><u>Reel Potential: A Solution for TikTok and Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-posts-artificinas-tech-for-fb-image-descriptions/"><u>Revolutionizing Posts: Artificinas Tech for FB Image Descriptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giant-puts-5-million-into-journalist-platform-competition/"><u>Social Media Giant Puts $5 Million Into Journalist Platform Competition</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-tecno-spark-20-proplus-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Tecno Spark 20 Pro+ Phone Hassle-Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-fb-event-potential-creating-engaging-invites/"><u>Unlock FB Event Potential: Creating Engaging Invites</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-from-blurry-to-brilliant-top-video-resolution-enhancers-for-2024/"><u>Updated From Blurry to Brilliant Top Video Resolution Enhancers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-should-you-reimagine-your-fb-presence/"><u>When Should You Reimagine Your FB Presence?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-real-score-separating-authentic-from-artificial-subscribers-online/"><u>[New] The Real Score Separating Authentic From Artificial Subscribers Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-symphony-for-statuses-whatsapps-melodic-feature/"><u>[Updated] Symphony for Statuses WhatsApp's Melodic Feature</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-masterful-fb-marketing-essential-tips-for-every-business-level/"><u>2024 Approved Masterful FB Marketing Essential Tips for Every Business Level</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-boot-into-safe-mode-and-efficiently-uninstall-graphics-driver-on-windows-8/"><u>How To Boot Into Safe Mode & Efficiently Uninstall Graphics Driver On Windows 8</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-photos-secret-facebooks-privacy-haven/"><u>Making Your Photos Secret: Facebook's Privacy Haven</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/massive-cyber-monday-savings-up-to-450-off-the-versatile-13-samsung-galaxy-book2-360-notebook-tech-deals-by-zdnet/"><u>Massive Cyber Monday Savings - Up To $450 Off the Versatile 13 Samsung Galaxy Book2 360 Notebook | Tech Deals by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-discretion-in-social-media-building-an-exclusive-fb-group/"><u>Mastering Discretion in Social Media: Building an Exclusive FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-values-of-virtual-networks-top-9-findings/"><u>The Hidden Values of Virtual Networks: Top 9 Findings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-storm-ahead-for-facebook-news/"><u>The Storm Ahead for Facebook News</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-essential-crowdflower-tools-for-effective-marketing/"><u>Top 8 Essential CrowdFlower Tools for Effective Marketing</u></a></li>
 </ul></div>
 

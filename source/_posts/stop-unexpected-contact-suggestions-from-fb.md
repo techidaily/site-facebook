@@ -1,7 +1,7 @@
 ---
 title: Stop Unexpected Contact Suggestions From FB
-date: 2024-11-30T16:17:39.890Z
-updated: 2024-12-06T17:21:36.550Z
+date: 2024-12-07T17:24:53.695Z
+updated: 2024-12-12T16:29:19.030Z
 tags:
   - facebook
 categories:
@@ -20,19 +20,11 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Quick Links
 
 * [How Does Facebook Come Up With Its Friend Suggestions?](#how-does-facebook-come-up-with-its-friend-suggestions)
 * [How to Hide the "People You May Know" Feature on Facebook](#how-to-hide-the-quot-people-you-may-know-quot-feature-on-facebook)
 * [How to Turn off Facebook's "People You May Know" Alerts](#how-to-turn-off-facebook-39-s-quot-people-you-may-know-quot-alerts)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -43,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
  Many of us would rather scroll through our Facebook feeds without having to deal with friend suggestions. Luckily, you can hide the "People You May Know" feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Facebook Come Up With Its Friend Suggestions?
@@ -60,7 +52,15 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 
 ![android screenshot showing facebook newsfeed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-newsfeed.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -105,19 +105,19 @@ Close
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
 
@@ -136,21 +136,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-craft-your-contents-voyage-from-camera-to-instagram-tv-for-2024/"><u>[New] Craft Your Content's Voyage From Camera to Instagram TV for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagram-sounds-policy-explained/"><u>[Updated] In 2024, Instagram Sounds Policy Explained</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-vibrance-alignment-system/"><u>[Updated] In 2024, Vibrance Alignment System</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-premier-index-affordable-flexible-image-sources/"><u>[Updated] Premier Index Affordable, Flexible Image Sources</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-3-tactics-to-grab-twitter-gifs-on-pc/"><u>2024 Approved 3 Tactics to Grab Twitter GIFs on PC</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-turn-on-av1-settings-on-youtube-and-why-you-should-do-it/"><u>2024 Approved How to Turn on AV1 Settings on YouTube and Why You Should Do It</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For OnePlus 11 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/convert-your-gif-images-to-ebgp-format-for-free-using-the-movavi-online-tool/"><u>Convert Your GIF Images to ebGp Format for Free Using the Movavi Online Tool!</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-deception-eyes-that-see-beyond-screen-saves/"><u>Detecting Deception: Eyes that See Beyond Screen Saves</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-knowledge-on-new-facebook-ui-elements/"><u>Essential Knowledge on New Facebook UI Elements</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-a-low-profile-on-social-networks/"><u>Keeping a Low Profile on Social Networks</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/mastering-youtube-thumbnails-essential-dimensions-explored-for-2024/"><u>Mastering YouTube Thumbnails Essential Dimensions Explored for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-communication-via-facebooks-symbol-language/"><u>The Art of Communication via Facebook's Symbol Language</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-facebook-and-the-metaverse-connection/"><u>The Hidden Dynamics: Facebook and The Metaverse Connection</u></a></li>
-<li><a href="https://facebook.techidaily.com/weighing-in-should-you-utilize-meta-ai-on-social-networks/"><u>Weighing In: Should You Utilize Meta AI on Social Networks?</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-you-dont-see-can-hurt-your-online-presence-evasion-techniques/"><u>What You Don't See Can Hurt Your Online Presence - Evasion Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mp3-conversion-guide-best-free-apps-for-iphone-and-youtube/"><u>[New] 2024 Approved MP3 Conversion Guide Best Free Apps for iPhone & YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-tailoring-composite-results-blend-mode-proficiency/"><u>[Updated] 2024 Approved Tailoring Composite Results Blend Mode Proficiency</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypassing-unwanted-team-sign-in-prompts-on-windows-pcs/"><u>Bypassing Unwanted Team Sign-In Prompts on Windows PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-interfaces-fb-and-insta-finding-common-ground/"><u>Evolving Interfaces: FB and Insta Finding Common Ground</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-gatherings-on-social-media-pros-and-cons-for-expat-networking/"><u>Global Gatherings on Social Media: Pros & Cons for Expat Networking</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-s24plus-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy S24+ If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-comic-corner-best-funny-content-on-the-planet-web/"><u>In 2024, Comic Corner Best Funny Content on the Planet Web</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-realme-narzo-n55-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Realme Narzo N55 Pattern Lock Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-flip-how-to-optimize-your-social-media-friendships/"><u>Mastering the Flip: How to Optimize Your Social Media Friendships</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-love-your-facebook-dating-beginning/"><u>Navigating Social Media Love: Your Facebook Dating Beginning</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/next-level-tech-faceoff-analyzing-differences-between-samsungs-galaxy-s23-and-s21-ultra-devices/"><u>Next-Level Tech Faceoff: Analyzing Differences Between Samsung's Galaxy S23 and S21 Ultra Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-user-experience-or-compromising-on-data-protection-with-facebook-logins/"><u>Optimizing Your User Experience or Compromising on Data Protection? With Facebook Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-publish-multi-language-facebook-updates/"><u>Strategies to Publish Multi-Language Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/surviving-the-invisible-ban-a-shadowban-evasion-manual/"><u>Surviving the Invisible Ban: A Shadowban Evasion Manual</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/us-premiere-of-nickwatch-a-highlight-from-this-years-kids-choice-awards/"><u>US Premiere of NickWatch: A Highlight From This Year's Kids' Choice Awards</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-venues-and-veritable-voices-mastery-of-facebooks-new-group-management-strategies/"><u>Virtual Venues and Veritable Voices: Mastery of Facebook's New Group Management Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-embrace-online-conversation-9-advantages-to-consider/"><u>Why You Should Embrace Online Conversation: 9 Advantages to Consider</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvd-2/"><u>デジタル時代のDVDビューング: タブレット上で見るための2つの効果的な手法</u></a></li>
 </ul></div>
 

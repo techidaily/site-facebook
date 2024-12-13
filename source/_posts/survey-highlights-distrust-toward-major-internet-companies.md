@@ -1,7 +1,7 @@
 ---
 title: Survey Highlights Distrust Toward Major Internet Companies
-date: 2024-10-18T01:27:51.273Z
-updated: 2024-10-21T01:43:56.142Z
+date: 2024-12-09T16:37:14.475Z
+updated: 2024-12-12T20:36:03.538Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Does the Poll Say?
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
@@ -39,10 +47,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,22 +59,12 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
 
@@ -86,10 +81,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -117,20 +109,17 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-hidden-facets-of-instagram-story-consumption/"><u>[New] 2024 Approved The Hidden Facets of Instagram Story Consumption</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-expert-advice-for-staying-copyright-compliant-online/"><u>[Updated] 2024 Approved Expert Advice for Staying Copyright Compliant Online</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-viewer-count-challenge-worldwide-youtuber-leaders/"><u>[Updated] In 2024, The Ultimate Viewer Count Challenge Worldwide YouTuber Leaders</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-whats-winning-in-the-world-of-2023-tweets/"><u>[Updated] In 2024, What's Winning in the World of 2023 Tweets</u></a></li>
-<li><a href="https://facebook.techidaily.com/audio-free-video-free-ig-live-experience/"><u>Audio-Free, Video-Free IG Live Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-authenticity-with-a-cleaner-facebook-slate/"><u>Boost Authenticity with a Cleaner Facebook Slate</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-art-and-tech-with-meta-drops-social-platform-testing/"><u>Bridging Art & Tech with Meta Drops' Social Platform Testing</u></a></li>
-<li><a href="https://facebook.techidaily.com/get-more-clicks-on-fb-with-these-5-free-timetable-strategies/"><u>Get More Clicks on FB with These 5 Free Timetable Strategies</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/id-coolings-frozn-a620-pro-se-unveiled-elevating-cooling-solutions-to-new-heights-with-superior-value/"><u>ID-Cooling's Frozn A620 Pro SE Unveiled – Elevating Cooling Solutions to New Heights with Superior Value</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-hue-transformations-in-post-production/"><u>In 2024, Mastering Hue Transformations in Post-Production</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-stream-mastery-top-rated-tech-and-devices-guide-for-creators/"><u>In 2024, YouTube Stream Mastery Top-Rated Tech & Devices Guide for Creators</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/instant-downloads-get-your-lexar-usb-driver-now/"><u>Instant Downloads: Get Your Lexar USB Driver Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-minefield-of-facebooks-privacy-settings/"><u>Navigating the Minefield of Facebook's Privacy Settings</u></a></li>
-<li><a href="https://article-files.techidaily.com/pureimagezone-premium-tool-to-remove-backgrounds-for-2024/"><u>PureImageZone Premium Tool to Remove Backgrounds for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-15-creative-ventures-to-pursue-while-youre-heeding-stories/"><u>[New] 15 Creative Ventures to Pursue While You're Heeding Stories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-navigating-to-your-youtube-comments-easily/"><u>[New] In 2024, Navigating to Your YouTube Comments Easily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-sims-4-recording-techniques-for-2024/"><u>[New] Mastering Sims 4 Recording Techniques for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-media-brand-not-just-name/"><u>Elevate Your Social Media Brand, Not Just Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-life-on-facebook-protecting-you-from-unfamiliar-eyes/"><u>Hidden Life on Facebook: Protecting You From Unfamiliar Eyes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-iphone-13-pro-max-activation-lock-by-drfone-ios-unlock-ios-unlock/"><u>How to bypass iPhone 13 Pro Max activation lock</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-realme-gt-5-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Realme GT 5 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-secure-email-access-a-guide-to-efficiently-setting-up-2fa/"><u>Mastering Secure Email Access: A Guide to Efficiently Setting up 2FA</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/shaping-the-look-of-your-systems-point-of-interest/"><u>Shaping the Look of Your System's Point-of-Interest</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mlined-strategies-for-joining-your-youtube-videos-for-2024/"><u>Streamlined Strategies for Joining Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-foundations-of-hosting-virtual-festivals-on-fb/"><u>The Foundations of Hosting Virtual Festivals on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-viral-content-via-ripl/"><u>Unlocking the Secrets of Viral Content via Ripl</u></a></li>
 </ul></div>
 

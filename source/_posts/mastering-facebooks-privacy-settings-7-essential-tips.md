@@ -1,7 +1,7 @@
 ---
 title: "Mastering Facebook's Privacy Settings: 7 Essential Tips"
-date: 2024-08-28T03:11:08.743Z
-updated: 2024-08-29T03:11:08.743Z
+date: 2024-12-10T23:05:47.597Z
+updated: 2024-12-12T20:28:54.128Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/46ff833f8451570b0da1aae3b5e240178f5309a15
  Holding a Facebook account means your personal data is available to other users. Whether it's your pictures or general details, anyone on Facebook can access them. In this case, maintaining privacy on the app becomes more of a need than an option.
 
  Many people prefer limiting their Facebook accounts to protect their privacy. It would help if you took some extra steps to protect your private information on Facebook. Here are seven simple and effective ways to do so.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Avoid Befriending Strangers
 
@@ -62,13 +66,22 @@ Close
 ![Create a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Create-a-Facebook-Story.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Story privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Story-privacy.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  Facebook Stories expire after 24 hours, but since anyone can view them, it is better to change your settings to keep the Stories within your friend circle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Lock Your Facebook Profile
 
@@ -82,22 +95,21 @@ To lock your Facebook profile:
 
 ![Facebook-Menu-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Menu-on-mobile.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook-user-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-user-profile.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lock Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-Facebook-profile.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Lock-your-profile-on-Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-your-profile-on-Facebook.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Frequently Check Which Devices You Are Logged In On
 
@@ -110,28 +122,23 @@ Close
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Check where you are logged in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Check-where-you-are-logged-in.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  Only log in on the devices you use and log out from the rest. From the same screen, you can enable extra precautionary measures like[Facebook two-factor authorization](https://www.makeuseof.com/tag/how-to-use-facebook-login-approvals-code-generator-android/) or checking[if someone else is using your Facebook account](https://www.makeuseof.com/tag/check-accessing-facebook-account/) .
 
  Do not save your Facebook account information on devices you do not own to ensure that you are only logged in where necessary.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## 6\. Only Give Necessary Permissions to Facebook
 
  When you log into your Facebook account on a device, it requests permission to access your camera, location, and gallery. It helps Facebook collect data for marketing purposes.
@@ -152,16 +159,14 @@ Close
 
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Perform Privacy Checkups
 
  For those who feel unsatisfied even after taking all necessary protocols, Facebook offers its users the option to perform a complete privacy checkup of their account. You can review the changes and settings to ensure your account is safe and secure.
@@ -180,9 +185,6 @@ To conduct the Facebook privacy checkup:
 
 ![Take a privacy checkup on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Take-a-privacy-checkup-on-Facebook.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
 
 Close
@@ -195,14 +197,11 @@ Close
 
  Lastly, users must keep tabs on logged-in devices and perform regular privacy checks to ensure a safe experience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -211,4 +210,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-which-is-better-for-streamers-obs-studio-or-fraps-in-2024/"><u>[New] Which Is Better for Streamers, OBS Studio or Fraps, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-cinema-chronicles-the-quintessential-cinematographic-tips-for-24/"><u>2024 Approved Cinema Chronicles The Quintessential Cinematographic Tips for '24</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-making-a-splash-with-youtube-ad-banners-and-thumbnails/"><u>2024 Approved Making a Splash with YouTube Ad Banners & Thumbnails</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-master-selective-blurry-effects-in-digital-imagery/"><u>2024 Approved Master Selective Blurry Effects in Digital Imagery</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/amazon-prime-day-extravaganza-find-the-best-tech-bargains-in-june-2024-dont-miss-out/"><u>Amazon Prime Day Extravaganza: Find the Best Tech Bargains in June 2024 – Don’t Miss Out!</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-need-for-touch-in-modern-social-networks/"><u>Assessing the Need for Touch in Modern Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-content-for-success-across-diverse-fb-groups/"><u>Crafting Content for Success Across Diverse FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-to-the-chase-with-quick-effective-strategies-for-3-fb-tags/"><u>Cut to the Chase with Quick, Effective Strategies for 3 FB Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-cord-ending-online-friendships/"><u>Cutting the Cord: Ending Online Friendships</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-honor-play-40c-by-drfone-android/"><u>How to Show Wi-Fi Password on Honor Play 40C</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-bright-future-in-hd-a-fit-or-overstepping-for-hdr/"><u>In 2024, Bright Future in HD A Fit or Overstepping for HDR?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-navigating-iphone-backup-flawless-integration-with-snapchat-photos/"><u>In 2024, Navigating iPhone Backup Flawless Integration with Snapchat Photos</u></a></li>
+</ul></div>
 

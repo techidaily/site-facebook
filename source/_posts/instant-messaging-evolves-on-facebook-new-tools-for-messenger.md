@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2024-11-26T02:10:23.509Z
-updated: 2024-11-27T03:46:05.538Z
+date: 2024-12-11T21:28:10.318Z
+updated: 2024-12-13T00:13:53.212Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,21 +83,19 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-what-does-a-blue-icon-signify-on-fb-messenger/"><u>[New] What Does a Blue Icon Signify on FB Messenger?</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-getting-started-guide-to-instagrams-live-feature-for-2024/"><u>[Updated] Getting Started Guide to Instagram's Live Feature for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-screen-recorder-pro-for-windows-11-for-2024/"><u>[Updated] Screen Recorder Pro for Windows 11 for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-ocam-screen-recorder-download/"><u>2024 Approved OCam Screen Recorder Download</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Lava Blaze 2 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-lava-blaze-pro-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Lava Blaze Pro 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-post-to-multiple-facebook-groups/"><u>How to Post to Multiple Facebook Groups</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-f14-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy F14 5G to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/in-search-of-real-connections-heres-why-you-should-stop-using-facebook/"><u>In Search of Real Connections? Here's Why You Should Stop Using Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazons-legal-battles-with-facebook-groups-admins/"><u>In-Depth Look at Amazon’s Legal Battles With Facebook Groups Admins</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/recent-changes-in-googles-news-coverage-of-chatgpt-scandals-achieve-ultimate-mobile-connectivity-for-your-next-getaway/"><u>Recent Changes in Google's News Coverage of ChatGPT Scandals: Achieve Ultimate Mobile Connectivity for Your Next Getaway</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-vs-forum-the-rising-tide-of-engagement-platforms/"><u>Social vs Forum: The Rising Tide of Engagement Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/swipe-through-facebook-downtime-real-time-monitoring-tips/"><u>Swipe Through Facebook Downtime: Real-Time Monitoring Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-renaissance-embracing-the-metamate-spirit-at-facebook/"><u>The Digital Renaissance: Embracing the Metamate Spirit at Facebook</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/visualizing-conversations-facebook-avatars-in-whatsapp-use-ceiling-150-characters/"><u>Visualizing Conversations: Facebook Avatars in WhatsApp Use Ceiling: 150 Characters</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-mastering-google-voice-calls-the-ultimate-guide-for-2024/"><u>[New] Mastering Google Voice Calls The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransforming-frost-into-warmth-video-backdrops-guide/"><u>[New] Transforming Frost Into Warmth Video Backdrops Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quintessential-scripts-elevating-blockbusters/"><u>[Updated] Quintessential Scripts Elevating Blockbusters</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-ordinary-to-stunning-photo-tile-magic/"><u>2024 Approved From Ordinary to Stunning Photo Tile Magic</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-big-datas-ai-language-masters/"><u>Decoding Big Data's AI Language Masters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ting-profits-via-celebrity-skincare-channels/"><u>Elevating Profits via Celebrity Skincare Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-downside-how-social-sites-affect-us/"><u>Exploring the Downside: How Social Sites Affect Us</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-sony-xperia-10-v-frp-by-drfone-android/"><u>Full Guide to Bypass Sony Xperia 10 V FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-gone-but-not-forgotten-archiving-and-eventually-removing-your-fb-page/"><u>Guide to Gone But Not Forgotten: Archiving and Eventually Removing Your FB Page</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-f25-pro-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo F25 Pro 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-navigating-the-world-of-hashtags-to-boost-your-gaming-video-yields/"><u>In 2024, Navigating the World of Hashtags to Boost Your Gaming Video Yields</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-media-impact-elevating-shares-on-fb/"><u>Maximizing Social Media Impact: Elevating Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-profile-against-scam-artists-on-facebook/"><u>Securing Your Profile Against Scam Artists on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-services-provided-by-facebook-help-center/"><u>Unlocking Services Provided by Facebook Help Center</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Immediate Responses to Prevent Long-Term Damage From FB Hack
-date: 2024-08-28T03:09:44.539Z
-updated: 2024-08-29T03:09:44.539Z
+date: 2024-12-05T18:27:25.156Z
+updated: 2024-12-12T22:11:50.597Z
 tags:
   - facebook
 categories:
@@ -49,8 +49,9 @@ Other signs that your account may have been hacked include:
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
@@ -70,6 +71,10 @@ Do this only if you're sure you can log back in.
  We recommend logging out completely, provided your contact details and security settings are up-to-date. You don't want to jeopardize your means of logging back in. If you're unsure, manually log out of all recent sessions that seem suspicious.
 
  If you still think your account has been compromised, proceed to Step 3.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1b. Reset Your Facebook Password
 
@@ -96,31 +101,21 @@ Do this only if you're sure you can log back in.
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
 
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Remove Suspicious Applications
 
  Oftentimes, it's not a person that randomly hacked your account. You may have granted access to a malicious Facebook application that subsequently hijacked your account.
@@ -132,24 +127,15 @@ Do this only if you're sure you can log back in.
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
@@ -166,18 +152,19 @@ No advertising on the website.
 
  These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Keep Your Facebook Account Safe?
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -186,4 +173,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-simplified-window-capturing-software/"><u>[New] Simplified Window Capturing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-supreme-performance-mods-ranking-the-best-srt-converters-for-2024/"><u>[Updated] Supreme Performance Mods Ranking the Best SRT Converters for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-maximizing-igtv-impact-effective-tips-for-vertical-video-conversion/"><u>2024 Approved Maximizing IGTV Impact Effective Tips for Vertical Video Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-outcome-when-will-fbs-ruling-on-trump-be-revealed/"><u>Anticipating the Outcome: When Will FB's Ruling on Trump Be Revealed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-decides-its-path-no-mimicking-of-facebooks-metaverse/"><u>Apple Decides Its Path, No Mimicking of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-virtual-vendetta-precautionary-tips-against-social-media-swindles/"><u>Avoiding Virtual Vendetta: Precautionary Tips Against Social Media Swindles</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-life-and-likes-cutting-down-on-facebook-time/"><u>Balancing Life and Likes: Cutting Down on Facebook Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-random-facebook-lockout/"><u>Breaking Free From Random Facebook Lockout</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/colliding-realms-diving-into-metaverse-potentialities/"><u>Colliding Realms: Diving Into Metaverse Potentialities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comparing-sound-fidelity-what-sets-wav-apart-from-mp3-an-insightful-analysis-by-movavi/"><u>Comparing Sound Fidelity: What Sets WAV Apart From MP3? An Insightful Analysis by Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-tailored-online-avatar-scope/"><u>Crafting a Tailored Online Avatar Scope</u></a></li>
+<li><a href="https://facebook.techidaily.com/customize-facebook-flawlessly-with-these-must-try-app-configs/"><u>Customize Facebook Flawlessly with These Must-Try App Configs</u></a></li>
+<li><a href="https://program-issues.techidaily.com/euro-truck-simulator-2-stability-issues-heres-how-you-can-prevent-the-game-from-freezing/"><u>Euro Truck Simulator 2 Stability Issues? Here's How You Can Prevent the Game From Freezing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/microsoft-teams-not-responding-identifying-if-its-a-service-disruption-or-connectivity-problem/"><u>Microsoft Teams Not Responding - Identifying if It's a Service Disruption or Connectivity Problem</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210845432-9798822915527-precious-gems/"><u>Precious Gems | Free Book</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-quintessential-guide-to-free-global-chatting-and-calling-solutions-we-cherish/"><u>The Quintessential Guide to Free Global Chatting and Calling Solutions We Cherish</u></a></li>
+</ul></div>
 

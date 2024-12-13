@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2024-11-22T04:40:31.081Z
-updated: 2024-11-27T09:29:44.152Z
+date: 2024-12-10T19:31:54.334Z
+updated: 2024-12-12T22:38:14.008Z
 tags:
   - facebook
 categories:
@@ -26,40 +26,28 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -73,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -96,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -105,6 +101,10 @@ In essence: leave the selling to the sellers.
  It also requires them to maintain "transparent, third-party-accessible," portable APIs of all of their users' data. The idea is to make the services they offer interoperable—i.e., your medical record, as maintained by one app, can be easily transferred to the app of another service provider should you choose to make the switch.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
@@ -143,19 +143,16 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-elite-list-8-amazing-3d-websites-and-glittering-text/"><u>[New] Elite List 8 Amazing 3D Websites & Glittering Text</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-perfecting-your-shots-action-cameras-for-skisnowboarding-for-2024/"><u>[Updated] Perfecting Your Shots Action Cameras for Ski/Snowboarding for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725284016663-dvd/"><u>「どんなDVDも簡単にダビング！特集：家庭で使える最新の手順解説」</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-bridging-the-gap-between-spoken-words-and-text-on-slides-powerpoint-guide/"><u>2024 Approved Bridging the Gap Between Spoken Words and Text on Slides PowerPoint Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/amplify-visual-content-embedding-audio-on-instagram-reels/"><u>Amplify Visual Content Embedding Audio on Instagram Reels</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/audio-waveform-to-ringtone-best-places-to-pick-from-youtubemusic/"><u>Audio Waveform to Ringtone Best Places To Pick From YoutubeMusic</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-outlines-whats-funny-and-not/"><u>Facebook Outlines What's Funny and Not</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-apple-iphone-12-by-drfone-ios/"><u>How to Unlock Verizon Apple iPhone 12</u></a></li>
-<li><a href="https://facebook.techidaily.com/perfecting-social-media-queries-facebook-poll-setups/"><u>Perfecting Social Media Queries: Facebook Poll Setups</u></a></li>
-<li><a href="https://facebook.techidaily.com/prime-online-communities-for-older-demographics/"><u>Prime Online Communities For Older Demographics</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-detox-stopping-automated-content/"><u>Social Media Detox: Stopping Automated Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-synergy-sending-instagram-reels-via-facebook/"><u>Social Media Synergy: Sending Instagram Reels via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-currency-of-connection-online-revenue-rules/"><u>The Currency of Connection: Online Revenue Rules</u></a></li>
-<li><a href="https://common-error.techidaily.com/urgent-fixes-for-not-detected-directx-compiler-file-error/"><u>Urgent Fixes for 'Not Detected' DirectX Compiler File Error</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-chucklechasm-exciting-places-to-get-comical-calls-for-2024/"><u>[New] ChuckleChasm Exciting Places to Get Comical Calls for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-explore-ingenious-techniques-for-voice-transformation-at-zero-price/"><u>[Updated] 2024 Approved Explore Ingenious Techniques for Voice Transformation at Zero Price</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-pathway-to-perfect-pitches-insights-from-magix-maker/"><u>[Updated] 2024 Approved The Pathway to Perfect Pitches Insights From Magix Maker</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essential-guide-to-professional-thumbnail-dimensions-for-youtube-for-2024/"><u>[Updated] The Essential Guide to Professional Thumbnail Dimensions for YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-wave-of-feed-personalization/"><u>Facebook's New Wave of Feed Personalization</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-accelerates-text-interaction-new-tools-transforming-user-experience-in-messenger-and-instagram-apps/"><u>FB Accelerates Text Interaction: New Tools Transforming User Experience in Messenger and Instagram Apps</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-y78t-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo Y78t to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/incorporating-datetime-stamps-in-text-during-flipbook-creation-with-flipbuilder/"><u>Incorporating Date/Time Stamps in Text During FlipBook Creation with FlipBuilder</u></a></li>
+<li><a href="https://facebook.techidaily.com/leak-exposed-decoding-the-underlying-patterns-of-facebook-data/"><u>Leak Exposed: Decoding the Underlying Patterns of Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-data-protection-exploring-new-features-in-facebooks-privacy-hub/"><u>Tailored Data Protection: Exploring New Features in Facebook's Privacy Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-creating-engrossing-digital-biographies/"><u>The Essentials of Creating Engrossing Digital Biographies</u></a></li>
 </ul></div>
 

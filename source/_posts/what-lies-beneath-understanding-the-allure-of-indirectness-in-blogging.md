@@ -1,7 +1,7 @@
 ---
 title: "What Lies Beneath: Understanding the Allure of Indirectness in Blogging"
-date: 2024-08-28T03:13:33.210Z
-updated: 2024-08-29T03:13:33.210Z
+date: 2024-12-05T23:21:34.633Z
+updated: 2024-12-12T23:33:54.620Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
  What is vaguebooking? You've probably heard the term being used on social media for many years, but do you understand what it actually means?
 
  In this article, we'll explain what vaguebooking is, and give examples of vaguebooking so that you'll be able to recognize it when you see it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is Vaguebooking?
 
@@ -43,30 +47,22 @@ But what is vaguebooking?
 
  This is a classic, and one of the most annoying forms of vaguebooking. It's about as vague as it gets while still using words. With "Why? Only me..." you're imparting the fact that something (likely bad) has happened that you need someone to ask you about.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ### 3\. Question Marks: The Purest Form of Vaguebooking
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. When a GIF Is Meant to Sum Everything Up
 
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Who Is Responsible for Vaguebooking?
 
  So, who's doing all of this vaguebooking? Sadly, everyone seems prone to doing it from time to time. You'll find normally sane and sensible people vaguebooking in order to elicit sympathy or some kind of response from someone, somewhere. Anyone, anywhere. It doesn't really matter who responds, as long as someone notices their cries for attention.
@@ -78,8 +74,9 @@ But what is vaguebooking?
  Related:[Tips to Avoid (Spreading) Fake News During a Crisis](https://www.makeuseof.com/tag/quickly-avoid-fake-news-unfolding-crisis/)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Vaguebooking Harmless or Something More?
 
  Vaguebooking is definitely annoying. Of that there can be no argument. But is it merely annoying or a sign of something more worrying?
@@ -93,8 +90,9 @@ But what is vaguebooking?
  Related:[The Best Therapy and Counseling Apps for Mental Health](https://www.makeuseof.com/tag/mental-health-apps-people-cant-see-therapist/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Avoid Vaguebooking
 
  It's actually very simple to avoid vaguebooking. Just don't post anything vague on social media. That's it. That's the golden rule.
@@ -105,18 +103,19 @@ But what is vaguebooking?
 
  And if you're struggling mentally, maybe avoid social media altogether and talk to someone offline. Having a one-to-one conversation with someone who can actually offer practical help and/or advice is a much better idea than vaguebooking in the hopes someone will notice you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Fight the Scourge of Vaguebooking
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,4 +124,24 @@ But what is vaguebooking?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-balancing-act-a-comprehensive-guide-to-drone-gimbals/"><u>[New] Balancing Act A Comprehensive Guide to Drone Gimbals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhance-your-profile-with-free-imagery/"><u>[New] In 2024, Enhance Your Profile with Free Imagery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-unleash-creative-potential-best-free-title-crafting-for-yt/"><u>[New] In 2024, Unleash Creative Potential Best Free Title Crafting for YT</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-subscription-tactics-that-overtake-apples-model/"><u>Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://blog-min.techidaily.com/convert-your-favorite-youtube-videos-into-mp3-files-using-these-top-13-methods/"><u>Convert Your Favorite YouTube Videos Into MP3 Files Using These Top 13 Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-climb-in-online-advertising-landscape/"><u>Crypto's Climb in Online Advertising Landscape</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dark-moments-decoded-for-iphone-users/"><u>Dark Moments Decoded for iPhone Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-the-mobility-driven-portal-go-model/"><u>Facebook's Latest: The Mobility-Driven Portal Go Model</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-from-rw2-to-jpeg-easy-by-movavi/"><u>Free Online Converter From RW2 to JPEG - Easy by Movavi</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-oppo-f23-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo F23 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-new-era-of-productivity-a-full-review-of-the-latest-samsung-galaxy-tab-s6s-innovative-features-s-pen-and-dex-mode/"><u>Mastering The New Era of Productivity: A Full Review Of The Latest Samsung Galaxy Tab S6's Innovative Features, S Pen & DeX Mode</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-personalization-the-new-standard-on-facebook/"><u>Streamlined Personalization: The New Standard on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweet-release-from-social-media-shackles-deleting-your-company-page/"><u>Sweet Release From Social Media Shackles: Deleting Your Company Page</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-shrink-mpeg2-files-get-virtualdub-for-video-compression/"><u>Updated 2024 Approved Shrink MPEG2 Files Get VirtualDub for Video Compression</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-digital-footprint-deserves-a-break-the-case-for-quitting-facebook/"><u>Why Your Digital Footprint Deserves a Break: The Case for Quitting Facebook</u></a></li>
+</ul></div>
 

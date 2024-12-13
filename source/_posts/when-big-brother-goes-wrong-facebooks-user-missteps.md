@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2024-11-29T17:33:05.558Z
-updated: 2024-12-06T16:59:54.860Z
+date: 2024-12-11T16:30:56.318Z
+updated: 2024-12-12T23:19:36.355Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Beacon Tracking
 
  Facebook Beacon was launched to show targeted ads to users from third-party websites. It also encouraged people to share their activities with friends as well. Facebook Beacon saved the data of users' spending habits to[show targeted ads on Facebook](http://www.makeuseof.com/why-are-you-seeing-certain-ads-on-facebook/) —nothing different from what happens now.
@@ -34,19 +38,15 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -65,7 +65,7 @@ Close
 ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
@@ -78,12 +78,16 @@ Close
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. The Spread of Fake News
 
 ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
@@ -103,10 +107,6 @@ Close
  There are still dozens of languages not sufficiently covered by Facebook's algorithmic moderation. This causes difficulties in interpreting and moderating content on Facebook.
 
  Since many social media experts are highlighting this issue, let’s hope that Facebook can provide equality in content moderation for people around the globe.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook Failed Many Times but Let's Not Lose Hope
 
@@ -131,24 +131,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-pro-audio-insight-expertly-selected-9-mic-recorder-devices/"><u>[New] In 2024, Pro Audio Insight Expertly Selected 9 Mic Recorder Devices</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-savor-on-screen-mastering-food-films-with-these-7-essentials/"><u>[New] In 2024, Savor on Screen - Mastering Food Films with These 7 Essentials</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-rapid-video-grabber-your-gateway-to-all-online-videos/"><u>[Updated] Rapid Video Grabber - Your Gateway to All Online Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-compendium-hands-free-device-interaction/"><u>[Updated] The Ultimate Compendium Hands-Free Device Interaction</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fresh-filmmakers-footnotes-unveiling-video-quality-terms/"><u>2024 Approved Fresh Filmmaker's Footnotes Unveiling Video Quality Terms</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/comprehensive-guide-to-websites-for-text-alteration/"><u>Comprehensive Guide to Websites for Text Alteration</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-purpose-and-effect-of-fbcta/"><u>Dissecting the Purpose and Effect of FBCTA</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-installation-guide-how-to-get-the-newest-webcam-drivers-on-your-windows-device/"><u>Easy Installation Guide: How to Get the Newest Webcam Drivers on Your Windows Device</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/essential-steps-to-resynchronize-google-drive-on-desktop-os/"><u>Essential Steps to Resynchronize Google Drive on Desktop OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-the-challenge-of-a-disabled-facebook-login/"><u>Overcoming the Challenge of a Disabled Facebook Login</u></a></li>
-<li><a href="https://facebook.techidaily.com/public-mistrust-rises-big-tech-companies-under-fire-especially-facebook/"><u>Public Mistrust Rises: Big Tech Companies Under Fire Especially Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryls-strategies-and-successes-at-facebook/"><u>Sheryl’s Strategies and Successes at Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplifying-group-discussions-with-channels-integration/"><u>Simplifying Group Discussions with Channels Integration</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-to-skyrocket-likes-and-share-ratio-in-fb-groups/"><u>Tips to Skyrocket Likes and Share Ratio in FB Groups</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/troubleshooting-and-solutions-for-realtek-rtl8723be-driver-problems/"><u>Troubleshooting and Solutions for Realtek RTL8723BE Driver Problems</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-apple-iphone-6s-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from Apple iPhone 6s iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-mysteries-of-metas-data-policy-overhaul/"><u>Unlocking the Mysteries of Meta’s Data Policy Overhaul</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-full-facetune-experience-from-novice-to-expert-photographer/"><u>[New] The Full Facetune Experience From Novice to Expert Photographer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-charting-the-future-the-next-gen-youtube-festivals/"><u>[Updated] Charting the Future The Next Gen Youtube Festivals</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-channel-to-checkbook-conversion-the-path-from-adsense-to-banking/"><u>2024 Approved Channel to Checkbook Conversion The Path From AdSense to Banking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-discover-top-ten-unforgettable-youtube-vr-videos/"><u>2024 Approved Discover Top Ten Unforgettable YouTube VR Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-success-top-8-advantages-for-corporate-profiles-over-personal/"><u>Decoding FB Success: Top 8 Advantages for Corporate Profiles over Personal</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrease-personalized-promotions-on-social-platforms/"><u>Decrease Personalized Promotions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/demanding-action-from-social-media-leaders-against-scam-campaigns/"><u>Demanding Action From Social Media Leaders Against Scam Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-fbs-tracking-tactics-using-off-fb-toolset/"><u>Disable Fb's Tracking Tactics Using Off-FB Toolset</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-hate-button-pros-and-cons/"><u>Disabling 'Hate' Button: Pros & Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-setup-fresh-drivers-for-the-amd-radeon-hd-7870-under-microsofts-newest-os-windows-11/"><u>Download and Setup: Fresh Drivers for the AMD Radeon HD 지오스티브 7870 Under Microsoft's Newest OS, Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnwhileengage-top-5-revenue-generating-strategies-for-social-media/"><u>EarnwhileEngage: Top 5 Revenue-Generating Strategies for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-implement-2fa-on-facebook-platform/"><u>Easy Steps to Implement 2FA on Facebook Platform</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/easy-peasy-screen-transitions-for-filmmakers/"><u>Easy-Peasy Screen Transitions for Filmmakers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-privacy-game-facebooks-secure-strategies-explained/"><u>Elevate Your Privacy Game: Facebook's Secure Strategies Explained</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-k11-5g-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after K11 5G has been deleted.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/win11s-top-5-no-cost-screen-recorders-updated-guide-for-2024/"><u>Win11's Top 5 No-Cost Screen Recorders - Updated Guide for 2024</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/windows-10-disk-recovery-wizard-rejuvenate-your-computer/"><u>Windows 10 Disk Recovery Wizard: Rejuvenate Your Computer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/your-go-to-list-for-effortless-downloads-of-fb-stories/"><u>Your Go-To List for Effortless Downloads of FB Stories</u></a></li>
 </ul></div>
 

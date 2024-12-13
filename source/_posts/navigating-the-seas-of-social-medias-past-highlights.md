@@ -1,7 +1,7 @@
 ---
 title: Navigating the Seas of Social Media’s Past Highlights
-date: 2024-12-05T19:04:27.279Z
-updated: 2024-12-06T22:34:33.967Z
+date: 2024-12-10T17:37:29.179Z
+updated: 2024-12-12T18:07:24.920Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use the On This Day Feature
 
  Users can access the On This Day feature on Facebook by the following method.
@@ -45,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
 3. Scroll down until you see**Memories** . Open it to view your activity on the same date previously.
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Share Memories
 
@@ -63,14 +55,10 @@ To share a memory from the On This Day feature:
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -89,7 +77,7 @@ You can save your On This Day posts with the following steps:
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
@@ -106,6 +94,10 @@ To access your saved memories:
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
@@ -118,6 +110,10 @@ Close
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Customization Options for the On This Day Feature
 
  If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
@@ -128,13 +124,13 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
 
@@ -145,6 +141,10 @@ Close
  You can also pick only the important memories. Tap**Highlights** if you wish to get notified about the special posts and events. For instance, your birthday or a special event with your friends.
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Hide Memories
 
@@ -173,19 +173,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-to-eradicate-green-screen-from-mac-produced-videos/"><u>[New] 2024 Approved The Ultimate Guide to Eradicate Green Screen From Mac-Produced Videos</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-strategic-approaches-to-dominating-spotifys-ad-space/"><u>[Updated] Strategic Approaches to Dominating Spotify's Ad Space</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-tecno-pop-8-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Tecno Pop 8</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-lonely-nights-to-stronger-bonds-fb-for-expat-groups-analysis/"><u>From Lonely Nights to Stronger Bonds? FB for Expat Groups Analysis</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/full-guide-to-unlock-iphone-14-pro-max-with-itunes-drfone-by-drfone-ios/"><u>Full Guide to Unlock iPhone 14 Pro Max with iTunes | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Motorola Moto E13? | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mastering-zoom-the-ultimate-guide-to-audio-recording-for-podcasts/"><u>In 2024, Mastering Zoom The Ultimate Guide to Audio Recording for Podcasts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/open-srt-soundtrack-on-windowsmacos-for-2024/"><u>Open SRT Soundtrack on Windows/macOS for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/presentation-mastery-8-top-screen-record-comparisons-for-2024/"><u>Presentation Mastery 8 Top Screen Record Comparisons for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/report-facebook-twitter-and-snapchat-are-part-of-president-bidens-vaccination-campaign/"><u>Report: Facebook, Twitter, and Snapchat Are Part of President Biden's Vaccination Campaign</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/revolutionize-your-augmented-reality-graphics-using-custom-luts/"><u>Revolutionize Your Augmented Reality Graphics Using Custom LUTs</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-universal-notification-service-fb/"><u>Stop Universal Notification Service: FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-selecting-the-ultimate-facebook-pic/"><u>The Art of Selecting the Ultimate Facebook Pic</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-governments-target-mega-corporations-in-the-digital-age/"><u>Why Governments Target Mega-Corporations in the Digital Age</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-pros-guide-from-playback-to-perfected-overwatch-recordings/"><u>[New] 2024 Approved The Pro's Guide From Playback to Perfected Overwatch Recordings</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-scripted-time-warps-a-cinematic-approach-for-2024/"><u>[Updated] Scripted Time Warps A Cinematic Approach for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-maximizing-views-on-tiktok-unboxing-content/"><u>2024 Approved Maximizing Views on TikTok Unboxing Content</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-thankful-compilation-professional-and-personalized-otus/"><u>2024 Approved Thankful Compilation Professional & Personalized OTUs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/brother-l2370dw-printer-software-free-download-and-updates/"><u>Brother L2370DW Printer Software - Free Download and Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-administrator-experience-facebooks-communal-stewardship-update/"><u>Elevating Administrator Experience: Facebook’s Communal Stewardship Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-of-the-line-for-instagram-chats-in-december/"><u>End of the Line for Instagram Chats in December</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-google-pixel-8-pro-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Google Pixel 8 Pro Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/mimicry-meets-malice-fb-impersonation-risks/"><u>Mimicry Meets Malice: FB Impersonation Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/modifying-childrens-privacy-settings-on-messenger-kids/"><u>Modifying Children's Privacy Settings on Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-attracting-business-clients-via-facebook/"><u>Secrets: Attracting Business Clients via Facebook</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/silencing-the-sharp-methods-for-banishing-excessive-hiss-in-music-production-for-2024/"><u>Silencing the Sharp Methods for Banishing Excessive Hiss in Music Production for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-future-in-fb-hangs-in-balance/"><u>Trumps Future in FB Hangs in Balance</u></a></li>
 </ul></div>
 

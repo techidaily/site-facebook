@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Worlds: Understanding the Metaverse"
-date: 2024-11-30T21:23:03.846Z
-updated: 2024-12-06T20:51:58.872Z
+date: 2024-12-06T17:03:37.436Z
+updated: 2024-12-12T16:22:26.132Z
 tags:
   - facebook
 categories:
@@ -26,17 +26,9 @@ So, what is the metaverse?
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Etymology and Origin of the Term "Metaverse" and Its Concept
 
 ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -46,13 +38,13 @@ So, what is the metaverse?
 
  Nonetheless, after the arrival of the World Wide Web, people started to use the term cyberspace as a synonym of the internet in its present state. By the time Stephenson’s Snow Crash hit the shelves, the term “metaverse” caught on, and common use established it as the concept’s signifier.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Metaverse?
 
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
 
@@ -65,6 +57,10 @@ Yet.
  So, what exactly is the metaverse? Well, since the metaverse is a concept straight out of a science fiction novel and it doesn’t have an actual referent in the real world, we should probably ask ourselves a different question: What does the Metaverse intend to be?
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Internet vs. Metaverse
 
@@ -82,6 +78,10 @@ Yet.
 
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
@@ -91,7 +91,7 @@ Yet.
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Metaverse Precursors
@@ -112,7 +112,7 @@ Yet.
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
@@ -136,15 +136,14 @@ Yet.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unlocking-youtube-success-with-the-right-networking-choice/"><u>[New] In 2024, Unlocking YouTube Success with the Right Networking Choice</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-maximize-your-google-meet-experience-with-effective-use-of-digital-boards-on-any-os/"><u>2024 Approved Maximize Your Google Meet Experience with Effective Use of Digital Boards on Any OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/designing-your-face-in-the-facebook-ecosystem/"><u>Designing Your Face in the Facebook Ecosystem</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-samsung-galaxy-a54-5g-by-drfone-android/"><u>Full Guide to Unlock Your Samsung Galaxy A54 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/ig-live-unplugged-mode-available/"><u>IG Live Unplugged Mode Available</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-infinix-zero-5g-2023-turbo-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Infinix Zero 5G 2023 Turbo to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-correcting-code-28-error-in-windows-device-manager/"><u>Troubleshooting and Correcting Code 28 Error in Windows Device Manager</u></a></li>
-<li><a href="https://facebook.techidaily.com/two-factor-authentication-on-facebook-a-complete-tutorial/"><u>Two-Factor Authentication on Facebook – A Complete Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-will-facebook-messenger-provide-e2ee/"><u>When Will Facebook Messenger Provide E2EE?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pazeras-2024-audio-liberation-a-review-of-freedom-in-music/"><u>[New] Pazera's 2024 Audio Liberation A Review of Freedom in Music</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-non-disclosure-measures-for-video-footage-for-2024/"><u>[Updated] Non-Disclosure Measures for Video Footage for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/easy-tutorial-for-capturing-chats-a-cross-platform-approach-for-iphone-android-macos-and-windows-users/"><u>Easy Tutorial for Capturing Chats: A Cross-Platform Approach for iPhone, Android, macOS, and Windows Users</u></a></li>
+<li><a href="https://article-helps.techidaily.com/explore-the-best-free-after-effects-resources/"><u>Explore the Best FREE After Effects Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-and-instagram-direct-chats-wont-be-encrypted-until-2022/"><u>Facebook Messenger and Instagram Direct Chats Won't Be Encrypted Until 2022</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-vivo-y78t-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Vivo Y78t FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-your-actions-preserves-facebook-youtubes-app-availability/"><u>Monitoring Your Actions Preserves Facebook, YouTube's App Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-emotional-and-practical-side-of-account-removal/"><u>Navigating the Emotional and Practical Side of Account Removal</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-your-instagram-from-facebook-a-step-by-step-guide/"><u>Unlinking Your Instagram From Facebook: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

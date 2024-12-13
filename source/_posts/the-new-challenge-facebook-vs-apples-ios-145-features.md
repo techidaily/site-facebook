@@ -1,7 +1,7 @@
 ---
 title: "The New Challenge: Facebook Vs. Apple's iOS 14.5 Features"
-date: 2024-08-28T03:08:33.896Z
-updated: 2024-08-29T03:08:33.896Z
+date: 2024-12-07T21:15:23.031Z
+updated: 2024-12-12T17:39:29.930Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/4fec1082aae14c609dc25605c639b1fbe3c36aac7
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
@@ -52,45 +56,33 @@ thumbnail: https://thmb.techidaily.com/4fec1082aae14c609dc25605c639b1fbe3c36aac7
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
  ATT does not prevent Facebook from tracking users across its own apps (for example, between Instagram and WhatsApp). However, Facebook can no longer track users across apps it doesn't own unless the user gives it permission to do so.
@@ -102,8 +94,9 @@ No advertising on the website.
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's Likely Response
 
  While tracking users across iOS devices is now ineffective, Facebook can still track users outside of iOS.
@@ -114,14 +107,11 @@ No advertising on the website.
 
  Innovation and finding new ways to update its business model will be Facebook's most effective defense against ATT.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +120,22 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-the-transformative-power-of-augmented-vision-for-2024/"><u>[Updated] The Transformative Power of Augmented Vision for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-5-engine-picks-for-peak-performance-quadcopters-for-2024/"><u>[Updated] Top 5 Engine Picks for Peak Performance Quadcopters for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-economical-360-cameras-for-quality-videography/"><u>2024 Approved Economical 360° Cameras for Quality Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-motives-to-break-free-from-the-social-media-giant/"><u>6 Motives to Break Free From the Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-ways-to-use-facebook-for-career-growth/"><u>6 Ways to Use Facebook for Career Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/annual-2022-in-depth-analysis-of-popular-podcasts/"><u>Annual 2022: In-Depth Analysis of Popular Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-digital-content-wizard-with-these-proven-techniques-for-facebook-video-creation/"><u>Become a Digital Content Wizard with These Proven Techniques for Facebook Video Creation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-realme-c67-5g-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Realme C67 5G</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/convert-your-files-at-no-cost-quickly-change-rmvb-to-m4v-using-movavis-online-tool/"><u>Convert Your Files at No Cost - Quickly Change RMVB to M4V Using Movavi's Online Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/curating-personalized-reflections-on-facebook/"><u>Curating Personalized Reflections on Facebook</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficient-wheel-movements-for-xpwin-7/"><u>Efficient Wheel Movements for XP/Win 7</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/guide-capturing-and-analyzing-movement-dynamics-in-footage-using-movavi-software/"><u>Guide: Capturing and Analyzing Movement Dynamics in Footage Using Movavi Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149877934-hidden-stories-that-could-change-your-perception-of-tech-today/"><u>Hidden Stories That Could Change Your Perception of Tech Today</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210348175-9782226386427-le-test/"><u>Le Test | Free Book</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/top-notch-animated-text-settings-for-2024/"><u>Top-Notch Animated Text Settings for 2024</u></a></li>
+</ul></div>
 

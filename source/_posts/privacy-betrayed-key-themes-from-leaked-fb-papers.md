@@ -1,7 +1,7 @@
 ---
 title: "Privacy Betrayed: Key Themes From Leaked FB Papers"
-date: 2024-08-28T03:07:07.772Z
-updated: 2024-08-29T03:07:07.772Z
+date: 2024-12-05T16:12:20.144Z
+updated: 2024-12-12T20:11:37.432Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,19 @@ thumbnail: https://thmb.techidaily.com/d02f0d2061399f021d19d9bbfd673d9a86e502373
 
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7 Key Revelations From the Facebook Papers
 
@@ -43,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/d02f0d2061399f021d19d9bbfd673d9a86e502373
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -59,8 +64,18 @@ thumbnail: https://thmb.techidaily.com/d02f0d2061399f021d19d9bbfd673d9a86e502373
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-strategies-to-skyrocket-instagram-video-views/"><u>[New] In 2024, Strategies to Skyrocket Instagram Video Views</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-highlight-reel-of-2022-skating-stars/"><u>[New] Ultimate Highlight Reel of 2022 Skating Stars</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-resolving-faulty-airdrop-functionality-on-apple-devices/"><u>[Updated] Resolving Faulty Airdrop Functionality on Apple Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/client-acquisition-tactics-on-social-media-platforms/"><u>Client Acquisition Tactics on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-shadowbans-in-online-communities/"><u>Demystifying Shadowbans in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/dialogue-dynamics-dial-up-messengers-format-guide/"><u>Dialogue Dynamics Dial-Up: Messenger's Format Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-cupids-at-work-facebooks-novel-approach-to-matchmaking/"><u>Digital Cupids at Work: Facebook’s Novel Approach to Matchmaking</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/frequent-troubleshooting-tips-for-faulty-storage-devices-expert-advice-by-yl-computing-and-yl-software/"><u>Frequent Troubleshooting Tips for Faulty Storage Devices - Expert Advice by YL Computing & YL Software</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/game-enhancement-say-goodbye-to-fallout-ebuttings-hello-to-fluid-action/"><u>Game Enhancement: Say Goodbye to Fallout Ebuttings, Hello to Fluid Action!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/trouble-free-gaming-diagnosing-and-repairing-problematic-video-cards-by-yl-software-experts/"><u>Trouble-Free Gaming: Diagnosing and Repairing Problematic Video Cards by YL Software Experts</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

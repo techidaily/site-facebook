@@ -1,7 +1,7 @@
 ---
 title: "The Art of Archive: Saving Your Fb Visual Stories"
-date: 2024-11-21T19:18:30.701Z
-updated: 2024-11-27T09:40:43.544Z
+date: 2024-12-10T23:01:57.299Z
+updated: 2024-12-12T21:56:13.576Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
 
 ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
 * On desktop: Open the photo, click on**Menu (the three-dot icon) > Download** .
@@ -36,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
  You can use this method to download Facebook photos. It's as simple as that.
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Download Facebook Albums
 
@@ -56,10 +64,6 @@ Follow these steps to download your Facebook album:
 
  The downloaded album comes as a ZIP file. You'll need to extract this ZIP file to access the pictures.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Download All of Your Facebook Photos
 
  There is also a simple method to download all photos from Facebook that you have ever uploaded. You will even get them in the right sub-folders organized by album. But the names of the files can be a little strange.
@@ -72,27 +76,31 @@ Follow these steps to download your Facebook album:
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
 4. Click**Request a download** from the pop-up.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Select whether you want to download all or just specific information on the next page. Since we want to download Facebook photos only, click**Select types of information** .  
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-information-download-option.jpg)
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After submitting the request, Facebook will take you back to the**Download your information** page, indicating you have a pending request.
 
@@ -110,10 +118,6 @@ Follow these steps to download your Facebook album:
 
 ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
 Here's how to use it:
@@ -130,10 +134,6 @@ Here's how to use it:
 **Download:** Video Downloader Plus for[Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Other Facebook Download Tools
 
@@ -156,24 +156,22 @@ Here's how to use it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-holistic-editing-experience-panoramashift-evolution/"><u>[New] 2024 Approved Holistic Editing Experience PanoramaShift Evolution</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-optimal-owing-uavs-heavy-load-drone-rankings/"><u>[New] Optimal Owing UAVs Heavy Load Drone Rankings</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-curated-insta-photos-in-slideshow/"><u>[Updated] 2024 Approved Curated Insta Photos in Slideshow</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/13-herramientas-de-presentacion-innovadoras-como-alternativa-a-prezi-para-2024/"><u>13 Herramientas De Presentación Innovadoras Como Alternativa a Prezi Para 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/command-line-for-quake-via-windows-terminal/"><u>Command Line for Quake via Windows Terminal</u></a></li>
-<li><a href="https://extra-information.techidaily.com/effortless-access-to-public-broadcast-c-span-videos/"><u>Effortless Access to Public Broadcast C-Span Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclusive-access-where-you-cant-join-facebook/"><u>Exclusive Access: Where You Can't Join Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-what-facebooks-updated-page-labels-indicate/"><u>Exploring What Facebook's Updated Page Labels Indicate</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-your-facebook-ban-list/"><u>Exploring Your Facebook Ban List</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-issue-when-windows-cannot-execute-protection-command/"><u>Fixing The Issue When Windows Cannot Execute Protection Command</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-protected-social-network-video-retrieval/"><u>Guide to Protected Social Network Video Retrieval</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-11-pro-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 11 Pro Max To Other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-12-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 12 Online</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-the-iphones-full-potential-with-10-composition-principles/"><u>In 2024, Unleashing the iPhone's Full Potential with 10 Composition Principles</u></a></li>
-<li><a href="https://facebook.techidaily.com/journeying-into-jargon-free-messaging-a-newbies-primer/"><u>Journeying Into Jargon-Free Messaging: A Newbie's Primer</u></a></li>
-<li><a href="https://facebook.techidaily.com/life-without-social-media-data-unravelled/"><u>Life Without Social Media: Data Unravelled</u></a></li>
-<li><a href="https://facebook.techidaily.com/peeling-back-facebooks-hidden-user-drop/"><u>Peeling Back Facebook's Hidden User Drop</u></a></li>
-<li><a href="https://facebook.techidaily.com/rapid-reactions-faster-android-software-swaps/"><u>Rapid Reactions: Faster Android Software Swaps</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-stories-googles-pivotal-news-highlights/"><u>Top Stories: Google's Pivotal News Highlights</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-enhance-your-livestream-quality-learn-4-innovative-techniques/"><u>[New] Enhance Your Livestream Quality Learn 4 Innovative Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/1716118410024-updated-2024-approved-facebook-videos-vertical-or-horizontal/"><u>[Updated] 2024 Approved Facebook Videos Vertical or Horizontal?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-virtual-venue-verdict-navigating-between-obs-and-twitch-streaming/"><u>[Updated] In 2024, Virtual Venue Verdict Navigating Between OBS & Twitch Streaming</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-meme-master-tracking-jake-pauls-youtube-evolution-for-2024/"><u>[Updated] Meme Master Tracking Jake Paul's YouTube Evolution for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-in-virtual-reality-dialogues-via-fb-messenger-platform/"><u>Engage in Virtual Reality Dialogues via FB Messenger Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-5m-investment-seeks-to-outshine-substack-amongst-authors/"><u>FB's $5M Investment Seeks to Outshine Substack Amongst Authors</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revel-in-the-wonders-of-asmrs-positive-effects/"><u>In 2024, Revel in the Wonders of ASMR's Positive Effects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-superior-video-cameras-previewed/"><u>In 2024, Superior Video Cameras Previewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-timeliness-to-boost-likes-and-shares-on-fb/"><u>Leveraging Timeliness to Boost Likes and Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-inferential-communication-fb-message-clues/"><u>Mastering Inferential Communication: FB Message Clues</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigational-insights-from-facebooks-revamped-ui/"><u>Navigational Insights From Facebook's Revamped UI</u></a></li>
+<li><a href="https://facebook.techidaily.com/rift-investment-a-solution-for-hacked-user-credentials/"><u>Rift Investment: A Solution for Hacked User Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprehensive-guide-to-group-recognition-in-social-media/"><u>The Comprehensive Guide to Group Recognition in Social Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-step-by-step-approach-to-twitter-archive-usage-for-2024/"><u>The Step-by-Step Approach to Twitter Archive Usage for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unfulfilled-promises-of-social-media-five-times-facebook-failed-its-base/"><u>The Unfulfilled Promises of Social Media: Five Times Facebook Failed Its Base</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-youtubes-potential-essential-tactics-and-strategies-for-2024/"><u>Unlocking YouTube's Potential Essential Tactics and Strategies for 2024</u></a></li>
 </ul></div>
 

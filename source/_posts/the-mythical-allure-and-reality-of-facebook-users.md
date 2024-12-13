@@ -1,7 +1,7 @@
 ---
 title: The Mythical Allure and Reality of Facebook Users
-date: 2024-12-04T20:59:37.874Z
-updated: 2024-12-06T18:24:33.194Z
+date: 2024-12-05T20:23:32.460Z
+updated: 2024-12-12T20:15:34.412Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Where Have These Facebook Stats Come From?
 
  Meta released its[annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
@@ -35,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 ![Facebook Numbers Screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Numbers-Screenshot.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image Credit: Meta
@@ -48,6 +44,10 @@ Image Credit: Meta
 
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Has Barely Lost Any Users
 
  As Meta's report included rounded figures, we have to take an average decrease of 500,000 users. It could be slightly more, it could be slightly less. That equates to a decrease in users of 0.025%.
@@ -59,7 +59,7 @@ Image Credit: Meta
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. It's Natural for Facebook to Lose Some Users
@@ -74,6 +74,10 @@ Image Credit: Meta
 
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
 
  Delving even deeper, you can consider the critical mass curve for a platform's users. Critical mass is the minimum number of users you need to sustain value in the product with no other product changes. Usually businesses want to work up this curve towards critical mass, but there's a point when you exceed it.
@@ -81,7 +85,7 @@ Image Credit: Meta
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Meta Is Focusing on the Metaverse
@@ -95,10 +99,6 @@ Image Credit: Meta
  If Meta does indeed bring the metaverse into the mainstream, it's likely it will continue to pursue that area. At this point, perhaps Facebook becomes less important for the company. Or perhaps Meta will integrate Facebook into the metaverse itself.
 
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Chill Out! Facebook Is Fine
 
@@ -121,22 +121,17 @@ Image Credit: Meta
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-mastering-the-art-of-collage-creation/"><u>[New] Mastering the Art of Collage Creation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-utilizing-the-virtual-whiteboard-in-webinars-cross-platform-tips-and-tricks/"><u>[Updated] 2024 Approved Utilizing the Virtual Whiteboard in Webinars Cross-Platform Tips and Tricks</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-unveiling-the-secrets-to-a-successful-fb-giveaway/"><u>2024 Approved Unveiling the Secrets to a Successful FB Giveaway</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/are-advancements-in-generative-ai-leading-us-towards-an-era-of-digital-deception/"><u>Are Advancements in Generative AI Leading Us Towards an Era of Digital Deception?</u></a></li>
-<li><a href="https://facebook.techidaily.com/chat-charisma-enhancing-with-bold-and-italic-styles/"><u>Chat Charisma: Enhancing with Bold and Italic Styles</u></a></li>
-<li><a href="https://facebook.techidaily.com/cryptocurrencys-expansion-a-future-headline/"><u>Cryptocurrency's Expansion: A Future Headline?</u></a></li>
-<li><a href="https://facebook.techidaily.com/debunking-myths-a-closer-look-at-facebook-files/"><u>Debunking Myths: A Closer Look at Facebook Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-digital-giant-understanding-vk-in-russia/"><u>Decoding the Digital Giant: Understanding VK in Russia</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/difficulties-in-measuring-and-predicting-the-outcomes-of-microbial-activity-in-response-to-crop-rotation-changes/"><u>Difficulties in Measuring and Predicting the Outcomes of Microbial Activity in Response to Crop Rotation Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-honor-90-lite-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Honor 90 Lite</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovating-connectivity-facebook-unveils-new-subscription-link-methods/"><u>Innovating Connectivity: Facebook Unveils New Subscription Link Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-reconnection-on-social-networks/"><u>Navigating Reconnection on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-to-converting-audio-files-into-high-quality-wav-format/"><u>The Ultimate Guide to Converting Audio Files Into High-Quality WAV Format</u></a></li>
-<li><a href="https://win-online.techidaily.com/verschieben-sie-ihre-kontakte-von-icloud-direkt-auf-den-iphone-speicher-einfache-methoden-detailliert-erlautern/"><u>Verschieben Sie Ihre Kontakte Von iCloud Direkt Auf Den iPhone-Speicher: Einfache Methoden Detailliert Erläutern</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-11s-long-term-support-plan-explained-latest-update-details/"><u>Windows 11'S Long-Term Support Plan Explained: Latest Update Details</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-leading-10-views-unmasked-story-watchers/"><u>[New] In 2024, Leading 10 Views Unmasked Story Watchers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlock-the-secret-to-harmonious-insta-story-posts-for-2024/"><u>[Updated] Unlock the Secret to Harmonious Insta Story Posts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-self-safety-marks-on-facebook-network/"><u>Enhancing Self-Safety Marks on Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/envision-your-neighborhoods-future-with-a-social-media-giant-as-local-store-owner/"><u>Envision Your Neighborhood's Future with a Social Media Giant as Local Store Owner</u></a></li>
+<li><a href="https://games-able.techidaily.com/expertise-in-finding-friends-on-steam/"><u>Expertise in Finding Friends on Steam</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-dota-2-pc-mic-problems-for-crystal-clear-communication/"><u>Fixing Dota 2 PC Mic Problems for Crystal Clear Communication</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-6s-plus-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leveraging-background-footage-for-engaging-content/"><u>In 2024, Leveraging Background Footage for Engaging Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-big-screen-at-your-fingertips-with-fb-and-twt/"><u>The Big Screen at Your Fingertips with FB & Twt</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-image-editor-repertoire-for-text-addition/"><u>The Ultimate Image Editor Repertoire for Text Addition</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-dvd-region-free-software-compatible-with-windows-10-and-11/"><u>Top DVD Region Free Software Compatible with Windows 10 & 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-datas-best-friend-avoid-untrustworthy-apps/"><u>Your Data's Best Friend: Avoid Untrustworthy Apps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Post-Block Reconciliation Tactics for FB Friends
-date: 2024-12-04T16:56:16.309Z
-updated: 2024-12-06T19:56:41.226Z
+date: 2024-12-10T19:10:20.057Z
+updated: 2024-12-12T20:17:57.615Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Unblock Someone on Facebook
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 ![Facebook Blocked Users 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Blocked-Users-2021.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Notice that the**Blocking** page has several types of blocking. Anyone in**Block users** cannot see what you post, tag you, chat with you, or send you a friend request. However, you may still see that person if you're both in a group or use the same game.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -101,20 +101,21 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-guidelines-to-frame-your-youtube-creation-flow-for-2024/"><u>[New] Guidelines to Frame Your YouTube Creation Flow for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-navigate-the-treasure-trove-of-pexels-picture-paradise/"><u>[Updated] How to Navigate the Treasure Trove of Pexels' Picture Paradise</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-simplify-coordination-blending-zoom-into-your-gmail-schedule-for-2024/"><u>[Updated] Simplify Coordination Blending Zoom Into Your Gmail Schedule for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/behavior-for-sale-the-economy-exposed/"><u>Behavior for Sale: The Economy Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-connections-one-profile-at-a-time-facebooks-redefined-dating-approach/"><u>Building Connections, One Profile at a Time: Facebook's Redefined Dating Approach</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/cartouche-compactflash-professionnelle-duplicateur-avec-capacite-complet-depliant-des-donnees-dorigine/"><u>Cartouche CompactFlash Professionnelle - Duplicateur Avec Capacité Complet Dépliant Des Données D'origine</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-off-social-buttons-on-fb-nostalgia-feature/"><u>Cut Off Social Buttons on FB Nostalgia Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-newsfeed-transformation-the-facebook-way/"><u>Effortless Newsfeed Transformation: The Facebook Way</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-from-your-iphone-14-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock from your iPhone 14 Pro and iPad?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-full-picture-of-ustream-and-analogous-services/"><u>In 2024, The Full Picture of Ustream & Analogous Services</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-asus-rog-phone-7-ultimate-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Asus ROG Phone 7 Ultimate Location | Dr.fone</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/macx-dvd-dvd-rippper-prohdwindows/"><u>MacX DVD最安のコストパフォーマンスを実現! DVD Rippper Pro/HDビデオコンバータWindows版 - 限時無料割引特典付きセット</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-solution-for-headphone-issues-on-your-windows-10-pc/"><u>Step-by-Step Solution for Headphone Issues on Your Windows 10 PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-tech-fumbles-of-the-current-era/"><u>The Biggest Tech Fumbles of the Current Era</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dark-side-social-networks-popularity-controversy/"><u>The Dark Side: Social Networks' Popularity Controversy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-expert-review-of-apeaksoft-for-video-capture-technology/"><u>2024 Approved Expert Review of Apeaksoft for Video Capture Technology</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-seamless-srt-creation-the-ultimate-xmlssattml-playbook/"><u>2024 Approved Seamless SRT Creation The Ultimate XML/SSA/TTML Playbook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/controlling-clockdate-visibility-in-windows-11-bar/"><u>Controlling Clock/Date Visibility in Windows 11 Bar</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-hidden-meanings-on-facebook-messenger/"><u>Decoding Hidden Meanings on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-whatsapps-may-15-policy-adjustment-announcement/"><u>Delay in WhatsApp's May 15 Policy Adjustment Announcement</u></a></li>
+<li><a href="https://facebook.techidaily.com/departing-leader-of-facebooks-advertising-strategy/"><u>Departing Leader of Facebook's Advertising Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/dialing-back-time-my-first-day-on-facebook/"><u>Dialing Back Time: My First Day on Facebook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/direct-from-youtube-select-sites-for-effortless-tone-downloads/"><u>Direct-From-YouTube Select Sites for Effortless Tone Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-lifeline-of-your-digital-world-fb-uptime-insights/"><u>Discover the Lifeline of Your Digital World: FB Uptime Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-link-stay-off-the-facebook-record-list/"><u>Don't Link, Stay Off the Facebook Record List</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-hd-audio-experience-in-win11/"><u>Effortless HD Audio Experience in Win11</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-epson-wf-7710-up-and-running-on-windows-download-compatible-drivers/"><u>Get Your Epson WF-7710 Up and Running on Windows: Download Compatible Drivers</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-quickly-and-easily-delete-subtitles-from-your-mkv-movie-files-a-step-by-step-tutorial/"><u>How to Quickly and Easily Delete Subtitles From Your MKV Movie Files: A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-youtubes-comment-analysis-for-2024/"><u>Mastering YouTube's Comment Analysis for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/overcoming-shell32dll-is-absent-troubles-proven-fixes-for-seamless-operation/"><u>Overcoming 'Shell32.dll Is Absent' Troubles: Proven Fixes for Seamless Operation</u></a></li>
+<li><a href="https://howto.techidaily.com/solved-warning-camera-failed-on-nubia-red-magic-9-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
 </ul></div>
 

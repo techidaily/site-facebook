@@ -1,7 +1,7 @@
 ---
 title: Unplugging Spotify's Social Media Connection From FB
-date: 2024-08-28T03:11:22.951Z
-updated: 2024-08-29T03:11:22.951Z
+date: 2024-12-11T20:12:10.509Z
+updated: 2024-12-12T16:53:05.350Z
 tags:
   - facebook
 categories:
@@ -31,15 +31,16 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
 
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
 ###
@@ -52,12 +53,9 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
 
  You can also manage the apps and websites connected to your Facebook. Here's how:
@@ -69,22 +67,25 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -92,14 +93,11 @@ Close
 
  For now, focus on finding the best playlists around and enjoying your favorite tracks on Spotify.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -108,4 +106,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-focused-adventure-getting-up-close-in-roblox-landscapes/"><u>[New] Focused Adventure Getting Up Close in Roblox Landscapes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-art-of-vlogging-your-ultimate-journey-begins-here/"><u>[Updated] Mastering The Art of Vlogging Your Ultimate Journey Begins Here</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mov-m4v-movavi/"><u>移動影片 MOV 到 M4V 自由無償傳輸 - 使用 Movavi 編解碼器</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-of-facebook-covers-how-to-infuse-your-persona-into-your-online-space-using-an-avatar/"><u>A New Era of Facebook Covers: How to Infuse Your Persona Into Your Online Space Using an Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-year-in-review-googles-most-influential-moments/"><u>A Year In Review: Google's Most Influential Moments</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/avi-mpg/"><u>AVI 형식으로 무료 MPG 릿지화 변환을 위한 단순하고 효과적인 도구 - 모바피</u></a></li>
+<li><a href="https://facebook.techidaily.com/broaden-your-reach-upload-fb-material-to-popular-app-platforms-now/"><u>Broaden Your Reach: Upload Fb Material to Popular App Platforms Now!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/cutting-edge-8-lens-modifications-for-webcams/"><u>Cutting-Edge 8 Lens Modifications for Webcams</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-icons-and-symbols-what-do-they-mean/"><u>Facebook Messenger Icons and Symbols: What Do They Mean?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-easily-keep-using-apowersoft-background-erase-after-expiration-automatic-subscription-renewal-process-for-the-ios-app-store/"><u>How to Easily Keep Using Apowersoft Background Erase After Expiration - Automatic Subscription Renewal Process for the iOS App Store</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-upgrade-your-video-presentations-zooming-through-filter-techniques/"><u>In 2024, Upgrade Your Video Presentations Zooming Through Filter Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-fb-login-without-codes-a-step-by-step-guide/"><u>Regaining FB Login Without Codes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/trasforma-i-tuoi-wma-in-ogg-gratuitamente-online-utilizzando-movavi/"><u>Trasforma I Tuoi WMA in Ogg Gratuitamente Online Utilizzando Movavi!</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/x-plane-cuatrocientos-once-reviewed-stunning-visuals-meet-cutting-edge-simulation-tech/"><u>X-Plane Cuatrocientos Once Reviewed: Stunning Visuals Meet Cutting-Edge Simulation Tech</u></a></li>
+</ul></div>
 

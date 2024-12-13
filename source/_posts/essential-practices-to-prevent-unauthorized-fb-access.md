@@ -1,7 +1,7 @@
 ---
 title: Essential Practices to Prevent Unauthorized FB Access
-date: 2024-10-20T02:11:18.568Z
-updated: 2024-10-20T18:55:44.074Z
+date: 2024-12-11T23:38:49.850Z
+updated: 2024-12-12T20:04:05.214Z
 tags:
   - facebook
 categories:
@@ -36,13 +36,6 @@ This makes you vulnerable to losing access to your account.
 
  Ideally, your password should be OK, two-factor authentication enabled, and login alerts turned on. The tool will help you close those three particular security gaps, but we'll also show you how to double-check everything manually too.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Update Your Contact Information
 
 ![Facebook General Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-General-Account-Settings.jpg)
@@ -60,10 +53,7 @@ Here are the contact details you can update and how to do so...
 ![Facebook Add Another Email Address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Add-Another-Email-Address.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Head to**Account > Settings & privacy > Settings** , which should send you to the[**General** account settings](https://www.facebook.com/settings?tab=account) . Here, click**Edit** next to**Contact** to see all the email addresses added to your account.
@@ -74,16 +64,13 @@ Here are the contact details you can update and how to do so...
 
  In other words, having a working email address on record is an extra layer of security, as you will be notified of changes and can prevent them, while at the same time being able to use that address to recover access to your account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mobile Phone Number
 
 ![Facebook Confirm Your Number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Confirm-Your-Number.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Now let's check the phone numbers attached to your Facebook account. Switch to the[**Mobile** settings](https://www.facebook.com/settings?tab=account&section=email&view) screen and review the phone numbers listed here.
 
@@ -100,10 +87,7 @@ Here are the contact details you can update and how to do so...
 ![Facebook Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Change-Password.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A weak password is one of the most likely ways to get your account hacked. A strong password is just as bad if you're using it for more than one online account.
@@ -120,6 +104,10 @@ Here are the contact details you can update and how to do so...
 
 ![Facebook Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Setting-Up-Extra-Security.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To receive email or text message notifications when someone logs into your Facebook account from a new device or location, set up login alerts.
 
  Head to Facebook **Settings >[Security and Login](https://www.facebook.com/settings?tab=security)**  , scroll down to**Setting Up Extra Security** , and click**Edit** next to the**Get alerts about unrecognized logins** option.
@@ -133,10 +121,7 @@ Here are the contact details you can update and how to do so...
 ![Facebook Two-Factor Authentication and Authorized Logins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Two-Factor-Authentication-and-Authorized-Logins.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Two-factor authentication makes it more difficult for someone else to log into your Facebook account. Every time anyone (even you) wants to log into your Facebook account from an unauthorized device, they will need to provide a security code.
@@ -180,20 +165,14 @@ We highly recommend that you set up the following security methods:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-essential-knowledge-for-effective-use-of-the-io-screener/"><u>[New] 2024 Approved Essential Knowledge for Effective Use of the IO Screener</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-13-effortless-revenue-strategies-for-newbies-on-reddit/"><u>[New] Top 13 Effortless Revenue Strategies for Newbies on Reddit</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-posting-videos-on-instagram-easy-for-2024/"><u>[Updated] Posting Videos on Instagram Easy for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-meanings-behind-facebooks-latest-page-label-modifications/"><u>Dissecting the Meanings Behind Facebook's Latest Page Label Modifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-gaming-experience-with-social-integration-on-xbox/"><u>Enhancing Your Gaming Experience with Social Integration on Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-algorithm-why-it-hesitates-to-disable-suggests/"><u>Facebook Algorithm: Why It Hesitates to Disable Suggests</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacking-incidents-social-network-sector/"><u>Hacking Incidents: Social Network Sector</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-pixel-8-pro-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Pixel 8 Pro</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-7-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 7 to other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-boost-your-tiktok-visibility-a-list-of-popular-username-choices/"><u>In 2024, Boost Your TikTok Visibility A List of Popular Username Choices</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-xiaomi-redmi-12-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Xiaomi Redmi 12 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-illusion-fake-account-detection/"><u>Online Illusion: Fake Account Detection</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-facebook-experience-by-mastering-friends-list-management/"><u>Optimize Your Facebook Experience by Mastering Friends List Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-sues-indian-government-against-new-it-rules-that-threaten-users-privacy/"><u>WhatsApp Sues Indian Government Against New IT Rules That Threaten Users' Privacy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-run-a-sports-youtube-chain-on-macos-for-2024/"><u>[New] How to Run a Sports YouTube Chain on MacOS for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-phones-to-fantasy-crafting-a-home-for-vr-goggles-for-2024/"><u>[New] Phones to Fantasy Crafting a Home for VR Goggles for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-is-a-brief-subscribe-beneficial-for-content-consumption-in-2024/"><u>[Updated] Is a Brief Subscribe Beneficial for Content Consumption, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-maximum-engagement-reached/"><u>Facebook: Maximum Engagement Reached?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/barely-seen-to-highly-engaged-the-journey-of-youtube-short-success/"><u>From Barely Seen to Highly Engaged The Journey of YouTube Short Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-influence-top-strategies-for-boosting-engagement-on-fb/"><u>Harnessing Influence: Top Strategies for Boosting Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-social-media-sites-have-dislike-buttons/"><u>Should Social Media Sites Have Dislike Buttons?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-fabric-of-friendships-in-social-media/"><u>Unraveling the Fabric of Friendships in Social Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/xbox-live-success-top-four-steps-to-perfect-your-recording/"><u>Xbox Live Success Top Four Steps to Perfect Your Recording</u></a></li>
 </ul></div>
 

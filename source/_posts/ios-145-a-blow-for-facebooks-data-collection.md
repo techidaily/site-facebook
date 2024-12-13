@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-12-05T22:07:37.912Z
-updated: 2024-12-06T18:18:30.799Z
+date: 2024-12-07T18:37:19.003Z
+updated: 2024-12-13T00:12:37.968Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
  Facebook's primary source of revenue is selling advertising space on its social media platforms.
@@ -57,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Facebook's Official Stance on App Tracking Transparency?
@@ -65,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
@@ -76,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
@@ -83,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -127,21 +127,24 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-whats-behind-the-black-screen-a6400-struggle/"><u>[New] What's Behind the Black Screen A6400 Struggle</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-creative-instagram-story-questions-increase-engagement/"><u>[Updated] 2024 Approved Creative Instagram Story Questions Increase Engagement</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-evaluating-macs-leading-snipping-tools-compilation/"><u>[Updated] 2024 Approved Evaluating Mac's Leading Snipping Tools Compilation</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-digital-rights-unexpected-content-take-downs/"><u>2024 Approved Digital Rights Unexpected Content Take-Downs</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-leveraging-fb-platforms-for-public-health-initiatives/"><u>In 2024, Leveraging FB Platforms for Public Health Initiatives</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-radiant-rendering-the-graders-artistic-journey/"><u>In 2024, Radiant Rendering The Grader's Artistic Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-networked-lifetimes-on-fb/"><u>Navigating Through Networked Lifetimes on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-coding-shaped-by-facebook-and-rust-alliance/"><u>The Future of Coding, Shaped by Facebook & Rust Alliance</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ideal-time-frame-for-fb-campaigns/"><u>The Ideal Time Frame for Fb Campaigns</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/topas-5-para-solucionar-problemas-de-ventanas-11-guia-exclusiva-con-cmd/"><u>Topas 5 Para Solucionar Problemas De Ventanas 11: Guía Exclusiva Con CMD</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultra-lightning-top-speedy-android-apps/"><u>Ultra-Lightning: Top Speedy Android Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-your-potential-in-social-media-storytelling-via-facebook/"><u>Unlocking Your Potential in Social Media Storytelling via Facebook</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/view-count-value-on-youtubes-earnings-graph-for-2024/"><u>View Count Value on YouTube's Earnings Graph for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/web-based-free-conversion-of-aac-to-m4a-audio-files-movavi-guide/"><u>Web-Based Free Conversion of AAC to M4A Audio Files - Movavi Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-crafted-clicks-guide-to-software-and-sites-for-superior-photo-framing-for-2024/"><u>[New] Crafted Clicks Guide to Software & Sites for Superior Photo Framing for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-todays-virtual-realty-hardware-exploration/"><u>[New] In 2024, Today’s Virtual Realty Hardware Exploration</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-epic-visual-storyteller-suite-top-tier-for-2024/"><u>[Updated] Epic Visual Storyteller Suite - Top Tier for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-melody-in-motion-incorporating-music-into-powerpoint/"><u>[Updated] Melody in Motion Incorporating Music Into PowerPoint</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-transform-ordinary-pictures-into-viral-masterpieces-on-tiktok-for-2024/"><u>[Updated] Transform Ordinary Pictures Into Viral Masterpieces on TikTok for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-tailoring-blends-for-stunning-composite-videos/"><u>2024 Approved Tailoring Blends for Stunning Composite Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/examining-youtubes-copyright-stance-versus-cc-approach/"><u>Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-oneplus-ace-2v-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock OnePlus Ace 2V</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-as-a-digital-trendsetter/"><u>Rising as a Digital Trendsetter</u></a></li>
+<li><a href="https://games-able.techidaily.com/rising-through-the-roosters-of-new-york-city-unconventionally/"><u>Rising Through the Roosters of New York City Unconventionally</u></a></li>
+<li><a href="https://win11.techidaily.com/seamless-os-transition-windows-on-your-steam-deck/"><u>Seamless OS Transition: Windows on Your Steam Deck</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-continues-facebooks-rebuttal-to-the-end/"><u>The Evolution Continues - Facebook's Rebuttal to the End</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-path-to-compromised-data-security/"><u>The Veiled Path to Compromised Data Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-birthday-reminders-in-your-fb-timeline/"><u>Unearthing Birthday Reminders in Your FB Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocked-facebook-offers-complete-control-of-oculus-go-to-devices/"><u>Unlocked: Facebook Offers Complete Control of Oculus Go to Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-legality-of-upload-photographs/"><u>Unraveling the Legality of Upload Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-conspiracies-the-whistleblowers-expose-of-fb-data/"><u>Unveiling Conspiracies: The Whistleblower's Expose of FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-dating-how-to-get-started/"><u>What Is Facebook Dating? How to Get Started</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Securing Friendships: Hide Your Facebook List"
-date: 2024-08-28T03:13:01.505Z
-updated: 2024-08-29T03:13:01.505Z
+date: 2024-12-11T20:41:11.072Z
+updated: 2024-12-12T21:09:30.967Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,25 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
  What can be done, is hiding all your friends from all your friends, or hiding all your friends from some of your friends. Follow the steps below, and you too will be able to gain just a little more of that precious privacy online.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Who Can See Your Facebook Friends?
 
  At the moment, there are two likely scenarios: either everyone can see your friends list or only your friends can see your friends list. No matter who can or can't see your full friends list, though, anyone can see if they have mutual friends with you and also see who they are. This is possible even if they're not your friends. In the example below, you can see we have 23 mutual friends in the grey text under the profile name.
 
 ![facebook mutual followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-mutual-followers.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Hide Your Facebook Friends List
 
@@ -45,26 +57,18 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 ### Hiding Your Friends List on Desktop
@@ -82,8 +86,9 @@ The steps are similar on Facebook's desktop website.
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
@@ -94,23 +99,17 @@ The steps are similar on Facebook's desktop website.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Gaining Privacy on Facebook
 
  Facebook should be a place where you can connect with friends and have fun without sharing information that you don't want to.
 
  Not wanting people to see your friends list isn't a bad thing, and you may even benefit from hiding it. Hiding your Facebook network may protect you and your friends from dangerous or bothersome strangers messaging you. You may also protect yourself from drama related to your family or friends seeing who else you are friends with on Facebook. Gaining this privacy can keep you safe and free from stress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +118,22 @@ The steps are similar on Facebook's desktop website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-navigating-free-text-animation-for-artists/"><u>[New] In 2024, Navigating Free Text Animation for Artists</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-quality-recording-of-your-roblox-journeys-on-mac/"><u>[Updated] How-To Quality Recording of Your Roblox Journeys on Mac</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopro-vs-yi-4k-updated-review-of-ultimate-action-cams/"><u>2024 Approved GoPro Vs. Yi 4K Updated Review of Ultimate Action Cams</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-honor-magic-6-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Honor Magic 6 Without Volume Buttons | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaai-a-next-gen-chatbot-enhancer/"><u>Decoding MetaAI: A Next-Gen Chatbot Enhancer</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-which-platform-delivers-the-deeper-digital-community/"><u>Discovering Which Platform Delivers the Deeper Digital Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-path-of-internet-privacy-technologies/"><u>Evolutionary Path of Internet Privacy Technologies</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/exploring-the-ins-and-outs-of-movavis-return-and-refund-terms/"><u>Exploring the Ins and Outs of Movavi's Return & Refund Terms</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-avoid-virtual-reality-queasiness-5-useful-tips/"><u>In 2024, Avoid Virtual Reality Queasiness 5 Useful Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamped-social-messaging-discover-how-fb-upgrades-apps-like-messenger-and-instagram/"><u>Revamped Social Messaging: Discover How FB Upgrades Apps Like Messenger & Instagram</u></a></li>
+<li><a href="https://win-popular.techidaily.com/seamless-file-sharing-between-mac-and-google-drive/"><u>Seamless File Sharing Between Mac and Google Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-facebook-networks-profiling-and-page-links/"><u>Unlocking Facebook Networks: Profiling and Page Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-worlds-transformed-discovering-4-social-media-metamorphoses/"><u>Virtual Worlds Transformed: Discovering 4 Social Media Metamorphoses</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
+</ul></div>
 

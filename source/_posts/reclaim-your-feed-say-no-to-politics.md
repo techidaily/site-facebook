@@ -1,7 +1,7 @@
 ---
 title: Reclaim Your Feed, Say No to Politics
-date: 2024-11-22T19:06:38.992Z
-updated: 2024-11-26T23:56:54.710Z
+date: 2024-12-08T18:26:39.278Z
+updated: 2024-12-13T00:10:35.836Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Timeline Can Get Swamped With Politics
 
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
@@ -37,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Filter Politics Out of Your Facebook Feed
@@ -47,12 +51,16 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -63,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Alternatively, if a source is completely unbearable, you can[unfollow a page or person on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) entirely. This is particularly useful if you don't want to unfriend a person but want to stop seeing their posts.
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Remove Your Political Views From Your Profile
 
@@ -76,27 +88,15 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Use a Browser Extension
 
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Creating a Facebook Feed You Enjoy
 
@@ -117,21 +117,24 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-unveiling-recmeisters-high-quality-screen-recording-capabilities/"><u>[New] Unveiling Recmeister's High-Quality Screen Recording Capabilities</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-efficient-group-coordination-with-skype-windows-mac/"><u>[Updated] In 2024, Efficient Group Coordination with Skype (Windows, Mac)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-skyrocketing-subscribers-free-techniques-for-youtube-success/"><u>2024 Approved Skyrocketing Subscribers Free Techniques for YouTube Success</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/mic-journey-across-time-top-10-history-youtubers/"><u>Academic Journey Across Time Top 10 History YouTubers</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/affordable-and-fast-ev-charge-stations-why-experts-say-powerdrive-tops-every-list-for-cost-effective-solutions/"><u>Affordable and Fast EV Charge Stations - Why Experts Say PowerDrive Tops Every List for Cost-Effective Solutions!</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-cross-cultural-communication-via-fb-content/"><u>Enhancing Cross-Cultural Communication via FB Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-dismantle-a-digital-footprint-a-comprehensive-guide-for-businesses-on-facebook/"><u>How to Dismantle a Digital Footprint: A Comprehensive Guide for Businesses on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-redefine-your-birthday-on-the-worlds-most-popular-social-network/"><u>How to Redefine Your Birthday on the World’s Most Popular Social Network</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-pro-magix-video-pro-x-journey/"><u>In 2024, From Novice to Pro Magix Video Pro X Journey</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-curate-a-facebook-playlist-via-phonetablet/"><u>In 2024, How to Curate a Facebook Playlist via Phone/Tablet</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-social-commerce-secure-eliminating-scams-and-swindles-on-fb-markets/"><u>Keep Your Social Commerce Secure – Eliminating Scams and Swindles on FB Markets</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-engagement-through-strategic-posting/"><u>Maximizing Engagement Through Strategic Posting</u></a></li>
-<li><a href="https://facebook.techidaily.com/solutions-for-non-receipt-of-facebook-login-code/"><u>Solutions for Non-Receipt of Facebook Login Code</u></a></li>
-<li><a href="https://facebook.techidaily.com/teaching-you-share-your-whereabouts-via-fb-chat/"><u>Teaching You: Share Your Whereabouts via FB Chat</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-10-strategies-for-rapidly-converting-ts-videos-to-premium-mp4-format/"><u>Top 10 Strategies for Rapidly Converting TS Videos to Premium MP4 Format</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unraveling-the-spinning-video-issue-on-instagram/"><u>Unraveling the Spinning Video Issue on Instagram</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-critical-top-5-minute-tight-video-capturers-guide-for-2024/"><u>[New] Critical Top 5 Minute-Tight Video Capturers Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-exclusive-youtube-gamers-intros-freepaid-for-2024/"><u>[New] Ultimate Guide to Exclusive YouTube Gamers' Intros (Free/Paid) for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-guidelines-for-eliminating-obs-fullscreen-freeze/"><u>[Updated] Guidelines for Eliminating OBS Fullscreen Freeze</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-inside-out-top-tips-for-windows-11-pros/"><u>2024 Approved Inside Out Top Tips for Windows 11 Pros</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/apple-watch-series-7-ultra-unveiled-release-dates-pricing-and-latest-rumored-features-revealed/"><u>Apple Watch Series 7 (Ultra) Unveiled: Release Dates, Pricing, and Latest Rumored Features Revealed!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/effortlessly-regain-onedrive-entry-points-in-windows/"><u>Effortlessly Regain OneDrive Entry Points in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-to-end-encryption-in-fb-messengers-future/"><u>End-to-End Encryption in FB Messenger's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-move-to-unlock-oculus-go-root-access-explained/"><u>Facebook's Move to Unlock Oculus Go Root Access Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-persistent-content-advice-explored/"><u>Facebook's Persistent Content Advice Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-top-tier-credential-metas-verified-pathway/"><u>Gain Top-Tier Credential: Metas’ Verified Pathway</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-gain-entry-back-into-your-fb-account/"><u>Guidelines to Gain Entry Back Into Your FB Account</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-highlighted-10-faceshaping-tech-on-phones/"><u>In 2024, Highlighted 10 Faceshaping Tech on Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-facebooks-revamped-privacy-center/"><u>Navigating the Nuances of Facebook’s Revamped Privacy Center</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-by-step-guide-to-mastering-chinese-characters/"><u>Step-by-Step Guide to Mastering Chinese Characters</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-insights-into-metas-revised-data-protection-policy/"><u>Top Insights Into Meta’s Revised Data Protection Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-deceptive-design-poor-privacy-decisions/"><u>Unveiling Deceptive Design: Poor Privacy Decisions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-veiled-figures-of-facebook-users/"><u>Unveiling the Veiled Figures of Facebook Users</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-best-ai-rap-voice-generators-you-should-try/"><u>Updated 2024 Approved Best AI Rap Voice Generators You Should Try</u></a></li>
 </ul></div>
 

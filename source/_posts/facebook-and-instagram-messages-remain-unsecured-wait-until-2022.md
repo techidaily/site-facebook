@@ -1,7 +1,7 @@
 ---
 title: Facebook & Instagram Messages Remain Unsecured - Wait Until 2022
-date: 2024-10-15T01:57:27.242Z
-updated: 2024-10-21T01:52:56.782Z
+date: 2024-12-07T16:47:44.863Z
+updated: 2024-12-12T18:09:25.746Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Has Been Slow in Adding Default Chat Encryption
 
  Facebook first promised to add end-to-end encryption to Instagram Direct and Messenger in 2019\. However, it has been taking its own sweet time for this, and it is even testing various Messenger features that won't work with end-to-end encryption.
@@ -39,16 +43,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
  Related: [What Is End-to-End Encryption?](https://www.makeuseof.com/what-is-end-to-end-encryption/)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Messaging Apps With End-to-End Encryption Have Soared in Popularity
@@ -56,10 +51,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/messenger-on-a-phone.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Messaging services with end-to-end encryption have surged in popularity in recent times. WhatsApp, iMessage, and Signal are among the major messaging platforms with end-to-end encryption support.
@@ -87,24 +79,16 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-capturing-motion-in-4k-with-nikon-d500-for-2024/"><u>[New] Capturing Motion in 4K with Nikon D500 for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[Updated] 2024 Approved Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-raucous-reels-crafting-7-comedy-storylines-for-social-media-stars-for-2024/"><u>[Updated] Raucous Reels Crafting 7 Comedy Storylines for Social Media Stars for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-uniting-voices-for-virtual-fame-on-tiktok/"><u>2024 Approved Uniting Voices for Virtual Fame on TikTok</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-the-invisible-barriers-shadowban-in-digital-realms/"><u>Avoiding the Invisible Barriers (Shadowban) in Digital Realms</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/essential-enhancements-for-terria-pros-for-2024/"><u>Essential Enhancements for Terria Pros for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-phase-out-of-facebooks-faces-at-meta/"><u>Examining the Phase-Out of Facebook’s Faces at Meta</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-a-lost-apple-iphone-se-2020-for-free-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track a Lost Apple iPhone SE (2020) for Free? | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-transform-your-memories-best-online-photo-and-video-collage-apps-for-2024/"><u>New Transform Your Memories Best Online Photo and Video Collage Apps for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153399725-no-media-all-eyes-on-you-go-insta-live/"><u>No Media, All Eyes On You: Go Insta-Live!</u></a></li>
-<li><a href="https://facebook.techidaily.com/quiet-your-screen-instagram-live-wo-audiovideo/"><u>Quiet Your Screen: Instagram Live W/O Audio/Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/reimagining-connectivity-fbs-six-metaverse-marvels/"><u>Reimagining Connectivity: FB’s Six Metaverse Marvels</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-for-gone-posts-a-guide-to-old-fb-content/"><u>Sifting for Gone Posts: A Guide to Old FB Content</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-v30-lite-5g-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from V30 Lite 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-for-erasing-your-fb-browsing-log/"><u>Tips for Erasing Your FB Browsing Log</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-ray-ban-stories-and-its-price-range/"><u>Understanding Facebook's Ray-Ban Stories and Its Price Range</u></a></li>
-<li><a href="https://change-location.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Samsung Galaxy M34 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-halts-enforcement-of-upcoming-privacy-update/"><u>WhatsApp Halts Enforcement of Upcoming Privacy Update</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-2023-20-best-practices-for-facebook-video-advertising/"><u>2024 Approved 2023 | 20 Best Practices for Facebook Video Advertising</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-review-of-amazons-fire-tv-cube-your-speedy-streaming-solution/"><u>Comprehensive Review of Amazon's Fire TV Cube - Your Speedy Streaming Solution</u></a></li>
+<li><a href="https://win-special.techidaily.com/effective-strategies-to-minimize-ram-consumption-on-your-computer-tips-and-tricks-by-yl-computing/"><u>Effective Strategies to Minimize RAM Consumption on Your Computer - Tips & Tricks by YL Computing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/essential-tablets-for-enhancing-photos-move-past-filmora/"><u>Essential Tablets for Enhancing Photos Move Past Filmora</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-samsung-by-drfone-android/"><u>Full Guide to Unlock Your Samsung</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-triggers-behind-your-fb-ban/"><u>Hidden Triggers Behind Your Fb Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-leader-joins-forces-with-world-health-in-pandemic-battle/"><u>Internet Leader Joins Forces with World Health in Pandemic Battle</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-posts-a-guide-with-ripl/"><u>Mastering Social Media Posts: A Guide with Ripl</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-realme-11-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-sponsored-feed-presentation/"><u>Streamline Social Media Sponsored Feed Presentation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-6-choices-prime-microphones-for-dynamic-online-broadcasts/"><u>Top 6 Choices Prime Microphones for Dynamic Online Broadcasts</u></a></li>
 </ul></div>
 

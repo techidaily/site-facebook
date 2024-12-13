@@ -1,7 +1,7 @@
 ---
 title: "Navigating Netiquette: Staying Private without Sacrificing Connection"
-date: 2024-10-14T22:14:40.384Z
-updated: 2024-10-20T17:28:21.357Z
+date: 2024-12-11T18:15:12.337Z
+updated: 2024-12-12T16:33:52.274Z
 tags:
   - facebook
 categories:
@@ -28,9 +28,17 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -46,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -60,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -81,13 +86,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -100,6 +98,10 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
  The key point is that you simply don't (and can't) know all the facts. If someone is sick or in trouble, they should seek professional help. This also applies to advice on exercise, weight loss, diet, finance, relationships, and other sensitive topics. You're not going to get the whole picture from a social post.
@@ -110,31 +112,21 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
  If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -143,13 +135,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  On the internet, once something has been published, it's pretty much impossible to remove it completely. Even if you set your posts to "friends only," there's no way to know for sure who's seen your posts and photos, saved them, or shared them with someone else. Someone could always send a screenshot to another person who can't "officially" see the post, for instance.
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
 
@@ -172,18 +157,21 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-keeping-content-copyright-compliant-with-instra-watermarking/"><u>[New] 2024 Approved Keeping Content Copyright-Compliant with Instra Watermarking</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-how-to-download-facebook-story-5-methods/"><u>[New] In 2024, How to Download Facebook Story [5 Methods]</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-wealth-of-mr-beast/"><u>[New] In 2024, The Wealth of Mr. Beast</u></a></li>
-<li><a href="https://win-able.techidaily.com/addressing-the-challenges-of-nwstoreexe-glitches-expert-troubleshooting-tips/"><u>Addressing the Challenges of NW_Store.exe Glitches: Expert Troubleshooting Tips</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/amazonbasics-7-port-usb-30-hub-review-all-the-ports-you-desire/"><u>AmazonBasics 7 Port USB 3.0 Hub Review: All The Ports You Desire</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-intrusions-social-media-statistics/"><u>Cyber Intrusions: Social Media Statistics</u></a></li>
-<li><a href="https://facebook.techidaily.com/guidelines-for-describing-images-on-facebook/"><u>Guidelines for Describing Images on Facebook</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-realme-gt-neo-5-se-to-mac-drfone-by-drfone-android/"><u>How to Mirror Realme GT Neo 5 SE to Mac? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mute-the-noise-steps-to-silence-post-reactions-on-social/"><u>Mute the Noise: Steps to Silence Post Reactions on Social</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-redefined-a-comparative-analysis-of-the-metaverse-and-virtual-reality/"><u>Reality Redefined: A Comparative Analysis of the Metaverse and Virtual Reality</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-safely-acquire-privately-shared-facebook-media/"><u>Steps to Safely Acquire Privately Shared Facebook Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-pioneer-trumps-online-revival/"><u>The Digital Pioneer: Trumps Online Revival</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/undead-lore-weaver/"><u>Undead Lore Weaver</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-9-essential-360-degree-recording-techniques/"><u>[New] Ultimate Guide 9 Essential 360-Degree Recording Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-weaving-yt-music-threads-through-video-tapestry/"><u>[Updated] 2024 Approved Weaving YT Music Threads Through Video Tapestry</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-local-networking-who-can-connect-and-why/"><u>Facebook's Local Networking: Who Can Connect & Why?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-judgement-on-trump/"><u>Facebook's Upcoming Judgement on Trump</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-download-compatible-hp-printer-software-and-drivers/"><u>Free Download: Compatible HP Printer Software and Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/highlighting-googles-most-influential-press-moments/"><u>Highlighting Google's Most Influential Press Moments</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-find-and-install-the-newest-audio-driver-for-asus-xonar-dgx-card-online/"><u>How to Find & Install the Newest Audio Driver for ASUS Xonar DGX Card Online</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-a38-phone-without-google-account-by-drfone-android/"><u>How to Unlock Oppo A38 Phone without Google Account?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-samsung-galaxy-s23plus-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Samsung Galaxy S23+ FRP Locks</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-how-to-make-a-ken-burns-effect-in-camtasia-9/"><u>In 2024, How to Make a Ken Burns Effect in Camtasia 9?</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-content-cleanse-tools-and-tactics-for-clearer-profiles/"><u>Online Content Cleanse: Tools and Tactics for Clearer Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/playful-proximity-in-the-virtual-world/"><u>Playful Proximity in the Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-security-email-address-is-(securityfbcom)-genuine/"><u>Scrutinizing Security Email Address: Is @<security@fb.com> Genuine?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/simple-steps-for-eliminating-microsofts-coder-assistant-from-windows-11-systems/"><u>Simple Steps for Eliminating Microsoft's Coder Assistant From Windows 11 Systems</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-itel-p40plus-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Itel P40+</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-revolution-discovering-myself-without-social-media/"><u>The Quiet Revolution: Discovering Myself without Social Media</u></a></li>
 </ul></div>
 

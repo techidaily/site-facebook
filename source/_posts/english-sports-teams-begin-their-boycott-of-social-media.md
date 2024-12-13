@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-11-20T18:46:51.004Z
-updated: 2024-11-26T20:56:52.753Z
+date: 2024-12-07T16:30:17.970Z
+updated: 2024-12-12T21:38:31.184Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## England Sports' Social Media Blackout Has Begun
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -81,24 +81,19 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-leaderboard-best-following-drone-technology/"><u>[Updated] 2024 Approved Leaderboard Best-Following Drone Technology</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-digital-video-conquerors-ultimate-toolkit-list/"><u>[Updated] In 2024, Digital Video Conquerors' Ultimate Toolkit List</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-complete-guide-to-facebooks-live-feature-how-to-and-best-practices/"><u>[Updated] In 2024, The Complete Guide to Facebook's Live Feature How-To & Best Practices</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209920626-9781071513996-365-citacoes-taoistas/"><u>365 Citações Taoistas | Free Book</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-y17s-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo Y17s to iPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-sound-focused-platform-amidst-clubhouse-rise/"><u>Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise</u></a></li>
-<li><a href="https://facebook.techidaily.com/getting-back-into-facebook-a-guide-without-access-codes/"><u>Getting Back Into Facebook: A Guide Without Access Codes</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Realme GT 5 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-innovative-snapchat-strategies-the-ultimate-list/"><u>In 2024, Innovative Snapchat Strategies The Ultimate List</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-or-out-assessing-facebooks-expat-group-dynamics/"><u>Inside or Out: Assessing Facebook’s Expat Group Dynamics</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-daring-maneuvers-in-europe-could-rename-the-tech-titans-landscape/"><u>Meta’s Daring Maneuvers in Europe Could Rename the Tech Titans Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-prioritized-the-iphone-trend-shift/"><u>Privacy Prioritized: The iPhone Trend Shift</u></a></li>
-<li><a href="https://win-trending.techidaily.com/semplice-scrittura-di-zeri-su-disco-rigido-seagate-due-metodi-efficaci/"><u>Semplice Scrittura Di Zeri Su Disco Rigido Seagate: Due Metodi Efficaci</u></a></li>
-<li><a href="https://win-able.techidaily.com/solved-query-troubleshooting-the-missing-vanguard-setup-in-valorant/"><u>Solved Query: Troubleshooting the Missing Vanguard Setup in Valorant</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-for-reading-between-the-lines-in-fb-dms/"><u>Techniques for Reading Between the Lines in FB DMs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/outuber-revolutionary-jake-pauls-content-conquest/"><u>The YouTuber Revolutionary Jake Paul's Content Conquest</u></a></li>
-<li><a href="https://facebook.techidaily.com/uniting-for-better-code-facebook-embraces-rust-initiative/"><u>Uniting for Better Code: Facebook Embraces Rust Initiative</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-fb-and-instas-latest-test-of-sponsored-story-stickers/"><u>Unveiling FB and Insta's Latest Test of Sponsored Story Stickers</u></a></li>
-<li><a href="https://facebook.techidaily.com/will-your-linkedin-endorsements-ever-expire/"><u>Will Your LinkedIn Endorsements Ever Expire?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-elite-10-add-ons-to-elevate-terria-for-2024/"><u>[New] Elite 10 Add-Ons to Elevate Terria for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-taking-your-photo-skills-to-new-heights-creating-timelapse-footage-with-gopro-studio/"><u>[Updated] Taking Your Photo Skills to New Heights Creating Timelapse Footage with GoPro Studio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/a-step-by-step-guide-to-updating-photos-and-videos-on-instagram-for-2024/"><u>A Step-by-Step Guide to Updating Photos and Videos on Instagram for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/bcm2045a0-drivers-fixed-in-no-time-now-working-smoothly/"><u>BCM2045A0 Drivers Fixed in No Time - Now Working Smoothly</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/benefits-of-opting-for-malwarefox-over-competitive-antivirus-software-a-comprehensive-guide/"><u>Benefits of Opting for MalwareFox Over Competitive Antivirus Software: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/crafting-success-the-premier-list-of-ai-namesmiths/"><u>Crafting Success The Premier List of AI Namesmiths</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-huawei-nova-y71-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Huawei Nova Y71 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95782300-9781591438335-lost-race-of-the-giants/"><u>Lost Race of the Giants | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-revealed-attracting-professionals-as-clients-via-fb/"><u>Secrets Revealed: Attracting Professionals as Clients via FB</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-determining-weekdays-from-dates-using-microsoft-excel/"><u>Step-by-Step Guide: Determining Weekdays From Dates Using Microsoft Excel</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-mirage-uncovering-its-darker-impact-on-users/"><u>The Social Media Mirage: Uncovering Its Darker Impact on Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/tighten-control-over-personalized-ad-delivery-in-social-sites/"><u>Tighten Control Over Personalized Ad Delivery in Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispered-ban-for-fb-users-practicing-genuine-business-tactics/"><u>Whispered Ban for FB Users Practicing Genuine Business Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-definitive-guide-to-overcoming-common-social-media-challenges-on-fb/"><u>Your Definitive Guide to Overcoming Common Social Media Challenges on FB</u></a></li>
 </ul></div>
 

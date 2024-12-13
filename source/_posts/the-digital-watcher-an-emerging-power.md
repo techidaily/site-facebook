@@ -1,7 +1,7 @@
 ---
 title: "The Digital Watcher: An Emerging Power"
-date: 2024-08-28T03:11:15.956Z
-updated: 2024-08-29T03:11:15.956Z
+date: 2024-12-08T21:32:37.811Z
+updated: 2024-12-12T20:55:59.246Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
  In theory, surveillance capitalism helps businesses create better products, hold efficient inventory, and serve customers exactly what they need as soon as possible. By accurately pinpointing or swaying supply and demand, surveillance capitalism opens up a world of endless convenience.
@@ -36,16 +40,17 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
  Unfortunately,[acquiring data has never been so easy](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . With the rise of social media, smart home devices, wearable technology, ecommerce, telemedicine, and online financial services, data brokers have a myriad of options to gather a terrifying amount of data on individuals in real-time.
@@ -59,13 +64,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
@@ -75,9 +85,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
@@ -90,9 +97,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
  With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with[human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to[destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly[steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
@@ -109,9 +113,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Running Out of Ways to Opt Out
 
  As time passes, the hold that surveillance capitalism has on us only grows. It's difficult to untangle ourselves from this endless feedback loop of having our data sold, being manipulated into purchases, and teaching the surrounding systems how to do it more precisely.
@@ -124,14 +125,11 @@ In fact, we are already running out of ways to opt out.
 
  Thankfully, there are still some things you can do to make it harder for them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +138,18 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-immersive-memories-a-compreeved-guide-to-saving-your-vr-gaming-journey/"><u>[New] 2024 Approved Immersive Memories A Compreeved Guide to Saving Your VR Gaming Journey</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-sparring-spirits-versus-social-media-savvy/"><u>[Updated] Sparring Spirits Versus Social Media Savvy</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-step-by-step-guide-setting-up-your-psn-profile/"><u>A Step-by-Step Guide: Setting Up Your PSN Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-latest-intimacy-platform/"><u>Breaking Down Facebook's Latest Intimacy Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-unified-strategy-for-broadly-broadcasted-social-messages/"><u>Crafting a Unified Strategy for Broadly Broadcasted Social Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-contentious-captured-conversations-metas-way/"><u>Curbing Contentious Captured Conversations: Meta's Way</u></a></li>
+<li><a href="https://facebook.techidaily.com/customized-virtual-spirits-set-to-invade-vr-space/"><u>Customized Virtual Spirits Set to Invade VR Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-purge-and-its-implications-for-privacy-protection-in-social-media/"><u>Data Purge and Its Implications for Privacy, Protection in Social Media</u></a></li>
+<li><a href="https://article-files.techidaily.com/elevate-yi-4k-shots-with-premium-add-ops/"><u>Elevate YI 4K Shots with Premium Add-Ops</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-hero5-black-versus-hero4-silver-comparison/"><u>In 2024, Hero5 Black Versus Hero4 Silver Comparison</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-elder-scrolls-v-skyrim-review/"><u>The Elder Scrolls V: Skyrim Review</u></a></li>
+</ul></div>
 

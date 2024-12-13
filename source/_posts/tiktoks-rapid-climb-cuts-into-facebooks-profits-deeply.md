@@ -1,7 +1,7 @@
 ---
 title: TikTok's Rapid Climb Cuts Into Facebook's Profits Deeply
-date: 2024-12-02T21:30:05.183Z
-updated: 2024-12-06T20:30:06.499Z
+date: 2024-12-09T20:27:22.047Z
+updated: 2024-12-12T21:01:23.529Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook’s Revenues Are Down and User Growth Has Stalled
@@ -35,16 +35,12 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ![Facebook Q2 2022 User Statistics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Facebook-Q2-2022-User-Statistics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Meta](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx)
 
  While Apple's privacy changes (as reported by[Business Insider](https://www.businessinsider.com/how-apple-att-privacy-plan-derailed-facebook-2022-7) ) could have contributed to upsetting Facebook’s advertising business, it is unlikely to be the primary cause for the dent.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TikTok Is the Major Cause of Facebook’s Decline
 
@@ -53,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
@@ -70,10 +66,14 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can Facebook Fight Back Against TikTok?
@@ -97,22 +97,24 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-achieving-flawless-gameplay-optimizing-your-switch-pro-experience-on-steam/"><u>[New] 2024 Approved Achieving Flawless Gameplay Optimizing Your Switch Pro Experience on Steam</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-masterclass-unboxing-and-testing-lgs-usb-c-hdr-display/"><u>2024 Approved Masterclass Unboxing and Testing LG's USB-C HDR Display</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/adjusting-features-in-the-modify-element-parameters-panel/"><u>Adjusting Features in the Modify Element Parameters Panel</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-business-and-ethics-in-social-media-interactions/"><u>Balancing Business and Ethics in Social Media Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/demolishing-dying-off-talk-with-concrete-evidence-supporting-fbs-life/"><u>Demolishing Dying-Off Talk with Concrete Evidence Supporting FB’s Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-cyber-intrusions-9-social-network-vigilance-tips/"><u>Detecting Cyber Intrusions - 9 Social Network Vigilance Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-comments-for-your-fb-post-a-step-by-step-guide/"><u>Disabling Comments for Your FB Post: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-friends-utilizing-facebook-portal-tv-for-video-calls/"><u>Engage Friends: Utilizing Facebook Portal TV for Video Calls</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-honor-x50i-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Honor X50i to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-concluding-steps-for-an-irremediable-tiktok-account-termination/"><u>In 2024, Concluding Steps for an Irremediable TikTok Account Termination</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy F04? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrating-mobile-code-generators-in-fb-for-enhanced-safety/"><u>Integrating Mobile Code Generators in FB for Enhanced Safety</u></a></li>
-<li><a href="https://fox-info.techidaily.com/projected-expenses-for-bringing-songs-to-life-on-screen/"><u>Projected Expenses for Bringing Songs to Life on Screen</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-privacy-in-chat-when-will-end-to-end-encryption-hit-fb/"><u>Protecting Privacy in Chat: When Will End-to-End Encryption Hit FB?</u></a></li>
-<li><a href="https://facebook.techidaily.com/wave-goodbye-to-work-erase-your-business-profile-online/"><u>Wave Goodbye to Work: Erase Your Business Profile Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-expert-strategies-for-higher-youtube-shorts-revenue/"><u>[Updated] In 2024, Expert Strategies for Higher YouTube Shorts Revenue</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-preserving-your-nintendo-switch-experiences-a-guide-for-2024/"><u>[Updated] Preserving Your Nintendo Switch Experiences A Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-leading-list-where-to-find-gamers-music-without-costs/"><u>2024 Approved The Leading List Where to Find Gamers' Music Without Costs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/breaking-through-gpt-3-limits-solving-four-common-problems/"><u>Breaking Through GPT-3 Limits: Solving Four Common Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-why-telegram-became-a-lifeline-during-facebook-blackout/"><u>Deciphering Why Telegram Became a Lifeline During Facebook Blackout</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-correcting-facebooks-common-complaints/"><u>Decoding & Correcting FaceBook's Common Complaints</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-features-in-facebooks-support-portal/"><u>Decoding the Features in Facebook's Support Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-or-memories-managing-late-loved-ones-virtual-footprints/"><u>Deletion or Memories - Managing Late Loved Ones' Virtual Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-self-care-how-to-step-away-from-fb/"><u>Digital Self-Care: How to Step Away From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-solitude-embracing-a-no-social-media-lifestyle/"><u>Digital Solitude: Embracing a No-Social Media Lifestyle</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-financial-gains-for-artists-on-facebooks-new-service/"><u>Discovering Financial Gains for Artists on Facebook’s New Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-on-the-go-10-lightweight-android-essentials/"><u>Efficient on the Go: 10 Lightweight Android Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-contact-addition-in-facebooks-messaging-service/"><u>Effortless Contact Addition in Facebook's Messaging Service</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-poco-m6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-rtf-file-by-digital-signature-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .rtf file by digital signature</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-infinix-smart-8-hd-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Infinix Smart 8 HD</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-obstacles-preventing-collective-takeoff-strategies-and-solutions/"><u>Overcoming Obstacles Preventing Collective Takeoff: Strategies and Solutions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/periscope-savvy-the-ultimate-operational-manual-for-2024/"><u>Periscope Savvy The Ultimate Operational Manual for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/simplify-your-hr-workflow-with-these-5-chatgpt-strategies/"><u>Simplify Your HR Workflow with These 5 ChatGPT Strategies</u></a></li>
 </ul></div>
 

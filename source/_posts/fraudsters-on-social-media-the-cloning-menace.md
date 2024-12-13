@@ -1,7 +1,7 @@
 ---
 title: "Fraudsters on Social Media: The Cloning Menace"
-date: 2024-08-28T03:08:57.947Z
-updated: 2024-08-29T03:08:57.947Z
+date: 2024-12-09T23:31:37.688Z
+updated: 2024-12-12T16:49:16.875Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
 
  Here’s everything you need to know about the Facebook cloning scam, how to check if you’re already a victim, and what you can do to protect yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Facebook Account Cloning Scam?
 
  This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for[other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
  They replicate social media accounts by using all your public photos and information, making a copy of your existing account, and then adding your contacts. Scammers will pretend to be you and then start messaging your connections.
 
  The more they trick into adding them, the more legit their accounts will look like.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Do Scammers Clone Accounts?
 
@@ -44,8 +52,9 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Cloning vs. Facebook Hacking
 
  Facebook cloning does not involve getting into your account using credentials they may have acquired through a data leak or another phishing attack.
@@ -55,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Check If Your Facebook Account Has Been Cloned
 
  The most obvious sign that you have been cloned is if a friend reaches out to you to ask if you made a new account. This means someone made a mirror copy of your current account and is reaching out to your friends.
@@ -72,8 +82,9 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Protect Yourself From Facebook Account Cloning
 
  Be mindful of what you share with people outside your friends' list and the platform. Remember that everything you share—photos, private information, friends list—that’s set to public can be seen by everyone on the internet.
@@ -84,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
 
  Also, set your friends list to private so scammers can’t target them.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Check If Your Facebook Account Is Public
 
  There might have been times when you shared something without knowing that it was set to "Public". To check what the public can see, go to your profile. Then click the three dots on the top right corner, below your cover photo. Click the eye icon that says**View As** .
@@ -97,32 +105,23 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
 
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## What to Do If You Find a Cloned Facebook Account
 
  If you find a Facebook clone account, go to the profile of the clone account. Click the three dots on the top right corner of the screen below the cover photo. Then select**Find Support or Report Page** .
 
  If you don’t have a Facebook account and someone has made a fake account, you can fill out [this form](https://www.facebook.com/help/contact/295309487309948?helpref=faq%5Fcontent) .
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Protect Your Friends and Family From Scammers
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
  Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like[social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +130,24 @@ thumbnail: https://thmb.techidaily.com/c7f5000e41b71ee026b5d1dc2b4d2e4d8155a2a1a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-adding-snapchat-to-your-mac/"><u>[New] In 2024, Step-by-Step Adding Snapchat to Your Mac</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-intel-iris-plus-graphics-640-driver-quickly-and-easily/"><u>[UPDATE] Intel Iris Plus Graphics 640 Driver | Quickly & Easily</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-crop-circles-the-essential-list-of-farming-games/"><u>[Updated] Crop Circles The Essential List of Farming Games</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-premium-pages-on-mobile-best-ig-covers-app-for-2024/"><u>[Updated] Premium Pages on Mobile Best IG Covers App for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/artificial-intelligence-drawing-stylistic-meanings-from-photos/"><u>Artificial Intelligence Drawing Stylistic Meanings From Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arena-verified-metas-vs-blue-ticked-titans-of-twittersphere/"><u>Authenticity Arena: Verified Metas Vs. Blue Ticked Titans of Twittersphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-closed-social-scenes-facebook-archiving-tactics/"><u>Behind Closed Social Scenes: Facebook Archiving Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-who-spoke-on-60-minutes-about-facebook/"><u>Behind the Scenes: Who Spoke on 60 Minutes About Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/counteracting-crafty-commerce-cons-tips-for-a-scam-free-facebook-marketplace/"><u>Counteracting Crafty Commerce Cons: Tips for a Scam-Free Facebook Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148923934-cross-platform-connectivity-share-your-fb-memories-anywhere/"><u>Cross-Platform Connectivity: Share Your Fb Memories Anywhere</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-community-constructs-8-collaborative-networks/"><u>Cyber-Community Constructs: 8 Collaborative Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/dangerous-dos-and-donts-in-profile-replication/"><u>Dangerous Dos and Don'ts in Profile Replication</u></a></li>
+<li><a href="https://solve-help.techidaily.com/how-to-use-winx-dvd-ripper-for-free-ultimate-faq-on-downloading-and-ripping-your-dvds/"><u>How to Use WinX DVD Ripper for Free - Ultimate FAQ on Downloading & Ripping Your DVDs</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-find-x7-ultra-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo Find X7 Ultra to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-ultimate-screen-snapper-unlocking-zd-softwares-potential/"><u>In 2024, Ultimate Screen Snapper Unlocking ZD Software's Potential</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/macx-imkvmaker-seamlessly-convert-dvd-to-mkv-iphoneipadipod-with-full-audio-video-track-preservation/"><u>MacX iMKVmaker - Seamlessly Convert DVD to MKV, iPhone/iPad/iPod with Full Audio-Video Track Preservation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/personal-drones-that-perfectly-trace-their-owners-path-for-2024/"><u>Personal Drones That Perfectly Trace Their Owner's Path for 2024</u></a></li>
+</ul></div>
 

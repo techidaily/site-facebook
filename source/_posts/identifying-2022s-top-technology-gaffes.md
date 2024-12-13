@@ -1,7 +1,7 @@
 ---
 title: Identifying 2022'S Top Technology Gaffes
-date: 2024-08-28T03:10:02.137Z
-updated: 2024-08-29T03:10:02.137Z
+date: 2024-12-05T22:07:35.557Z
+updated: 2024-12-12T21:37:23.721Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 
 ![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Heisenberg Media/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Elon%5FMusk%5F-%5FThe%5FSummit%5F2013.jpg)
 
  In October 2022, tech mogul[Elon Musk took control of Twitter](https://www.makeuseof.com/how-elon-musk-bought-twitter-timeline/) . But instead of ushering in a new era of prosperity and efficiency, his reign has been plagued with missteps and controversies. First, Musk offered a paid verification option on the platform, immediately leading to people impersonating famous personalities and big companies. His reign also led to the reinstatement of Kanye "Ye" West's and other controversial accounts, leading to other issues with content moderation.
@@ -43,16 +47,10 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 
  This Twitter takeover has proven to be an unmitigated disaster and a cautionary tale for anyone considering a similar venture. Musk's ambitious plan will likely be remembered as one of the biggest tech failures of 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere
 
 ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when[Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
  The second major crypto flop of 2022 is the[FTX bankruptcy](https://www.makeuseof.com/what-is-going-on-binance-ftx/) . FTX was one of the biggest exchanges for digital currencies and derivatives. Still, a sudden liquidity crisis meant that the exchange could no longer provide the services it was known for. This led to a sell-off of assets and a massive decrease in trading volumes.
@@ -70,15 +68,17 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Meta
 
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on[Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
  This decline is a result of Meta facing stiff competition and several high-profile scandals, including employers opposing some of the company's practices. Also, the company's audacious plan to launch the metaverse has been a flop so far.
@@ -92,8 +92,9 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Despite being one of the[most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a[Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
  The company is said to utilize a business model that only actualizes earnings when people use their devices rather than when they buy them. As a result, as the applications of Alexa reduced, so did its income. And several customer reviews have further worsened the issue.
@@ -103,22 +104,20 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
  In response, Amazon carried out some restructuring. Amazon CEO[Andy Jassy released a note](https://www.aboutamazon.com/news/company-news/a-note-from-ceo-andy-jassy-about-role-eliminations) regarding role reductions in the face of uncertainties and economic difficulties. And although Jassy affirmed ample opportunities ahead for Alexa, at present, Alexa appears to be a failed project, especially with rumors about employees calling the voice assistant a wasted effort.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2023 Promises to Be Better Than 2022
 
  Like the buildup to 2022, tech enthusiasts anticipate better optimization, improvement, maintenance of integrity, and sustainability in the tech space in 2023\. However, this time, customers are less trusting in tech companies due to the mismanagement and failures of 2022.
 
  But these failures can be repaired and prevented by developers and consultants. We must aim for perfection, clearly define performance objectives in routine situations and emergencies, and confirm that the technology meets them. If our systems are excessively complex, we must prioritize automation, support training, and regular testing until they become second nature and function when needed.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,20 @@ thumbnail: https://thmb.techidaily.com/3b3d53f3a3456319783aa99ca770516fad2e58dbe
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-bring-past-videos-into-the-present-on-social-media-platforms/"><u>[New] 2024 Approved How to Bring Past Videos Into the Present on Social Media Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-innovative-approaches-to-craft-compelling-asmr-videos-for-mass-appeal-for-2024/"><u>[Updated] Innovative Approaches to Craft Compelling ASMR Videos for Mass Appeal for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-positive-effects-social-media-is-having-on-society/"><u>7 Positive Effects Social Media Is Having on Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-the-pitfalls-of-online-marketplace-shopping-9-vital-tips/"><u>Avoid the Pitfalls of Online Marketplace Shopping: 9 Vital Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/beneath-the-surface-facebooks-true-user-losses/"><u>Beneath the Surface: Facebook’s True User Losses</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-ice-without-revealing-your-hand-in-a-group/"><u>Breaking the Ice Without Revealing Your Hand in a Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-community-collaboration-on-facebook-and-linkedin/"><u>Comparing Community Collaboration on Facebook and LinkedIn</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-spyro-reimagined-collection-critique-tiny-hero-with-massive-worth/"><u>Comprehensive Spyro Reimagined Collection Critique: Tiny Hero with Massive Worth</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-social-cord-unlinking-insta-and-fb/"><u>Cutting the Social Cord: Unlinking Insta & FB</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/introducing-apples-latest-innovation-the-new-airpods-pro-with-advanced-locator-feature-and-enhanced-charging-capability-technewsz/"><u>Introducing Apple's Latest Innovation: The New AirPods Pro with Advanced Locator Feature & Enhanced Charging Capability - TechNewsZ</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/step-by-step-strategy-kickstarting-a-vlogging-journey-with-three-key-tips-for-beginners/"><u>Step-by-Step Strategy: Kickstarting a Vlogging Journey with Three Key Tips for Beginners</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-xbox-enclosures/"><u>Understanding Xbox Enclosures</u></a></li>
+</ul></div>
 

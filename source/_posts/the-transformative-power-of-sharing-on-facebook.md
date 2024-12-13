@@ -1,7 +1,7 @@
 ---
 title: The Transformative Power of 'Sharing' On Facebook
-date: 2024-10-15T17:29:30.451Z
-updated: 2024-10-20T20:50:23.975Z
+date: 2024-12-11T16:20:55.162Z
+updated: 2024-12-12T18:48:02.628Z
 tags:
   - facebook
 categories:
@@ -29,10 +29,7 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Facebook Brought People Together
@@ -51,26 +48,21 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
@@ -84,22 +76,12 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
 
 So, what are some of the biggest things that affected us negatively?
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
@@ -114,16 +96,13 @@ So, what are some of the biggest things that affected us negatively?
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -152,24 +131,17 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-from-novice-to-maestro-professional-photography-and-cinematography-techniques/"><u>[New] 2024 Approved From Novice to Maestro Professional Photography & Cinematography Techniques</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-advanced-zooming-methods-for-distance-communication-with-msteams/"><u>[New] Advanced Zooming Methods for Distance Communication with MSTEAMS</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-become-a-periscope-wizard-with-our-full-guidebook/"><u>[New] Become a Periscope Wizard with Our Full Guidebook</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unexplained-angle-flip-sideways-vids-in-instagram-world/"><u>[New] Unexplained Angle Flip Sideways Vids in Instagram World</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-navigating-google-meet-discussions-tips-and-tricks/"><u>[Updated] 2024 Approved Navigating Google Meet Discussions Tips & Tricks</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-chromium-device-live-screen-recorder-for-2024/"><u>[Updated] Chromium Device Live Screen Recorder for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-no-cost-nintendo-switch-virtual-games-for-2024/"><u>[Updated] No-Cost Nintendo Switch Virtual Games for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-10-no-money-photo-enhancers-for-web-users/"><u>[Updated] Top 10 No-Money Photo Enhancers for Web Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-tale-of-transformation-why-facebook-staff-are-now-metamates/"><u>A Tale of Transformation: Why Facebook Staff Are Now 'Metamates'</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-convenience-vs-security-with-facebook-as-a-login-option/"><u>Balancing Convenience vs Security with Facebook as a Login Option</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/bypass-error-successful-install-of-ms-pc-manager/"><u>Bypass Error: Successful Install of MS PC Manager</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-4-trends-impacting-facebook-users/"><u>Examining 4 Trends Impacting Facebook Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/limiting-your-time-on-social-media-fbs-reels/"><u>Limiting Your Time on Social Media - FB's Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/photo-uploads-digital-ownership-questions/"><u>Photo Uploads: Digital Ownership Questions</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/primary-record-breakdown-and-supplemental-choices-for-2024/"><u>Primary Record Breakdown and Supplemental Choices for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/screenshot-your-sanctuary-eradicating-fb-notifications/"><u>Screenshot Your Sanctuary: Eradicating FB Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/total-quietude-in-the-face-of-facebook-alerts/"><u>Total Quietude in the Face of Facebook Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-some-people-want-to-make-instagram-instagram-again/"><u>Why Some People Want to Make Instagram Instagram Again</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-gaming-experience-decoded-the-xbox-ones-best-controller-reviewed/"><u>Elite Gaming Experience Decoded: The Xbox One's Best Controller Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/elude-common-facebook-frauds-the-essential-list-of-14/"><u>Elude Common Facebook Frauds: The Essential List of 14</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-to-correcting-lameencdll-problems-within-audacitys-lame-mp3-encoder/"><u>Guide to Correcting lame_enc.dll Problems Within Audacity's LAME MP3 Encoder</u></a></li>
+<li><a href="https://article-tips.techidaily.com/guide-to-mass-downloading-a-complete-look-at-tiktok-archives-for-2024/"><u>Guide to Mass Downloading A Complete Look at TikTok Archives for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-effective-privacy-rules-for-youth-on-facebook/"><u>Implementing Effective Privacy Rules for Youth on Facebook</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-lava-yuva-2-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Lava Yuva 2 Prowith/without a PC</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/prime-websites-boosting-youtube-video-popularity-for-2024/"><u>Prime Websites Boosting YouTube Video Popularity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shutdown-unraveling-causes/"><u>Social Media Shutdown: Unraveling Causes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-mysteries-in-social-media-commerce-the-case-of-the-missing-marketplace-option/"><u>Solving Mysteries in Social Media Commerce: The Case of the Missing Marketplace Option</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-your-fb-content-global-upload-and-transfer-to-major-websites-now/"><u>Take Your Fb Content Global: Upload and Transfer to Major Websites Now!</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-nintendo-switch-analysis-a-leader-in-on-the-go-gaming/"><u>Ultimate Nintendo Switch Analysis – A Leader in On-the-Go Gaming</u></a></li>
 </ul></div>
 

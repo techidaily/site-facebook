@@ -1,7 +1,7 @@
 ---
 title: "Social Engagement's Bright Side: 7 Improvements in Society"
-date: 2024-11-03T02:09:22.884Z
-updated: 2024-11-06T21:31:16.896Z
+date: 2024-12-05T19:14:10.513Z
+updated: 2024-12-12T22:35:11.156Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 **Social media can help you make and keep friends.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Social Media Fosters Empathy
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
@@ -55,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 **Social media can act as a kind of group therapy session.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Social Media Allows for Speedy Communication
@@ -79,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
  It isn't just your inner circle of close friends and even closer family members that social networking sites allow you to communicate with easily and effectively. One of the good things about social media is its power to open the world up to you, making it a smaller place than it has ever been before.
@@ -88,13 +93,6 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  Family members living abroad can be kept abreast of the latest happenings in your world as quickly as those living next door. Friends you haven't seen since school, and who have since moved away, are able to keep in touch. Social networking sites mean someone's physical location has become a lot less important.
 
 **Social media has made the world a much smaller place.**
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Social Media Helps You Build Relationships
 
@@ -111,28 +109,12 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  **Social media can help foster friendships and more besides.**
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -151,10 +133,7 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
@@ -186,18 +165,24 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-capture-your-gaming-adventures-with-steam-for-2024/"><u>[New] Capture Your Gaming Adventures with Steam for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-ultimate-guide-to-ios-most-innovative-vr-game-apps/"><u>[Updated] 2024 Approved The Ultimate Guide to iOS' Most Innovative VR Game Apps</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-online-jest-builder/"><u>2024 Approved Online Jest Builder</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-papers-unraveled-public-perception-and-reactions/"><u>Facebook Papers Unraveled: Public Perception and Reactions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/high-definition-heroes-10-in-4ktvs-for-2024/"><u>High Definition Heroes – #10 in 4KTVs for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-blaze-2-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Lava Blaze 2 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-11-pro-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 11 Pro Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-whispers-tracing-social-medias-future-wrist-tech/"><u>Innovative Whispers: Tracing Social Media's Future Wrist Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-this-years-most-puzzling-tech-failures/"><u>Investigating This Year's Most Puzzling Tech Failures</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-illusion-fake-account-detection/"><u>Online Illusion: Fake Account Detection</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151110559-revolutionize-content-sharing-facebook-storages-adaptable-across-services/"><u>Revolutionize Content Sharing: Facebook Storages Adaptable Across Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-explorers-compendium-for-fb-activity-tracking-and-reporting/"><u>The Complete Explorer's Compendium for FB Activity Tracking and Reporting</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unilateral-earbud-error-how-to-rectify/"><u>Unilateral Earbud Error How to Rectify</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-metaverse-matchmakers-top-friend-focused-ventures/"><u>[New] Metaverse Matchmakers Top Friend-Focused Ventures</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-quickening-vimeo-content-streams-for-2024/"><u>[New] Quickening Vimeo Content Streams for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-navigating-advanced-features-in-obs-studio-android/"><u>[Updated] In 2024, Navigating Advanced Features in OBS Studio (Android)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-symphony-of-screens-adding-music-to-online-chronicles/"><u>[Updated] Symphony of Screens Adding Music to Online Chronicles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/differences-between-the-ps5-slim-edition-vs-regular-ps5-console/"><u>Differences Between the PS5 Slim Edition vs Regular PS5 Console</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-personal-social-and-global-transformation/"><u>Facebook's Role in Personal, Social, and Global Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-flagging-minors-facebook-page/"><u>Guidelines for Flagging Minor's Facebook Page</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-stop-the-aggravating-screen-flicker-on-your-device-once-and-for-all/"><u>How to Stop the Aggravating Screen Flicker on Your Device Once and For All.</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-giggle-gang-exploring-the-best-memetic-apps/"><u>In 2024, Giggle Gang Exploring the Best Memetic Apps</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-vivo-y100-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Vivo Y100 5G to Another | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-nokia-c12-plus-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Nokia C12 Plus FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-significance-of-facebooks-tactile-interaction/"><u>Investigating the Significance of Facebook's Tactile Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-threat-to-facebooks-data-gathering/"><u>IOS 14.5: Threat to Facebook's Data Gathering?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mark-zuckerberg-hints-at-multi-platform-whatsapp-usage/"><u>Mark Zuckerberg Hints at Multi-Platform WhatsApp Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-login-a-users-guide-for-password-recovery/"><u>Regaining Login: A User's Guide for Password Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/swifter-alternatives-best-lite-android-apps-out-there/"><u>Swifter Alternatives: Best Lite Android Apps Out There</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-evanescent-snapshots-your-messenger-guardian/"><u>Track Evanescent Snapshots: Your Messenger Guardian</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transformative-tiktok-video-techniques-that-work-for-2024/"><u>Transformative TikTok Video Techniques That Work for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-in-the-facebook-files-that-shocks-us/"><u>What’s in the Facebook Files That Shocks Us?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Major Stakeholders Owning Facebook
-date: 2024-11-30T19:59:13.222Z
-updated: 2024-12-06T23:27:17.940Z
+date: 2024-12-06T19:14:13.846Z
+updated: 2024-12-12T19:25:44.734Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## From The Facebook To Meta
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Who Owns Facebook Now?
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Did Facebook Rebrand to Meta?
@@ -73,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Zuckerberg Still (Largely) Owns Meta
@@ -97,24 +97,18 @@ thumbnail: https://thmb.techidaily.com/2d442320ddcea5a6c643d7bb96072df0771c7a8fd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-self-expression-through-instacraze-100-captivating-captions/"><u>[New] Self-Expression Through #InstaCraze 100 Captivating Captions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-abletons-precision-in-sound-reduction-for-2024/"><u>[Updated] Ableton's Precision in Sound Reduction for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-success-via-creator-studio-complete-handbook/"><u>[Updated] Mastering YouTube Success via Creator Studio Complete Handbook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-utilizing-jump-cuts-to-amplify-your-vlog-impact/"><u>[Updated] Utilizing Jump Cuts to Amplify Your Vlog Impact</u></a></li>
-<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/evolution-in-travel-meet-the-flexible-tripod-12/"><u>Evolution in Travel - Meet the Flexible Tripod 12</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-ban-conundrum-regain-a-friends-trust/"><u>Facebook Ban Conundrum: Regain a Friend's Trust</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-innovates-with-subscription-links-apple-comparison-explained/"><u>Facebook Innovates With Subscription Links: Apple Comparison Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-down-or-up-quick-ways-to-confirm/"><u>FB Down or Up: Quick Ways to Confirm</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-to-halt-default-search-menu-opens-in-win11/"><u>Guide to Halt Default Search Menu Opens in Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/halting-ios-app-tracking-the-mass-movement/"><u>Halting iOS App Tracking: The Mass Movement</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-filmoras-recipe-for-captivating-youtube-trailers/"><u>In 2024, Filmora’s Recipe for Captivating YouTube Trailers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/root-access-granted-what-does-this-mean-for-oculus-go-users/"><u>Root Access Granted: What Does This Mean for Oculus Go Users?</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultimate-destinations-for-pursuing-freelance-work/"><u>Ultimate Destinations for Pursuing Freelance Work</u></a></li>
-<li><a href="https://program-issues.techidaily.com/ultimate-tips-for-increasing-fps-performance-in-ring-of-elysium/"><u>Ultimate Tips for Increasing FPS Performance in Ring of Elysium</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-the-potential-of-instagrams-filters-a-modern-guide-2e23/"><u>Unlocking the Potential of Instagram's Filters - A Modern Guide (2E23)</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-guide-turning-insta-vids-to-mp3-tracks/"><u>[New] In 2024, Guide Turning Insta Vids to MP3 Tracks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-pushing-the-boundaries-in-depth-review-of-benq-sw320s-4k-display-for-2024/"><u>[New] Pushing the Boundaries In-Depth Review of BenQ SW320's 4K Display for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-revealing-the-rich-detail-of-your-roblox-journey/"><u>[New] Revealing the Rich Detail of Your Roblox Journey</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-laughter-lane-top-7-comedy-content-concepts-for-vloggers-for-2024/"><u>[Updated] Laughter Lane Top 7 Comedy Content Concepts for Vloggers for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tackling-iphone-lens-failures-with-ease/"><u>2024 Approved Tackling iPhone Lens Failures with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-premier-footballers-pledge-no-more-online-presence-for-safety/"><u>England's Premier Footballers Pledge No More Online Presence for Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-off-re-securing-your-account-post-hack/"><u>Face Off: Re-Securing Your Account Post-Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/forge-your-way-into-metas-domain-of-profile-governance/"><u>Forge Your Way Into Meta's Domain of Profile Governance</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-farewell-deleting-your-fb-company-page/"><u>Guide to Farewell: Deleting Your FB Company Page</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-7-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone 7 in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-friendship-post-facebook-ban/"><u>Reestablishing Friendship Post-Facebook Ban</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-laptop-speakers-a-guide-to-restoring-your-sound/"><u>Troubleshooting Laptop Speakers: A Guide to Restoring Your Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-framework-of-facebooks-functionality/"><u>Unraveling the Framework of Facebook's Functionality</u></a></li>
 </ul></div>
 

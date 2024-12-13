@@ -1,7 +1,7 @@
 ---
 title: "The New Realm: How Facebook Is Shaping Our Future Online World"
-date: 2024-11-29T21:02:36.735Z
-updated: 2024-12-06T18:45:58.241Z
+date: 2024-12-06T18:53:44.801Z
+updated: 2024-12-12T18:04:49.258Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Metaverse?
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Since its rebirth into a next-generation social media platform, Facebook has grown to unprecedented proportions. While Facebook is still synonymous with its ubiquitous social media platform, it has gone to acquire competitors, supporting services, and even hardware companies to join its ranks.
 
@@ -44,10 +44,14 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
@@ -58,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Algorithmic Biases
 
  Many people talk about the algorithm that runs social media platforms and the ads that fund them. While algorithms are not inherently bad, they’re not entirely safe from biases, either. Similar to the people who code them, algorithms fulfill certain needs like efficiency, effectiveness, and so on. Unfortunately, these hallmarks for success often don't necessarily include ethics.
@@ -65,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  As a social media platform, Facebook has a long history of racist, sexist, and other morally ambiguous implications of its complex algorithm. While these algorithmic biases don’t appear so critical at first, they do work to shift public perception and rhetoric that can be damaging to societies as a whole.
 
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
 
@@ -79,16 +83,12 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
@@ -119,18 +119,14 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-progressive-visual-reveal/"><u>[New] Progressive Visual Reveal</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-the-ultimate-editor-showdown-for-superior-reels/"><u>[Updated] 2024 Approved The Ultimate Editor Showdown for Superior Reels</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-screen-time-treasure-summers-top-10-gems-for-2024/"><u>[Updated] The Ultimate Screen Time Treasure Summer’s Top 10 Gems for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-movies-for-free-simple-video-player-software/"><u>2024 Approved Explore Movies for Free Simple VIDEO Player Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/breach-alert-your-online-identitys-safety-on-fb/"><u>Breach Alert: Your Online Identity's Safety on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/channel-synergy-transforming-groups-on-the-platform/"><u>Channel Synergy: Transforming Groups on the Platform</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/epyc-9755-turin-amds-record-breaking-128-core-processor-dominates-multi-threaded-benchmarks-with-over-108k-cpu-z-score/"><u>Epyc 9755 Turin: AMD's Record-Breaking 128-Core Processor Dominates Multi-Threaded Benchmarks with Over 108K CPU-Z Score</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-reputation-on-the-line-amid-tech-doubts/"><u>Facebook's Reputation on the Line Amid Tech Doubts</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-tightening-its-grip-a-threat-to-facebook-and-instagram/"><u>Meta Tightening Its Grip – A Threat to Facebook & Instagram?</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebooks-blocker-feature/"><u>Navigating Facebook's Blocker Feature</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-troubleshooting-netflix-issues-on-your-roku-device/"><u>Ultimate Guide: Troubleshooting Netflix Issues on Your Roku Device</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-small-tablet-guide-for-2hren-expert-opinions-and-rankings-zdnet/"><u>Ultimate Small Tablet Guide for 2Hren: Expert Opinions and Rankings | ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-a-new-era-for-social-listening-at-facebook/"><u>Unveiling a New Era for Social Listening at Facebook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-novice-to-master-the-ultimate-periscope-handbook/"><u>[New] 2024 Approved From Novice to Master The Ultimate Periscope Handbook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-android-and-ios-leading-titles-mimicking-playstation-games/"><u>[Updated] In 2024, Android & iOS Leading Titles Mimicking PlayStation Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/decline-the-update-and-you-keep-full-access-to-your-whatsapp/"><u>Decline the Update, and You Keep Full Access to Your WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-endorsed-content/"><u>Decoding Meta's Endorsed Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-silent-initiative-facebooks-smartwatch-plot/"><u>Decoding the Silent Initiative: Facebook's Smartwatch Plot</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-fbs-silent-post-selection-process/"><u>Demystifying Fb's Silent Post Selection Process</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-intelligent-viewing-syncing-youtube-with-televisions/"><u>In 2024, Intelligent Viewing Syncing YouTube with Televisions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-movements-intova-xs-video-excellence-for-2024/"><u>Mastering Movements Intova X's Video Excellence for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-the-ultimate-list-of-2024s-finest-17-inch-laptop-models/"><u>Top Picks: The Ultimate List of 2024'S Finest 17-Inch Laptop Models</u></a></li>
 </ul></div>
 

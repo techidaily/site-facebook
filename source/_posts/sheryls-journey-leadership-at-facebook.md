@@ -1,7 +1,7 @@
 ---
 title: "Sheryl's Journey: Leadership at Facebook"
-date: 2024-08-28T03:13:28.240Z
-updated: 2024-08-29T03:13:28.240Z
+date: 2024-12-07T16:09:05.903Z
+updated: 2024-12-12T18:54:18.937Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d7919
 
  Sandberg has seen Meta, previously Facebook, through noteworthy events—including several controversies. So, let's take a run-down of her resignation and a brief history of her role at Meta over the years.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Sheryl Sandberg Resigns From Meta
 
  Meta's second-in-command is stepping down from her position after 14 years at the helm of its operations. She announced her resignation in a lengthy Facebook post on May 2, 2022.
@@ -31,9 +35,17 @@ thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d7919
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Brief History of Sheryl Sandberg's Role at Facebook
 
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -58,40 +70,34 @@ thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d7919
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Sheryl Sandberg Is Leaving Meta
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
  Sandberg told[The Washington Post](https://www.washingtonpost.com/technology/2022/06/01/sheryl-sandberg-leaves-facebook/) that she informed Zuckerberg of her resignation the weekend before making a public announcement. Considering how sudden her decision seems, we wonder if there may be any truth to the speculations.
 
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ## What's Next for Sheryl Sandberg?
 
  With Mark Zuckerberg's help, Sheryl Sandberg will hand over her work and transition out of the company. And while she will no longer be involved in the day-to-day running of the business, she will continue to serve on Meta's board of directors.
 
  Sandberg admitted she does not know what comes next for her in her Facebook post. However, she said she wants to focus on her foundation and philanthropic efforts, marriage, and blended family.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -100,4 +106,18 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-live-feed-obs-on-instagram-app/"><u>[Updated] 2024 Approved Live Feed OBS on Instagram App</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-ideal-selection-of-cost-effective-4k-projection-screens/"><u>[Updated] In 2024, Ideal Selection of Cost-Effective 4K Projection Screens</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-the-art-of-chromatic-mastery-in-video-editing-11-steps/"><u>[Updated] Unveiling the Art of Chromatic Mastery in Video Editing (11 Steps)</u></a></li>
+<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
+<li><a href="https://techidaily.com/exploring-the-world-of-nfts-a-beginners-guide-to-cryptocurrencys-unique-artifacts/"><u>Exploring the World of NFTs: A Beginner’s Guide to Cryptocurrency’s Unique Artifacts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-tecno-camon-20-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Tecno Camon 20 to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
+<li><a href="https://os-tips.techidaily.com/the-compelling-reason-behind-my-daily-mobile-decor-transformations/"><u>The Compelling Reason Behind My Daily Mobile Décor Transformations</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-your-networking-to-net-income-uncover-5-money-makers-on-igfb/"><u>Turn Your Networking to Net Income: Uncover 5 Money Makers on IG/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-silent-social-network-with-troubleshooting-techniques/"><u>Unlock Your Silent Social Network with Troubleshooting Techniques</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-top-independent-games-on-itchio/"><u>Unveiling Top Independent Games on Itch.io</u></a></li>
+</ul></div>
 

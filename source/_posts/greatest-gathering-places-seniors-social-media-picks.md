@@ -1,7 +1,7 @@
 ---
 title: "Greatest Gathering Places: Seniors' Social Media Picks"
-date: 2024-11-29T22:26:44.594Z
-updated: 2024-12-06T23:08:53.381Z
+date: 2024-12-07T17:23:07.582Z
+updated: 2024-12-12T17:07:16.392Z
 tags:
   - facebook
 categories:
@@ -22,16 +22,12 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1. Facebook
 
 ![senior man and woman laughing in front of phone and laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-6667799.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  As one of the older social platforms, Facebook has gained a lot of popularity among senior citizens. In a study conducted by the College of Communications of Pennsylvania State University and published on[ScienceDirect](https://www.sciencedirect.com/science/article/abs/pii/S0747563216301431) , research examined what it was exactly that seniors get from Facebook.
@@ -49,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Facebook also offers suggestions based on interests. For example, if a senior citizen is part of a group dedicated to gardening, they will get suggestions for other groups that are also about gardening. Facebook offers seniors endless opportunities to socialize both online and offline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2. LinkedIn
@@ -76,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
  Another feature of WhatsApp is that it allows people to also share their location, and enables both audio and video calling at the tap of a button. Document sharing is also easy, as well as sending out photos and videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. YouTube
 
 ![Elderly man watching something on the tablet with headphones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-tima-miroshnichenko-5708716.jpg)
@@ -86,12 +86,16 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
  There are recipes for just about any dish, DIY and decorating channels, as well as exercise and health videos for active seniors. For especially tech-savvy seniors, they can also make their own channel and upload their own videos if they have some interesting content to share.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5. Blogger
 
 ![elderly woman using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-anna-shvets-5257246.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  There's no doubt that seniors have a lot of stories to tell. Some stories are rich in historical detail that only they can recall, and other stories can be as simple as sharing something about their day. For seniors who have considered writing about their lives, starting a blog through a platform like Blogger, is an excellent first step.
@@ -101,10 +105,6 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Seniors who are extra keen about blogging can register their own domain through Blogger and start to attract traffic. Another feature of Blogger is that seniors can choose with whom they want to share their blog, so only certain readers will be granted access to read it. However, seniors who want to keep their blogs private can also do so.
 
  Blogger is also a good platform for recording memories, storing photos, and interacting with others by following other blogs. The platform allows bloggers to manage their blog's settings by moderating comments and responding to people leaving them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Opportunities for Seniors to Connect Are Endless
 
@@ -125,19 +125,22 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-dominating-digital-space-top-5-youtube-tactics-revealed/"><u>[New] 2024 Approved Dominating Digital Space Top 5 YouTube Tactics Revealed</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-how-to-find-the-good-iphone-photography-angles/"><u>[New] How to Find the Good iPhone Photography Angles</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-free-melodies-a-guide-for-youtube-producers/"><u>[Updated] Mastering Free Melodies A Guide for YouTube Producers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-checklist-for-top-tier-instagram-reels/"><u>[Updated] The Ultimate Checklist for Top-Tier Instagram Reels</u></a></li>
-<li><a href="https://win-dash.techidaily.com/4kwindows-11/"><u>4KビデオのWindows 11での再生に失敗する場合、その理由と解決方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-the-workings-of-photodna-system/"><u>Breaking Down the Workings of PhotoDNA System</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-apple-iphone-12-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On Apple iPhone 12</u></a></li>
-<li><a href="https://facebook.techidaily.com/safety-first-selecting-a-secure-site/"><u>Safety First: Selecting a Secure Site</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-vs-vr-conundrum-elucidating-six-critical-disparities/"><u>The Metaverse Vs. VR Conundrum: Elucidating Six Critical Disparities</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-7-phone-number-locators-to-track-apple-iphone-xs-max-location-drfone-by-drfone-virtual-ios/"><u>Top 7 Phone Number Locators To Track Apple iPhone XS Max Location | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-online-image-on-facebook/"><u>Transform Your Online Image on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-your-fb-journey-with-customized-url-accessibility/"><u>Transforming Your Fb Journey with Customized URL Accessibility</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-zte-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change ZTE IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/vanishing-acts-of-support-masked-likes-across-platforms/"><u>Vanishing Acts of Support: Masked Likes Across Platforms</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-exploring-the-best-phone-apps-to-modify-voice-quality/"><u>[New] 2024 Approved Exploring the Best Phone Apps to Modify Voice Quality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-chroma-key-techniques-in-live-broadcasts-for-2024/"><u>[New] Mastering Chroma Key Techniques in Live Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-links-for-acquiring-youtube-preview-templates-online/"><u>[Updated] 2024 Approved Essential Links for Acquiring YouTube Preview Templates Online</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-insight-into-excellence-a-detailed-guide-to-mastering-vivacut-editing/"><u>[Updated] Insight Into Excellence A Detailed Guide to Mastering VivaCut Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-quick-methods-for-scavenging-free-frame-videos/"><u>[Updated] Quick Methods for Scavenging Free Frame Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebook-messages-a-study-on-messenger-symbols/"><u>Deciphering Facebook Messages - A Study on Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-algorithms-that-drive-fb-content-suggests/"><u>Deciphering the Algorithms That Drive FB Content Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/decode-the-meta-gateway-to-instagram-and-facebooks-centrality/"><u>Decode the Meta Gateway to Instagram & Facebook's Centrality</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-online-indecision-an-insight-into-vague-blogging/"><u>Decoding Online Indecision: An Insight Into Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-of-online-forum-interactions-via-facebook/"><u>Deletion of Online Forum Interactions via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-horizons-exploring-facebooks-stealthy-smartwatch-creation/"><u>Digital Horizons: Exploring Facebook's Stealthy Smartwatch Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/disguised-choices-dark-patterns-of-privacy/"><u>Disguised Choices: Dark Patterns of Privacy</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diy-tech-support-resolving-problems-with-unresponsive-samsung-smart-television-applications/"><u>DIY Tech Support: Resolving Problems with Unresponsive Samsung Smart Television Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-brand-top-5-revenue-ideas-for-ig-and-fb/"><u>Elevate Your Brand: Top 5 Revenue Ideas for IG & FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-sony-xperia-10-v-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Sony Xperia 10 V Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-long-distance-wifi-routers-a-comprehensive-guide/"><u>Leading Long-Distance WiFi Routers : A Comprehensive Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-intricacies-of-crafting-a-virtual-experience-for-2024/"><u>The Intricacies of Crafting a Virtual Experience for 2024</u></a></li>
 </ul></div>
 

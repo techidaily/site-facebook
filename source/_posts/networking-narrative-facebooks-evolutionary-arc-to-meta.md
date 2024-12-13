@@ -1,7 +1,7 @@
 ---
 title: "Networking Narrative: Facebook's Evolutionary Arc to Meta"
-date: 2024-10-17T17:07:23.038Z
-updated: 2024-10-20T18:42:43.572Z
+date: 2024-12-08T20:06:43.821Z
+updated: 2024-12-12T21:51:54.584Z
 tags:
   - facebook
 categories:
@@ -46,29 +46,19 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2010–2012: Facebook Goes Public
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
 
@@ -83,22 +73,12 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -124,15 +104,16 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
@@ -142,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -164,24 +149,17 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-the-beginners-guide-to-stunning-slow-motion-shooting-with-an-android-for-2024/"><u>[New] The Beginner's Guide to Stunning Slow-Motion Shooting with an Android for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-quick-react-guide-efficiently-answering-discord-messages/"><u>[Updated] 2024 Approved Quick-React Guide Efficiently Answering Discord Messages</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-no-smudges-on-screens-keeping-your-gopro-crisp-for-2024/"><u>[Updated] No Smudges on Screens Keeping Your GoPro Crisp for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-ultimate-blueprint-for-perfecting-zooms-screen-cast/"><u>2024 Approved The Ultimate Blueprint for Perfecting Zoom's Screen Cast</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-uhd-precision-converter-clearer-sharper-visuals/"><u>2024 Approved UHD Precision Converter Clearer, Sharper Visuals</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-realme-narzo-60x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-diminishing-social-circle/"><u>A Closer Look at Facebook's Diminishing Social Circle</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-comprehensive-review-of-syma-x8c/"><u>In 2024, Comprehensive Review of Syma X8C</u></a></li>
-<li><a href="https://facebook.techidaily.com/infiltrating-intimacy-a-guide-to-fb-privacy/"><u>Infiltrating Intimacy: A Guide to Fb Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/into-the-metaverse-understanding-6-significant-facebook-changes/"><u>Into the Metaverse: Understanding 6 Significant Facebook Changes</u></a></li>
-<li><a href="https://games-able.techidaily.com/masterclass-choosing-the-premier-titles-on-apple-arcade/"><u>Masterclass: Choosing the Premier Titles on Apple Arcade</u></a></li>
-<li><a href="https://facebook.techidaily.com/refine-your-facebook-experience-ideal-mobile-settings/"><u>Refine Your Facebook Experience: Ideal Mobile Settings</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/swift-closure-of-a-linkedin-account-the-how-to-guide/"><u>Swift Closure of a LinkedIn Account The How-To Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-setting-up-fbs-2fa-system/"><u>The Ultimate Guide to Setting Up FB's 2FA System</u></a></li>
-<li><a href="https://facebook.techidaily.com/tracing-sheryls-footsteps-in-the-tech-industry/"><u>Tracing Sheryl’s Footsteps in the Tech Industry</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-social-behaviors-in-online-network-invitations/"><u>Understanding Social Behaviors in Online Network Invitations</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthed-tech-moments-youve-overlooked-top-4-must-know/"><u>Unearthed Tech Moments You've Overlooked - Top 4 Must-Know!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-snap-edit-and-share-with-ease-your-4-step-blueprint-for-instagram-gifs/"><u>[New] 2024 Approved Snap, Edit, and Share with Ease Your 4-Step Blueprint for Instagram GIFs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-accessing-audio-at-no-cost-the-ultimate-list-of-8-mp3-seekers-android/"><u>[Updated] Accessing Audio at No Cost The Ultimate List of 8 MP3 Seekers (Android)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-camera-roll-to-igtv-video-upload-101/"><u>[Updated] In 2024, From Camera Roll to IGTV Video Upload 101</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-anglers-companion-best-action-cams-for-fishing/"><u>2024 Approved The Angler’s Companion Best Action Cams for Fishing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-must-watch-tv-shows-on-discovery-plus-as-of-july-2024/"><u>Discover the Must-Watch TV Shows on Discovery Plus as of July 2024!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-replace-pre-installed-internet-browser-in-samsung-televisions/"><u>How to Replace Pre-Installed Internet Browser in Samsung Televisions</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nuggets-todays-most-popular-virtual-gatherings/"><u>Network Nuggets: Today's Most Popular Virtual Gatherings</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-announcement-of-third-gen-oculus-quest-this-year/"><u>No Announcement of Third-Gen Oculus Quest This Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-minimalism-in-digital-friendships/"><u>The Art of Minimalism in Digital Friendships</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-techniques-to-remove-horizontal-or-vertical-bands-from-tv/"><u>Troubleshooting Techniques to Remove Horizontal or Vertical Bands From TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-internal-design-strategy/"><u>Unveiling Facebook's Internal Design Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-illusion-assessing-true-users-of-facebook/"><u>Unveiling The Illusion: Assessing True Users of Facebook</u></a></li>
 </ul></div>
 

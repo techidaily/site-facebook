@@ -1,7 +1,7 @@
 ---
 title: Reject Unwanted Friend Recommendations by FB
-date: 2024-08-28T03:11:27.789Z
-updated: 2024-08-29T03:11:27.789Z
+date: 2024-12-05T20:52:27.661Z
+updated: 2024-12-12T20:25:25.125Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 ---
 
 ## Reject Unwanted Friend Recommendations by FB
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -35,18 +39,6 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
  It's in Facebook's interest to suggest Facebook friends for you. The more connections you have on the platform, the more likely you are to use it. However, if you're not looking to add new friends on Facebook, the feature could become redundant and better off hidden.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Hide the "People You May Know" Feature on Facebook
 
  Facebook does not support permanent disabling of the "People You May Know" feature. But it allows you to hide it temporarily. Hiding the slider keeps it from coming up on your News feed for a while.
@@ -57,9 +49,6 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
 ![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 Close
 
 1. Launch the Facebook app on your device.
@@ -72,8 +61,9 @@ Close
  Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn off Facebook's "People You May Know" Alerts
 
  Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
@@ -87,8 +77,9 @@ Close
 ![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 1. Launch the Facebook app on your device and tap on the icon with your profile picture to reveal the expanded menu.
@@ -105,29 +96,30 @@ Close
 2. Click on**Settings & Privacy.**
 3. ![desktop screenshot showing facebook profile menu option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-profile-menu-option.jpg)  
  Then, click on**Settings** .
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
 
  Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +128,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-commanders-conclave-celebrating-the-best-of-7-total-wars-for-2024/"><u>[Updated] Commanders' Conclave Celebrating the Best of 7 Total Wars for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-sculptive-strategies-in-creating-striking-fb-video-ads/"><u>2024 Approved Sculptive Strategies in Creating Striking Fb Video Ads</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-bypassing-unwanted-social-media-offers/"><u>Expert Tips for Bypassing Unwanted Social Media Offers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enables-oculus-gos-full-access-an-overview-for-users/"><u>Facebook Enables Oculus Go's Full Access: An Overview for Users</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-a-unique-space-in-the-webs-sphere-fb-url-change/"><u>Secure a Unique Space in the Web's Sphere: FB URL Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-presence-on-fb-amid-outages/"><u>Secure Your Digital Presence on FB Amid Outages</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-effect-on-personal-and-professional-relationships-before-leaving/"><u>Social Media's Effect on Personal and Professional Relationships Before Leaving</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-for-your-facebook-image-overhaul/"><u>Strategic Planning for Your Facebook Image Overhaul</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-non-indexable-world-of-youtube-a-compreayer-guide-to-unlisted-videos-for-2024/"><u>The Non-Indexable World of YouTube A Compreayer Guide to ‘Unlisted’ Videos for 2024</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/unlocking-file-management-easy-steps-to-review-data-on-iphones-and-ipads/"><u>Unlocking File Management: Easy Steps to Review Data on iPhones & iPads</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/windows-stellar-standard-file-wiping-tool-with-automated-schedule-settings/"><u>Windows Stellar Standard File Wiping Tool with Automated Schedule Settings</u></a></li>
+</ul></div>
 

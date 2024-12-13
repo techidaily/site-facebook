@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2024-11-26T11:20:44.975Z
-updated: 2024-11-27T14:22:47.832Z
+date: 2024-12-06T19:52:57.560Z
+updated: 2024-12-12T22:02:14.021Z
 tags:
   - facebook
 categories:
@@ -34,20 +34,20 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -62,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -79,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
@@ -91,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -119,7 +119,7 @@ Finally, we come to the economic backing to make it all happen.
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
@@ -143,16 +143,19 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://driver-install.techidaily.com/amend-brother-mfp-driver-in-win11/"><u>Amend Brother MFP Driver in Win11</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-realme-v30t-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Realme V30T Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210240087-9781398701953-astrosex-aries/"><u>Astrosex: Aries | Free Book</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-15-pro-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 15 Pro Parental Restrictions With/Without Password | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/exploring-popular-networking-sites-facebook-twitter-instagram-and-youtube/"><u>Exploring Popular Networking Sites: Facebook, Twitter, Instagram and Youtube</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-name-on-facebook/"><u>How to Change Your Name on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-pioneer-leaves-facebook/"><u>Social Media Pioneer Leaves Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-overcoming-11-facebook-errors/"><u>The Ultimate Guide to Overcoming 11 Facebook Errors</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unleash-professional-vlogging-potential-discover-manycams-all-in-one-solution-for-live-videos-remote-webcams-and-more/"><u>Unleash Professional Vlogging Potential: Discover ManyCam's All-in-One Solution for Live Videos, Remote Webcams, & More!</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-future-social-spaces-the-potential-of-facebooks-metaverse/"><u>Unveiling Future Social Spaces: The Potential of Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/winning-back-your-money-requesting-a-refund-on-facebook/"><u>Winning Back Your Money: Requesting a Refund on Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-tutorial-purging-your-youtube-download-history/"><u>[Updated] In 2024, Tutorial Purging Your YouTube Download History</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-legacy-library-exploring-free-visual-echoes/"><u>[Updated] The Legacy Library Exploring Free Visual Echoes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/epic-webcam-connectivity-quests-for-2024/"><u>Epic Webcam Connectivity Quests for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-streaming-sounds-into-your-social-story-arcs/"><u>In 2024, Streaming Sounds Into Your Social Story Arcs</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategy-abandoning-facebooks-biometric-tech/"><u>Meta's Strategy: Abandoning Facebook’s Biometric Tech</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/reviving-the-dell-usb-interface-step-by-step-repair-instructions-for-optimal-performance/"><u>Reviving the Dell USB Interface: Step-by-Step Repair Instructions for Optimal Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-lifes-potential-reward-a-comeback-story-within-the-expanding-metaverse/"><u>Second Life's Potential Reward: A Comeback Story Within The Expanding Metaverse</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/shaping-imagery-the-most-innovative-vector-designers-ranked-for-2024/"><u>Shaping Imagery The Most Innovative Vector Designers Ranked for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-aftermath-of-a-digital-colossus-ceasefire/"><u>The Aftermath of a Digital Colossus Ceasefire</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-users-guide-to-navigating-facebook-outages/"><u>The User's Guide to Navigating Facebook Outages</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-infinix-note-30-vip-racing-edition-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Infinix Note 30 VIP Racing Edition Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-premium-status-buy-your-way-up/"><u>Unlock Premium Status: Buy Your Way Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-dictates-which-ads-appear-in-your-news-feed/"><u>What Dictates Which Ads Appear in Your News Feed?</u></a></li>
 </ul></div>
 

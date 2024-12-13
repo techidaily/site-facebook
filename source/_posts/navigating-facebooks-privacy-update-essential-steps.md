@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook’s Privacy Update: Essential Steps"
-date: 2024-12-03T20:00:00.492Z
-updated: 2024-12-06T22:17:57.726Z
+date: 2024-12-11T16:47:51.581Z
+updated: 2024-12-12T16:43:47.914Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Access the New Facebook Privacy Center
@@ -38,21 +38,17 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
 
@@ -67,7 +63,7 @@ Here's how:
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Use Facebook's Privacy Center
@@ -76,15 +72,15 @@ Here's how:
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
@@ -105,6 +101,10 @@ Here's how:
  Ads is another important category to watch if you're concerned about ad targeting. Together, they form three of the most important privacy concerns that users have always had with Meta apps, especially Facebook.
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Protect Your Privacy
 
@@ -127,18 +127,17 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-expert-guide-to-snagging-twitter-gifs-pc/"><u>[Updated] Expert Guide to Snagging Twitter GIFs (PC)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlock-multi-window-video-experience-in-edge/"><u>[Updated] Unlock Multi-Window Video Experience in Edge</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-cyberspace-30-the-metaverse-reality/"><u>Decoding Cyberspace 3.0: The Metaverse Reality</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-current-top-decision-makers/"><u>Facebook's Current Top Decision-Makers</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-7-by-name-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Apple iPhone 7 by Name | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-14-pro-complete-guide-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 14 Pro? Complete Guide</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-plus-apples-new-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 8 Plus, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-your-facebook-secure-spotting-and-resolving-breaches/"><u>Is Your Facebook Secure? Spotting & Resolving Breaches</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-to-rhetoric-ai-transforms-words-in-pictures/"><u>Reality to Rhetoric: AI Transforms Words in Pictures</u></a></li>
-<li><a href="https://network-issues.techidaily.com/resolving-the-gtx-950-code-43-issue-in-windows-11-a-comprehensive-guide/"><u>Resolving the GTX 950 'Code 43' Issue in Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/revealing-insights-on-the-acer-predator-triton-300-se-smart-slim-and-steeped-in-value/"><u>Revealing Insights on the Acer Predator Triton 300 SE - Smart, Slim & Steeped in Value!</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-cutting-through-content-clutter-youtube-shorts-essentials/"><u>[New] 2024 Approved Cutting Through Content Clutter YouTube Shorts Essentials</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-accelerated-8-screencap-solutions-for-2024/"><u>[New] Accelerated 8 Screencap Solutions for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-master-class-adding-podcasts-to-instagram-features/"><u>[Updated] Master Class Adding Podcasts to Instagram Features</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-camon-20-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Camon 20 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-pro-max-to-android-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 Pro Max To Android? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-embrace-on-instagram-live/"><u>Silence Embrace on Instagram Live</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-rolls-out-innovative-admin-control-tools/"><u>Social Media Giant Rolls Out Innovative Admin Control Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-double-edged-sword-of-engagement-on-facebook/"><u>The Double-Edged Sword of Engagement on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-and-tally-a-systematic-guide-to-documenting-facebook-deeds/"><u>Track and Tally: A Systematic Guide to Documenting Facebook Deeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchecked-zones-vaccine-hesitancy-grows-in-social-media/"><u>Unchecked Zones: Vaccine Hesitancy Grows in Social Media</u></a></li>
 </ul></div>
 

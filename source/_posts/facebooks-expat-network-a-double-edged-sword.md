@@ -1,7 +1,7 @@
 ---
 title: Facebook's Expat Network – A Double-Edged Sword?
-date: 2024-08-28T03:09:45.760Z
-updated: 2024-08-29T03:09:45.760Z
+date: 2024-12-09T23:22:38.547Z
+updated: 2024-12-12T22:25:29.472Z
 tags:
   - facebook
 categories:
@@ -41,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042a
 
 ![Three women gathered around a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-alexander-suhorucov-6457552.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. You Might Get Crisis Advice
 
  Most of the time, people use expat groups to ask for advice. Expats like to share their experiences and offer recommendations, such as where people can get access to lawyers, where to find a locksmith, or how to file a police report.
@@ -54,8 +58,13 @@ thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042a
 ![Group of friends sitting on the steps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6147224.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Lost and Found Posts
 
  If you're part of an expat group, you'll likely come across some lost and found posts. Many expat groups have a focus on community and neighborhoods, so if you lose something, you can ask the group for help to spread the word. Likewise, if you find a lost dog or cat, you can utilize the group to spread awareness.
@@ -66,9 +75,6 @@ thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042a
 
  Some groups may include information about working visas, notice periods, nondiscrimination policies, HR, and other useful content so that you become fully aware of your rights in your new country.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Disadvantages of Joining an Expat Group
 
  While there are many good things about joining an expat group on Facebook, there are also some things you should watch out for. Always be mindful of the fact that everything you read in an expat group should be double-checked.
@@ -78,24 +84,23 @@ thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042a
  This is especially important if you are seeking legal information. Apart from[being aware of Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , here are a few things you should also expect to experience in an expat group:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Lots of Trolls
 
  Unfortunately, expat groups on Facebook are also places where trolls like to hang out. While there are[ways to deal with trolls on social media](https://www.makeuseof.com/ways-to-deal-with-social-media-trolls/) , you should be aware that some expats use the groups to bully others. This may come in the form of pretending to know better, spreading rumors, ganging up on somebody who has come in search of help, or twisting someone's words around.
 
  Whichever form it takes, be aware that expats can also spread negativity and hostility, especially if there are no anti-harassment policies in place.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. You Don't Get Expert Advice
 
 ![A woman holding a help sign at work](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-yan-krukov-7640764.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you are seeking some serious advice, it is best not to go and ask the expats. On the slim chance that you may actually get expert advice from the group, be aware that there are a lot of "experts" without the credentials to back up what they're saying.
 
  While they might mean well, getting expert advice on Facebook groups is not something that is advised. Especially because you don't know the people in these groups personally.
@@ -105,37 +110,32 @@ thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042a
  If you post in expat groups, there is a chance that people will also try and reach out to you via a private message. Sometimes, you may get messages from people you don't want to talk to. There are[privacy settings on Facebook that you should review](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) , especially if you are receiving unwanted messages.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. You Get Exposed to Scams
 
 ![An annoyed woman looking away from her laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3808008.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Like with any social media platform, there are a lot of scams lurking about. On a Facebook expat group, it could come in the form of fake offers, thieves luring people in to steal from them, malicious threats, and even identity theft.
 
  There are also a lot of people out there who are pretending to be someone else. All these instances could lead to an unhappy outcome. This is why it's important to always assess the situation before you go ahead and hand over any private details.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Expat Groups Are Not Expert Groups
 
  It's important to remember that expat groups on Facebook are there to help people get acquainted with their new cities/countries. While they do offer advice and helpful hints about settling into a new place, the advice on them is just as good as the advice on internet forums. This means that it is largely based on opinion.
 
  If you do decide to join an expat group on Facebook, be aware of potential misinformation. Always seek expert advice if you are dealing with something serious.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +144,24 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-social-media-video-to-music-conversion-guide-for-2024/"><u>[New] Social Media Video to Music Conversion Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-spatial-realities-compared-the-meta-and-omni-experience/"><u>[New] Spatial Realities Compared The Meta and Omni Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-live-and-stream-like-a-pro-with-these-best-webcam-software-top-18/"><u>2024 Approved Live and Stream Like a Pro with These Best Webcam Software (Top 18)</u></a></li>
+<li><a href="https://facebook.techidaily.com/advertising-integration-in-instagrams-reels-and-fb-stories-tested/"><u>Advertising Integration in Instagram's Reels & FB Stories Tested</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-your-voice-in-the-social-sphere-using-ripl/"><u>Amplifying Your Voice in the Social Sphere Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-simulation-comparing-metaverse-and-virtual-realitys-6-traits/"><u>Beyond Simulation: Comparing Metaverse and Virtual Reality's 6 Traits</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-takes-her-exit-from-fb/"><u>Carolyn Everson Takes Her Exit From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-past-relationships-in-facebook/"><u>Checking Past Relationships in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/clicking-without-consent-dark-patterns-privacy-pitfalls/"><u>Clicking Without Consent: Dark Pattern's Privacy Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-fb-photographic-labeling/"><u>Comprehensive Guide to FB Photographic Labeling</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-cord-smart-techniques-to-lessen-facebook-dependency/"><u>Cutting the Cord: Smart Techniques to Lessen Facebook Dependency</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-tecno-phantom-v-flip-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Tecno Phantom V Flip</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-motorola-moto-g04-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Motorola Moto G04 Lock Screen Password</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-nokia-c12-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Nokia C12 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/invite-and-guest-at-tiktok-lives-easily/"><u>Invite and Guest at TikTok Lives Easily</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-the-missing-coprocessor-driver-issue-in-windows-10-a-step-by-step-guide/"><u>Resolving the 'Missing Coprocessor Driver' Issue in Windows 10: A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/trasformare-i-file-mkv-in-mp3-gratuitamente-su-internet-con-movavi/"><u>Trasformare I File MKV in MP3 Gratuitamente Su Internet Con Movavi</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Off the Grid: The Changes in Quitting Social Networks"
-date: 2024-11-19T20:42:17.186Z
-updated: 2024-11-26T22:10:09.842Z
+date: 2024-12-07T21:23:26.284Z
+updated: 2024-12-12T19:19:23.652Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ Speaking from my own experience, here's what you can expect.
 
 ![Woman surprised on computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/surprise.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When I[quit social media](https://www.makeuseof.com/how-to-quit-social-media/) , I encountered extremes of reactions from friends and strangers alike. First, there was genuine concern from people who wondered if something had gone wrong in my digital life. A few people thought I was being contrary and tried to either cajole or coerce me into returning.
 
  I also received scornful looks and you-will-be-back-in-a-week smirks. That I was more willing to meet people in person got ignored. That I refused to "stop being antisocial" online was the topic of never-ending debate.
@@ -35,10 +39,6 @@ Speaking from my own experience, here's what you can expect.
  Now that social media detoxes have caught on, you'll probably have to deal with far fewer polarizing reactions than I did. Some people might even appreciate your decision and draw inspiration to get off social media themselves. After all, you can still[stay connected during a social media detox](https://www.makeuseof.com/social-media-detox-how-to-stay-connected/) .
 
  In any case, eventually, those around you will accept your decision or at least, their reactions won't affect you one way or the other. Be sure to have a standard line ready to explain your absence from social media while making small talk.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Feeling Directionless Online
 
@@ -51,16 +51,12 @@ Speaking from my own experience, here's what you can expect.
  Planning to quit social media to avoid information overload? Watch out for the continued temptation of social networking sites like Instagram. These sites let you browse their content without an account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Being Out of the Loop
 
 ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You know those moments when everybody knows what's going on and you're the only clueless person around? Expect many more of them.
 
@@ -70,21 +66,21 @@ Speaking from my own experience, here's what you can expect.
 
  To[counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Limited Access to Certain Sites
 
 ![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the[top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
 
  You might have to forgo many interesting services for the sole reason that you don't have a Facebook or Twitter login to sign up for an account. What happened to good old email signups?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Derailed Job Searches
 
@@ -101,6 +97,10 @@ Speaking from my own experience, here's what you can expect.
  The biggest gain is the automatic shift in focus from what everyone else is doing to what you're doing. You score the mental bandwidth you need to do deep work.
 
  Sure, you'll want to binge on social media feeds a few times a year. Don't feel guilty when that happens. Indulge yourself occasionally. Seeing the same old stuff you wanted to escape in the first place will put the situation in perspective for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## When It Comes to Social Media, Never Say Never
 
@@ -123,20 +123,17 @@ Speaking from my own experience, here's what you can expect.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-hdr-software-showdown-sns-vs-others/"><u>[Updated] HDR Software Showdown SNS vs Others</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-pixels-to-spirit-nurturing-memories-through-live-photo-to-video-conversion/"><u>2024 Approved From Pixels to Spirit Nurturing Memories Through Live Photo to Video Conversion</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-revolutionize-online-sessions-with-essential-zoom-transformations/"><u>2024 Approved Revolutionize Online Sessions with Essential Zoom Transformations</u></a></li>
-<li><a href="https://facebook.techidaily.com/fastened-profile-shifting-for-independent-facebook-screens/"><u>Fastened Profile Shifting for Independent Facebook Screens</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-web-based-conversion-of-mxf-video-format-movavis-quick-guide/"><u>Free Web-Based Conversion of MXF Video Format - Movavi's Quick Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-earnings-epicenter-tech-gaming-on-youtube/"><u>In 2024, Earnings Epicenter Tech Gaming on YouTube</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-iphone-13-mini-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From iPhone 13 mini</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-capturing-the-full-scope-of-your-facebook-footsteps/"><u>Step-by-Step Guide to Capturing the Full Scope of Your Facebook Footsteps</u></a></li>
-<li><a href="https://win-superb.techidaily.com/step-by-step-guide-to-migrating-your-data-preserving-and-reviving-information-between-windows-7-and-windows-nten/"><u>Step-by-Step Guide to Migrating Your Data: Preserving and Reviving Information Between Windows 7 and Windows nTen</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-game-for-facebook-post-ios-145-release/"><u>The New Game for Facebook Post-iOS 14.5 Release</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-personalization-options-to-maximize-your-fb/"><u>Top 10 Personalization Options to Maximize Your FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/trumps-online-presence-under-review/"><u>Trumps Online Presence Under Review</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/unleash-the-beats-try-these-free-web-scanners/"><u>Unleash the Beats Try These Free Web Scanners</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-portals-video-call-secrets-for-enhanced-communication/"><u>Unveiling Portals' Video Call Secrets for Enhanced Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/visual-voice-in-verse-crafting-textual-contrast/"><u>Visual Voice in Verse: Crafting Textual Contrast</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unlocking-maximum-video-sizes-in-instagram-upload/"><u>[New] 2024 Approved Unlocking Maximum Video Sizes in Instagram Upload</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/dable-acoustic-amps-and-mics-for-video-voyagers-for-2024/"><u>Affordable Acoustic Amps and Mics for Video Voyagers for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-to-solve-d3dx924dll-missing-error-quickly/"><u>Expert Tips to Solve 'd3dx9_24.dll' Missing Error Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-an-unexpected-setback-from-ios-145/"><u>Facebook Faces an Unexpected Setback From iOS 14.5</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-nubia-red-magic-9-proplus-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/notice-hacked-recognizing-and-resolving-facebook-breaches/"><u>Notice Hacked? Recognizing & Resolving Facebook Breaches</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/probleme-beim-ubertragung-von-daten-auf-ihrem-iphone-losen-beste-methoden-erklart/"><u>Probleme Beim Übertragung Von Daten Auf Ihrem iPhone Lösen – Beste Methoden Erklärt!</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-disengagement-for-a-focused-facebook-feed/"><u>Strategic Disengagement for a Focused Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-podcasts-of-22-comprehensive-review-and-ratings/"><u>Top Podcasts of '22 - Comprehensive Review & Ratings</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-gadgets-with-tom-in-depth-hardware-review-hub/"><u>Unveiling Gadgets with Tom: In-Depth Hardware Review Hub</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-splice-video-editor-on-mac-download-guide-and-best-alternative-for-2024/"><u>Updated Splice Video Editor on Mac Download Guide and Best Alternative for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-made-the-biggest-impact-top-podcasts-from-22/"><u>What Made the Biggest Impact: Top Podcasts From '22</u></a></li>
 </ul></div>
 

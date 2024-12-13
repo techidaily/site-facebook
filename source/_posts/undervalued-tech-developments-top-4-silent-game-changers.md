@@ -1,7 +1,7 @@
 ---
 title: Undervalued Tech Developments - Top 4 Silent Game Changers
-date: 2024-12-04T21:52:04.220Z
-updated: 2024-12-06T22:29:05.979Z
+date: 2024-12-11T16:04:06.191Z
+updated: 2024-12-12T21:56:27.604Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## GameStop and the Birth of Meme Stocks
 
 ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -48,13 +44,13 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -66,13 +62,13 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -84,13 +80,13 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
 
@@ -123,19 +123,21 @@ thumbnail: https://thmb.techidaily.com/8165b01ed064346696cef87d703a956f25f7e75ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-how-do-i-peruse-all-the-video-and-photo-files-shared-by-friends/"><u>[New] How Do I Peruse All the Video and Photo Files Shared by Friends?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-the-artisans-touch-skillfully-applying-face-centric-motion-blur-using-picsart/"><u>[New] The Artisan’s Touch Skillfully Applying Face-Centric Motion Blur Using Picsart</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-professional-capturer-snappy-windows-snap/"><u>[Updated] 2024 Approved Professional Capturer Snappy Windows Snap</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-navigating-through-8-free-crossover-video-meeting-software/"><u>[Updated] In 2024, Navigating Through 8 Free, Crossover Video Meeting Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-complete-archive-of-your-facebook-journey/"><u>A Complete Archive of Your Facebook Journey</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-stalled-keys-for-active-windows-11/"><u>Addressing Stalled Keys for Active Windows 11</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/clean-audio-clear-conscience-how-to-remove-background-noise-in-fcpx/"><u>Clean Audio, Clear Conscience How to Remove Background Noise in FCPX</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-repercussions-of-facial-recognition-erasure-on-safety/"><u>Examining the Repercussions of Facial Recognition Erasure on Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-advice-for-effective-facebook-refund-applications/"><u>Expert Advice for Effective Facebook Refund Applications</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Lava Storm 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144159770-oversight-body-poised-to-issue-ruling-against-trumps-fb-prohibition/"><u>Oversight Body Poised to Issue Ruling Against Trump's FB Prohibition</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/photography-fundamentals-tips-and-apps-for-android-for-2024/"><u>Photography Fundamentals Tips & Apps for Android for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/postponed-enforcement-period-for-whatsapps-new-privacy-terms/"><u>Postponed Enforcement Period for WhatsApp's New Privacy Terms</u></a></li>
-<li><a href="https://facebook.techidaily.com/withheld-implementation-date-for-whatsapps-new-privacy-agreement/"><u>Withheld Implementation Date for WhatsApp's New Privacy Agreement</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-charting-a-new-course-for-creative-vr-content/"><u>[Updated] Charting a New Course for Creative VR Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-virtual-wit-factory/"><u>[Updated] Virtual Wit Factory</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-time-for-users-opt-in-to-meta-ais-social-strategy/"><u>Decision Time for Users: Opt-In to Meta AI's Social Strategy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-social-bans-who-has-been-shut-out-by-you-on-facebook/"><u>Decoding Social Bans: Who Has Been Shut Out by You on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-missing-images-in-conversations-messenger-style/"><u>Discover Missing Images in Conversations, Messenger Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-past-conversations-in-fb-groups/"><u>Discovering Past Conversations in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-dominance-the-governments-challenge-to-big-tech/"><u>Dismantling Digital Dominance: The Government's Challenge to Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-clearing-faceprints-endanger-social-media-privacy-for-fb-users/"><u>Does Clearing Faceprints Endanger Social Media Privacy for FB Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-strategies-for-multi-group-facebook-group-posting/"><u>Efficient Strategies for Multi-Group Facebook Group Posting</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-windows-update-0x8007049e-troubleshooting-guide/"><u>How to Fix the Windows Update '0X8007049e' Troubleshooting Guide</u></a></li>
+<li><a href="https://media-tips.techidaily.com/hulus-updated-terms-restrict-users-from-sharing-login-credentials/"><u>Hulu's Updated Terms Restrict Users From Sharing Login Credentials</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-setting-up-an-online-presence-for-reviews-of-commercial-goods/"><u>In 2024, Setting Up an Online Presence for Reviews of Commercial Goods</u></a></li>
+<li><a href="https://techtrends.techidaily.com/morning-innovators-rate-the-best-7-alarm-clock-applications-for-seamless-start-days/"><u>Morning Innovators: Rate the Best 7 Alarm Clock Applications for Seamless Start Days</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ssional-video-setup-ideal-stabilizers-for-youtubers/"><u>Professional Video Setup Ideal Stabilizers for YouTubers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-mobile-imaging-apple-introduces-visual-recognition-features-in-iphone-1n-echoing-google-lens-capabilities-reported/"><u>Revolutionizing Mobile Imaging: Apple Introduces Visual Recognition Features in iPhone 1N, Echoing Google Lens' Capabilities | Reported</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/understanding-the-tax-implications-of-crypto-trading-insights-from-yl-computing-and-yl-software/"><u>Understanding the Tax Implications of Crypto Trading: Insights From YL Computing and YL Software</u></a></li>
 </ul></div>
 

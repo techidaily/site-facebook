@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-12-01T22:36:45.070Z
-updated: 2024-12-06T23:34:24.267Z
+date: 2024-12-08T19:49:38.044Z
+updated: 2024-12-12T20:55:24.172Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Photo Privacy Is More Important Than You Think
@@ -42,16 +42,24 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Inline Privacy Controls
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
@@ -70,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
@@ -93,17 +101,9 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -144,15 +144,22 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-explore-the-pinnacle-of-editing-android-edition-for-2024/"><u>[New] Explore the Pinnacle of Editing Android Edition for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-a-decade-in-review-top-8-free-online-srt-translators/"><u>[New] In 2024, A Decade in Review Top 8 Free Online SRT Translators</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-transition-to-non-stop-browsing-set-up-youtube-autoplay-on-fb/"><u>[Updated] In 2024, Transition to Non-Stop Browsing Set Up YouTube Autoplay on FB</u></a></li>
-<li><a href="https://fox-links.techidaily.com/intro-to-radial-photo-distortion-ps-tutorial/"><u>Intro to Radial Photo Distortion PS Tutorial</u></a></li>
-<li><a href="https://extra-support.techidaily.com/map-the-world-around-you-top-notch-navigation-and-service-finds-at-your-fingertips-for-2024/"><u>Map the World Around You - Top-Notch Navigation & Service Finds at Your Fingertips for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/personal-space-protection-escape-from-these-invasive-apps/"><u>Personal Space Protection: Escape From These Invasive Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-c67-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme C67 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotlight-facebook-refining-news-feed-for-business-outreach/"><u>Spotlight: Facebook Refining News Feed for Business Outreach</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-connective-power-of-modern-social-media/"><u>The Great Connective Power of Modern Social Media</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-how-to-master-switch-pro-controller-gaming-in-steam/"><u>[New] 2024 Approved How to Master Switch Pro Controller Gaming in Steam</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-how-to-respond-if-you-see-myself-in-a-facebook-live-video/"><u>[New] 2024 Approved How To Respond If You See Myself in a Facebook Live Video</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-top-editors-for-youtube-writers-and-creators-all-free/"><u>[New] Top Editors for YouTube' Writers and Creators - All Free</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-from-satisfactory-to-superior-your-tech-upgrade-playbook-for-2024/"><u>[Updated] From Satisfactory to Superior Your Tech Upgrade Playbook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-scrutiny-german-action-to-halt-facebooks-whatsapp-information-sweep/"><u>Data Scrutiny: German Action to Halt Facebook's WhatsApp Information Sweep</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-implications-of-us-tech-antitrust-law/"><u>Deciphering the Implications of U.S. Tech Antitrust Law</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-concealed-facebook-profiles/"><u>Decoding the Mystery of Concealed Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-for-economic-advantage/"><u>Digital Eyes for Economic Advantage</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-transmission-of-instagram-reels-to-facebook-friends/"><u>Direct Transmission of Instagram Reels to Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-blocked-accounts-on-facebook/"><u>Discovering Blocked Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-hashtags-work-on-facebook-what-you-need-to-know/"><u>Do Hashtags Work on Facebook? What You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profile-us-meta-verification-begins/"><u>Elevate Your Profile – U.S. Meta Verification Begins</u></a></li>
+<li><a href="https://windows11.techidaily.com/fixing-failed-steam-remote-links-on-pc/"><u>Fixing Failed Steam Remote Links on PC</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/from-precursor-pcs-to-progressive-windows-11-platforms/"><u>From Precursor PCs to Progressive Windows 11 Platforms</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-google-pixel-fold-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Google Pixel Fold Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-combatting-iphones-difficulty-in-autofocusing/"><u>In 2024, Combatting iPhone's Difficulty in Autofocusing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-beginners-guide-to-captivating-instagram-video-audiences/"><u>The Beginner's Guide to Captivating Instagram Video Audiences</u></a></li>
 </ul></div>
 

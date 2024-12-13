@@ -1,7 +1,7 @@
 ---
 title: Why Meta Is Threatening to Kill Facebook and Instagram in Europe
-date: 2024-08-28T03:10:37.491Z
-updated: 2024-08-29T03:10:37.491Z
+date: 2024-12-11T21:12:51.149Z
+updated: 2024-12-12T21:25:28.778Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
 So, is Meta about to pull Facebook and Instagram out of Europe?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Is Meta Threatening to Pull Facebook and Instagram From Europe?
 
  In the full[SEC filing](https://d18rn0p25nwr6d.cloudfront.net/CIK-0001326801/14039b47-2e2f-4054-9dc5-71bcc7cf01ce.pdf) , Meta explains that the recent changes to Privacy Shield will fundamentally alter their business model, making it impossible to offer existing "products and services" to its European users.
@@ -28,6 +32,10 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 > If a new transatlantic data transfer framework is not adopted and we are unable to continue to rely on SCCs or rely upon other alternative means of data transfers from Europe to the United States, we will likely be unable to offer a number of our most significant products and services, including Facebook and Instagram, in Europe, which would materially and adversely affect our business, financial condition, and results of operations.
 
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is the Privacy Shield No Longer Legal?
 
@@ -40,8 +48,9 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta Pull Facebook and Instagram?
 
  Most industry experts believe Meta's statement is an empty threat. European Union regulators have been working with their US counterparts in an attempt to shape a new deal for months. It's just that it hasn't yet crossed the line and as Meta's stock price and company value takes a beating elsewhere, shifting the focus is a useful distraction for the social media giant.
@@ -54,14 +63,11 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  European Facebook and Instagram users have very little to worry about until then.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +76,19 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-enhance-browsing-with-effortless-side-by-side-view-on-chromes-fullscreen-for-2024/"><u>[Updated] Enhance Browsing with Effortless Side-by-Side View on Chrome's Fullscreen for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-chuckles-and-pixels-suite-for-2024/"><u>[Updated] Ultimate Chuckles and Pixels Suite for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-virtual-vanguards-identifying-the-top-7-fps-powerhouses-for-2024/"><u>[Updated] Virtual Vanguards Identifying the Top 7 FPS Powerhouses for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/archiving-acrobatics-expertise-in-concealing-social-media-posts/"><u>Archiving Acrobatics: Expertise in Concealing Social Media Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-managing-connected-websites-and-apps-on-fb/"><u>Best Practices in Managing Connected Websites & Apps on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-online-security-after-losing-your-phonefb/"><u>Bypassing Online Security After Losing Your Phone:FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-conversation-culture-with-care/"><u>Cultivating Conversation Culture with Care</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-fixes-for-when-your-computer-wont-recognize-your-usb-drive/"><u>Effortless Fixes for When Your Computer Won't Recognize Your USB Drive</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/inside-look-how-dell-p2715q-delivers-on-4k-quality/"><u>Inside Look How Dell P2715Q Delivers on 4K Quality</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/instantaneous-clearance-for-prints/"><u>Instantaneous Clearance for Prints</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-dealing-with-persistent-fuser-applications-failures-in-windows/"><u>Solved! Dealing with Persistent 'Fuser' Applications Failures in Windows</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-pathway-to-delicate-audible-reduction-within-lumafusion/"><u>The Pathway to Delicate Audible Reduction Within Lumafusion</u></a></li>
+</ul></div>
 

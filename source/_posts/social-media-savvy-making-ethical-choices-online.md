@@ -1,7 +1,7 @@
 ---
 title: "Social Media Savvy: Making Ethical Choices Online"
-date: 2024-10-15T20:43:07.001Z
-updated: 2024-10-20T21:23:09.591Z
+date: 2024-12-07T16:32:54.547Z
+updated: 2024-12-12T17:40:57.626Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 ![A brick wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/brick-wall.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook presents itself as being all about community, and for us end-users, it is. On the other hand, to businesses, it's simply a way to put the entire target market under one roof and address it all at once. With that said, online businesses often traditional customer service routes and use Facebook walls as public representatives. By presenting themselves as members of the community, businesses are able to communicate more effectively with consumers.
 
  To be honest, this isn't a bad idea. However, this offers just one more way for consumers to get sucked into loads of advertised promises. Once they know that a company is personal, they are more inclined to trust this company. In short, it's the modern-day equivalent to the old mom-and-pop stores where the owner knows everyone's name. Besides that, certain posts and comments addressing issues by the business are more likely to be shared.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 ## Representation Through Images
 
 ![A collage of images](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/collage-images.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Images are a serious tool for getting things done in the Facebook marketing world. In fact, you could consider them to be a bit like billboards on your news feed. However, Facebook has a few guidelines for certain images that businesses post—else, they can get in a bit of trouble.
 
@@ -46,23 +54,9 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
  This allows a company to get the attention of its market and then let its presence be known without using annoying ad-like images.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## A Call to Action
 
 ![A megaphone with a blue sky background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/megaphone-blue-sky.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Whenever you look at Facebook business pages, you'll see loads of "Like or share" posts. This is known as a "call to action" (CTA) because it requests that users do something. CTAs are not just featured on[different types of landing pages](https://www.makeuseof.com/10-types-of-landing-pages-and-when-to-use-them/) , but right on social media in many little ways.
 
@@ -71,10 +65,7 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
  Sometimes, as with the case of the images, there may be no call to action. The company may simply share an inspiring status update or a hilarious image, knowing that for some reason some users will feel the need to like or share it. You see, Facebook has already established the call to action for them. It's right there under every post: Share or Like.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Event RSVPs
@@ -82,10 +73,7 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 ![An image of an email with a Tick and Cross either side](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/rsvp-invite.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Signing up to events on RSVPs typically displays on your profile. This can give marketers information on what type of events you go to and in turn what topics you might be into, until the result is a fairly accurate picture of what type of marketing might work on you.
@@ -95,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 ## Facebook Groups
 
 ![The Facebook icon and a vector of a group of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-groups.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook Groups is one of the last strong areas of the Facebook platform, with millions of users still engaging daily on them and talking about common interests. Keep in mind that the[useful ways to discover new Facebook Groups](https://www.makeuseof.com/tag/5-awesome-ways-discover-new-facebook-groups/) work for you as they do for marketers, who will absolutely research a niche's group list and join up.
 
@@ -125,20 +117,24 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-excellence-in-motion-best-4k-cameras-unveiled-for-2024/"><u>[New] Excellence in Motion Best 4K Cameras Unveiled for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-complete-overview-what-is-google-podcast-app/"><u>[Updated] 2024 Approved Complete Overview What Is Google Podcast App?</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-fiscal-flyers-top-5-low-cost-aerial-vehicles-for-2024/"><u>[Updated] Fiscal Flyers Top 5 Low-Cost Aerial Vehicles for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-get-started-on-vimeo-for-free-the-basics-of-video-editing/"><u>[Updated] In 2024, Get Started on Vimeo for Free The Basics of Video Editing</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/44cm5lin5roo5osp44gn5rai44gx44gm44gx44gplus44ge44gplus44gx44gf44kt44oj44oz44oq44k544gu57w144ks5yplusw44kk5oi744gz5oml6acg44cn/"><u>「不注意で消してしまいましたキャンバスの絵を取り戻す手順」</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-navigating-windows-color-rich-video-landscape/"><u>2024 Approved Navigating Windows' Color-Rich Video Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-papers-unraveled-public-perception-and-reactions/"><u>Facebook Papers Unraveled: Public Perception and Reactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-syma-s111g-remote-control-helicopter-a-wallet-friendly-option-for-indoor-flight-enthusiasts/"><u>In-Depth Analysis of the Syma S111G Remote Control Helicopter: A Wallet-Friendly Option for Indoor Flight Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-whispers-tracing-social-medias-future-wrist-tech/"><u>Innovative Whispers: Tracing Social Media's Future Wrist Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-this-years-most-puzzling-tech-failures/"><u>Investigating This Year's Most Puzzling Tech Failures</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151110559-revolutionize-content-sharing-facebook-storages-adaptable-across-services/"><u>Revolutionize Content Sharing: Facebook Storages Adaptable Across Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-explorers-compendium-for-fb-activity-tracking-and-reporting/"><u>The Complete Explorer's Compendium for FB Activity Tracking and Reporting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tracks-into-tunes-mp3-to-youtube-conversion-made-simple-for-2024/"><u>Turn Tracks Into Tunes MP3-to-YouTube Conversion Made Simple for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-top-7-unboxing-excellence-strategies/"><u>[New] In 2024, Top 7 Unboxing Excellence Strategies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-strategic-marketing-websites-for-youtube-videos/"><u>[Updated] Strategic Marketing Websites for YouTube Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/compile-list-of-cost-efficient-vecto-art-sites/"><u>Compile List of Cost-Efficient Vecto Art Sites</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-elements-revolution-or-evolution/"><u>Facebook’s Interactive Elements: Revolution or Evolution?</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-to-avoid-facebook-tagged-photos/"><u>Freedom to Avoid Facebook Tagged Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-techniques-for-hiding-posts-from-specific-fb-audiences/"><u>Guiding Techniques for Hiding Posts From Specific FB Audiences</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-vivo-t2x-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Vivo T2x 5G to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-get-it-right-screencast-tips-from-ezvid-video-maker-pros/"><u>In 2024, Get It Right Screencast Tips From EZvid Video Maker Pros</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-maximizing-inner-illumination-with-natures-glow/"><u>In 2024, Maximizing Inner Illumination with Nature's Glow</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/introducing-the-latest-airpods-pro-featuring-enhanced-tracking-and-new-charging-options-insights-from-apples-announcement/"><u>Introducing the Latest AirPods Pro Featuring Enhanced Tracking & New Charging Options - Insights From Apple's Announcement</u></a></li>
+<li><a href="https://facebook.techidaily.com/resurrecting-a-political-figure-on-meta/"><u>Resurrecting a Political Figure on Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-meet-the-new-era-meta-drops-nft-venture/"><u>Social Networks, Meet The New Era: Meta Drop's NFT Venture</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-stature-showdown-verified-supremacy-or-blue-elevation/"><u>Social Stature Showdown: Verified Supremacy or Blue Elevation?</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-eliminating-unflattering-pics-from-facebook/"><u>Swiftly Eliminating Unflattering Pics From Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-fundamentals-of-starting-an-instantaneous-broadcast/"><u>The Fundamentals of Starting an Instantaneous Broadcast</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tips-on-how-skip-edgenuity-videos-for-2024/"><u>Tips on How Skip Edgenuity Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-facebook-protect-system-and-how-do-you-activate-it/"><u>What Is the Facebook Protect System and How Do You Activate It?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-conquers-with-worlds-swiftest-ai-compute/"><u>Why Meta Conquers with World's Swiftest AI Compute</u></a></li>
 </ul></div>
 

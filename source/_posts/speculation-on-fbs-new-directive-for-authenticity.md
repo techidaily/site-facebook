@@ -1,7 +1,7 @@
 ---
 title: Speculation on FB's New Directive for Authenticity
-date: 2024-08-28T03:07:10.186Z
-updated: 2024-08-29T03:07:10.186Z
+date: 2024-12-08T17:19:04.468Z
+updated: 2024-12-12T19:46:11.897Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/b46dbabb50d5277c1ad28a5993cc958234753eefe
 
  The ad account of the encrypted messaging app Signal has been banned from Facebook for running what Signal calls the most honest ad campaign on the social network.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Signal Sees Its Facebook Ad Account Disabled
 
  Signal is taking an issue with tremendous data collection happening behind the scenes on Facebook, Instagram, and WhatsApp designed to "sell visibility into people and their lives."
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/b46dbabb50d5277c1ad28a5993cc958234753eefe
  "The ad would simply display some of the information collected about the viewer which the advertising platform uses," Signal says. "Facebook was not into that idea."
 
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
 
@@ -40,8 +48,9 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -51,9 +60,9 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
  Signal wrapped it up nicely with the following passage in its blog post:
@@ -64,14 +73,11 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  Signal is a secure messaging app that uses end-to-end encryption, vanishing messages, and other features to prevent eavesdropping. While not as popular as WhatsApp or Viber, Signal saw a sudden surge in popularity following Facebook's controversial privacy policy update on WhatsApp which drove some WhatsApp users away from that platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +86,24 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-charting-the-course-for-creative-campaigns-on-facebook-2024/"><u>[New] Charting the Course for Creative Campaigns on Facebook, 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-power-up-revenue-choose-the-best-15-facebook-insights-for-sale-boosting-for-2024/"><u>[New] Power Up Revenue Choose the Best 15 Facebook Insights for Sale Boosting for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-harness-10-tools-for-free-thumbnail-acquisition/"><u>[Updated] Harness 10 Tools for FREE Thumbnail Acquisition</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-how-to-maximize-your-content-impact-with-imovie-on-vimeo/"><u>[Updated] How to Maximize Your Content Impact with iMovie on Vimeo</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-instantaneous-screen-logging-chromebooks/"><u>[Updated] Instantaneous Screen Logging (Chromebooks)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-seamless-multi-screen-browsing-in-chrome-using-pip/"><u>[Updated] Seamless Multi-Screen Browsing in Chrome Using PIP</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-groundwork-for-motion-visual-storytelling/"><u>2024 Approved Groundwork for Motion Visual Storytelling</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-your-news-source-what-does-fb-want-to-know/"><u>A Closer Look at Your News Source: What Does FB Want to Know?</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-spark-star-rating-anger-drop-facebooks-app-ratings/"><u>Activists Spark Star Rating Anger, Drop Facebook's App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternatives-to-fb-leveraging-different-messengers/"><u>Alternatives to FB: Leveraging Different Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/auto-caption-generation-boost-engagement-in-your-fb-gallery/"><u>Auto-Caption Generation: Boost Engagement in Your FB Gallery</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-the-components-of-online-identity-to-your-xbox/"><u>Connect The Components of Online Identity to Your Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-virtuality-exploring-metaverse-through-facebook/"><u>Connecting Virtuality: Exploring Metaverse Through Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrency-commercials-a-social-media-shift/"><u>Cryptocurrency Commercials: A Social Media Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149095879-guarding-your-digital-identity-no-random-connections-please/"><u>Guarding Your Digital Identity: No Random Connections, Please!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-see-who-unfollowed-you-on-instagram-for-2024/"><u>How to See Who Unfollowed You On Instagram for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/png-bmp/"><u>PNG 및 BMP 파일 무료 가용성을 강조한 원활한 웹 상호 작용의 위젯: 모바일에서 사용자 친화적인 이미지 전환기</u></a></li>
+</ul></div>
 

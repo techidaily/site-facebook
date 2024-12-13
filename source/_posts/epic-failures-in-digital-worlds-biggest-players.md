@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2024-11-23T12:53:42.238Z
-updated: 2024-11-27T06:32:12.647Z
+date: 2024-12-06T19:38:03.100Z
+updated: 2024-12-12T16:09:28.112Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,18 +51,19 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-for-the-tech-sleuth-dissecting-the-best-top-10-fb-videos-downloaders/"><u>[New] For the Tech Sleuth Dissecting the Best Top 10 FB Videos Downloaders</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-androids-premier-8-apps-harmonizing-free-and-paid-videomosaic-experience/"><u>[Updated] Android's Premier 8 Apps Harmonizing Free & Paid Videomosaic Experience</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-keeping-track-of-itunes-audio-visual-files/"><u>[Updated] In 2024, Keeping Track of iTunes Audio-Visual Files</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-backbone-of-facebooks-operations/"><u>Examining The Backbone of Facebook's Operations</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-get-paid-to-review-products-on-youtube/"><u>How to Get Paid to Review Products on YouTube</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/jointly-experience-live-content-on-tiktok-platform-for-2024/"><u>Jointly Experience Live Content on TikTok Platform for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/obscuring-online-networks-fb-list-hiding/"><u>Obscuring Online Networks: FB List Hiding</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-digital-footprint-reducing-specific-ads/"><u>Optimize Your Digital Footprint: Reducing Specific Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-countdown-to-fb-messengers-end-to-end-encryption/"><u>The Countdown to FB Messenger's End-to-End Encryption</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-gentle-giants-guide-to-social-media-silliness/"><u>The Gentle Giant's Guide to Social Media Silliness</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/transforma-imagenes-a-color-guia-facil-de-tres-etapas-para-cambiar-fotografias-en-blanco-y-negro/"><u>Transforma Imágenes a Color: Guía Fácil De Tres Etapas Para Cambiar Fotografías en Blanco Y Negro</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-secrecy-enabling-invisible-members-contributions-on-fb/"><u>Unveiling Secrecy: Enabling Invisible Members' Contributions on FB</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-text-transformation-tactics-for-images/"><u>[New] 2024 Approved Text Transformation Tactics for Images</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-designing-multi-layered-photographic-illusions-for-2024/"><u>[New] Designing Multi-Layered Photographic Illusions for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-essential-guide-for-gopro-live-streams-to-social-media-hubs-for-2024/"><u>[New] The Essential Guide for GoPro Live Streams to Social Media Hubs for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-ultimate-tips-for-erasing-backgrounds-in-figma-design/"><u>[Updated] In 2024, Ultimate Tips for Erasing Backgrounds in Figma Design</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-your-dandd-sessions-using-the-power-of-chatgpt/"><u>Elevate Your D&D Sessions Using the Power of ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-privacy-and-control-with-these-fb-app-configs/"><u>Enhance Privacy and Control with These FB App Configs</u></a></li>
+<li><a href="https://techidaily.com/expanding-horizons-t-mobiles-continuous-enhancement-of-its-fiber-optic-broadband-service/"><u>Expanding Horizons: T-Mobile's Continuous Enhancement of Its Fiber Optic Broadband Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-chat-shutdown-december-update/"><u>Instagram's Chat Shutdown: December Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-void-how-to-delete-an-active-business-page/"><u>Navigating the Void: How to Delete an Active Business Page</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-mfc-42-dll-errors-effective-fixes-and-expert-tips/"><u>Overcoming MFC 42 DLL Errors: Effective Fixes and Expert Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/reducing-your-digital-footprint-on-fb-platforms/"><u>Reducing Your Digital Footprint on FB Platforms</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-persistent-flicker-issues-on-your-windows-11-display/"><u>Resolving Persistent Flicker Issues on Your Windows 11 Display</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/speed-up-instagrams-media-a-comparative-guide-for-2024/"><u>Speed Up Instagram's Media A Comparative Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-fb-may-be-forced-to-unbundle-giphy-from-its-suite/"><u>Why FB May Be Forced to Unbundle Giphy From Its Suite</u></a></li>
 </ul></div>
 

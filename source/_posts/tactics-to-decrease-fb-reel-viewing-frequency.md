@@ -1,7 +1,7 @@
 ---
 title: Tactics to Decrease Fb Reel Viewing Frequency
-date: 2024-11-25T04:27:23.155Z
-updated: 2024-11-27T08:36:37.728Z
+date: 2024-12-07T20:39:54.270Z
+updated: 2024-12-12T17:57:31.571Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Use Facebook Web
 
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
@@ -39,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
@@ -56,11 +56,11 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
-Close
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Close
 
 ### 3\. Use an Older Version of Facebook
 
@@ -72,9 +72,17 @@ Close
 
 ###
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Hide Content You Don't Like
 
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -85,7 +93,7 @@ Close
  When you're shown a Reel you don't like, tap on the three dots at the bottom of the screen and select**Hide reel** . Doing this will tell Facebook that you're not interested in seeing this type of content. Therefore, Facebook is less likely to show it to you again.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Disable Auto-Playing Reels on Facebook
@@ -98,27 +106,19 @@ Close
 
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## These Are Your Only Good Options
 
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Working Around Facebook Reels
 
@@ -139,24 +139,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-from-choreographies-to-filters-a-comparison-of-content-creation-on-tiktok-and-snap/"><u>[New] In 2024, From Choreographies to Filters A Comparison of Content Creation on TikTok & Snap</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-youtube-to-webm-unveiling-the-premium-converters/"><u>[Updated] 2024 Approved From YouTube to WebM Unveiling the Premium Converters</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/achieve-optimal-performance-kali-on-windows/"><u>Achieve Optimal Performance: Kali on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/free-methods-to-enhance-facebook-update-frequency-and-placement/"><u>Free Methods to Enhance Facebook Update Frequency and Placement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-ultimate-hdtv-reception-with-1byones-amplified-indoor-antenna-a-bargain-for-your-broadcast-needs/"><u>Get Ultimate HDTV Reception with 1Byone's Amplified Indoor Antenna - A Bargain for Your Broadcast Needs</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-updated-hp-wlan-drivers-for-seamless-wifi-connectivity-in-windows/"><u>Get Updated HP WLAN Drivers for Seamless WiFi Connectivity in Windows</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/honor-bypass-tools-to-bypass-lock-screen-honor-100-by-drfone-android-unlock-android-unlock/"><u>Honor Bypass Tools to Bypass Lock Screen(Honor 100)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mini-movie-script-concept/"><u>In 2024, Mini Movie Script Concept</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-group-recognition-in-status-updates/"><u>Mastering the Art of Group Recognition in Status Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-approach-extending-e2e-encryption-default-to-next-year-why/"><u>Meta's Approach: Extending E2E Encryption Default to Next Year, Why?</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-a-modern-challenge/"><u>Privacy: A Modern Challenge</u></a></li>
-<li><a href="https://facebook.techidaily.com/showcasing-your-identity-using-fb-images-with-whatsapp/"><u>Showcasing Your Identity: Using FB Images with WhatsApp</u></a></li>
-<li><a href="https://win-able.techidaily.com/solution-found-fixing-the-pc-compatibility-issue-for-call-of-duty-modern-warfare-launch/"><u>Solution Found! Fixing the PC Compatibility Issue for Call of Duty: Modern Warfare Launch</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/sound-excellence-test-drive-apples-airpods-pro-vs-samsungs-buds-pro/"><u>Sound Excellence Test-Drive: Apple's AirPods Pro Vs. Samsung's Buds Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-tags-discover-3-efficient-methods/"><u>The Ultimate Guide to FB Tags – Discover 3 Efficient Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-the-full-potential-of-facebook-must-try-mobile-settings/"><u>Unlock the Full Potential of Facebook: Must-Try Mobile Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-image-alerts-chat-disappearance-on-messenger/"><u>Unseen Image Alerts: Chat Disappearance on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/wnb-players-online-fb-twt-unite-for-broadcasts/"><u>WNB Players Online: FB, Twt Unite for Broadcasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/your-go-to-fb-video-tool-for-desktops-and-phones/"><u>Your Go-To FB Video Tool for Desktops and Phones</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/iny-tempo-truths-character-beats-exposed-for-2024/"><u>[New] Tiny Tempo Truths Character Beats Exposed for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-ultimate-guide-to-convert-srt-to-txt-in-minutes-2023/"><u>[Updated] Ultimate Guide to Convert SRT to TXT in Minutes 2023</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-become-a-pro-with-2023s-free-templates/"><u>2024 Approved Become a Pro with 2023'S FREE Templates</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-nft-culture-via-instagramfacebook-meta-drops-testing/"><u>Experience NFT Culture via Instagram/Facebook Meta Drops Testing</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-depth-of-facebooks-security-system/"><u>Exploring the Depth of Facebook’s Security System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reimagined-romance-a-new-era-of-social-interaction-and-dating/"><u>Facebook's Reimagined Romance: A New Era of Social Interaction and Dating</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-vivo-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Vivo</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-channel-catalysts-affiliates-aiding-budgeted-buzzers/"><u>In 2024, Channel Catalysts Affiliates Aiding Budgeted Buzzers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-realme-11-5g-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Realme 11 5G?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-tecno-phantom-v-flip-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Tecno Phantom V Flip Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-silent-participants-in-group-chats/"><u>Interpreting Silent Participants in Group Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-my-number-public-on-facebook-now/"><u>Is My Number Public on Facebook Now?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/mastering-discord-speaking-tts-basics-guide-for-2024/"><u>Mastering Discord Speaking TTS Basics Guide for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mount-and-blade-2-bannerlord-crashes-solved-step-by-step-fix-guide/"><u>Mount & Blade 2: Bannerlord Crashes Solved – Step-by-Step Fix Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-consensus-more-damage-than-advantage-in-sns/"><u>Public Consensus: More Damage Than Advantage in SNS</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-platforms-feature-disapproval-options/"><u>Should Platforms Feature Disapproval Options?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-views-into-a-following/"><u>Transforming Views Into a Following</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-why-isnt-my-thaumaturge-game-starting-on-windows/"><u>Troubleshooting Steps: Why Isn't My Thaumaturge Game Starting on Windows?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-data-extraction-economy/"><u>Unpacking Data Extraction Economy</u></a></li>
 </ul></div>
 

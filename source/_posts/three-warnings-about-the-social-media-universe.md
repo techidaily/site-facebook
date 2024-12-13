@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2024-12-05T20:36:57.908Z
-updated: 2024-12-06T19:42:29.007Z
+date: 2024-12-08T20:02:39.004Z
+updated: 2024-12-12T22:49:48.982Z
 tags:
   - facebook
 categories:
@@ -45,12 +45,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -65,12 +69,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -85,16 +93,12 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -105,10 +109,6 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -133,15 +133,17 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-effortless-approach-perfecting-time-lapses-using-samsungs/"><u>[New] Effortless Approach Perfecting Time-Lapses Using Samsungs</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-the-art-of-kinemaster-usage-plus-best-online-platforms-for-editors/"><u>2024 Approved Mastering the Art of KineMaster Usage + Best Online Platforms for Editors</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-interactive-online-communities-on-facebook/"><u>Building Interactive Online Communities on Facebook</u></a></li>
-<li><a href="https://extra-information.techidaily.com/complete-visual-field-review-with-cam-for-2024/"><u>Complete Visual Field Review with Cam for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/does-blog-anonymity-persist/"><u>Does Blog Anonymity Persist?</u></a></li>
-<li><a href="https://facebook.techidaily.com/ever-wondered-about-your-favorite-app-down-heres-why/"><u>Ever Wondered About Your Favorite App Down? Here's Why</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-nvidia-gpu-up-to-date-free-driver-downloads-for-windows-users-vista-7-10/"><u>Get Your NVIDIA GPU Up-to-Date: Free Driver Downloads for Windows Users (Vista, 7, 10)</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/yl-computings-guide-mastering-the-art-of-trading-cryptocurrencies/"><u>YL Computing's Guide: Mastering the Art of Trading Cryptocurrencies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-leverage-editing-to-boost-youtube-profile-impact/"><u>[New] In 2024, Leverage Editing to Boost YouTube Profile Impact</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-from-raw-footage-to-mov-windows-10-filming-techniques/"><u>[Updated] 2024 Approved From Raw Footage to MOV Windows 10 Filming Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-media-insights-from-facebooks-openness-hub/"><u>Deciphering Social Media: Insights From Facebook's Openness Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-web-of-connections-total-summary-of-your-facebook-history/"><u>Decoding the Web of Connections: Total Summary of Your Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-innovation-unleashed-with-meta-drops-on-social-networks/"><u>Digital Innovation Unleashed with Meta Drops on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodging-digital-deceptions-securing-transactions-in-the-social-swap-sphere/"><u>Dodging Digital Deceptions – Securing Transactions in the Social Swap Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-growth-with-a-robust-list-of-work-clients-via-facebook/"><u>Driving Growth with a Robust List of Work Clients via Facebook</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-s18-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Vivo S18 Phone without Any Data Loss</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-ultimate-checklist-for-movie-maker-videos-on-vimeo/"><u>In 2024, The Ultimate Checklist for Movie Maker Videos on Vimeo</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-gestural-recognition-technologies/"><u>In 2024, The Ultimate Guide to Gestural Recognition Technologies</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/optimize-your-workstation-nvidia-quadro-graphics-drivers-for-windows-11/"><u>Optimize Your Workstation: NVIDIA Quadro Graphics Drivers for Windows 11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-guided-access-problems-on-ios-devices-top-six-fixes/"><u>Overcoming Guided Access Problems on iOS Devices – Top Six Fixes!</u></a></li>
 </ul></div>
 

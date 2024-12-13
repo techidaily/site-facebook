@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2024-11-21T22:38:57.203Z
-updated: 2024-11-26T22:48:57.759Z
+date: 2024-12-10T18:27:41.599Z
+updated: 2024-12-12T19:27:28.532Z
 tags:
   - facebook
 categories:
@@ -27,12 +27,16 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
 
@@ -40,19 +44,23 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Impairment of the Privacy of Your Friends
 
 ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
 
  Accepting requests from strangers not just gives them access to your content but also to specific information about your friends. Consider a situation where you and your friends tag each other in pictures, check-ins, and stories.
 
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Access to Harmful Links
 
@@ -61,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  They can send you harmful links through Messenger or post them on your timeline. Most people click them out of their naivety and curiosity and give their personal information to the so-called friend.
 
  Unless the links you receive are from people you know, there is no point in clicking them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Personal Safety at Risk
 
@@ -77,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 ## 5\. Become Habitual of Isolation From Family
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
@@ -125,7 +125,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avoiding Strangers on Facebook Might Be a Good Idea
@@ -149,18 +149,22 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-superior-streaming-made-simple-enabling-av1-in-youtube/"><u>[New] In 2024, Superior Streaming Made Simple Enabling AV1 in YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-optimal-team-call-aesthetics-pre-call-and-post-call-tweaks-for-2024/"><u>[New] Optimal Team Call Aesthetics Pre-Call & Post-Call Tweaks for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-youtube-editing-made-simple-step-by-step-time-stamp-implementation/"><u>[Updated] 2024 Approved YouTube Editing Made Simple Step-by-Step Time Stamp Implementation</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010-for-2024/"><u>[Updated] Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10) for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/does-ai-limit-response-length-characterswords/"><u>Does AI Limit Response Length: Characters/Words?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/kids-financial-flight-a-10-year-olds-path-to-prosperity/"><u>Kaji Kid’s Financial Flight A 10-Year-Old’s Path to Prosperity</u></a></li>
-<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
-<li><a href="https://media-tips.techidaily.com/top-4-methods-to-seamlessly-transform-your-m2ts-files-into-ipad-compatible-videos/"><u>Top 4 Methods to Seamlessly Transform Your M2TS Files Into iPad-Compatible Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transform-your-images-on-android-our-picks-for-the-5-best-editors/"><u>Transform Your Images on Android Our Picks for the 5 Best Editors</u></a></li>
-<li><a href="https://windows11.techidaily.com/troubleshooting-xp709-on-windows/"><u>Troubleshooting XP709 on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-sensory-engaging-e-commerce-platforms/"><u>[New] 2024 Approved Sensory Engaging E-Commerce Platforms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-transform-your-mac-interface-with-speech-recognition-software-review/"><u>[New] 2024 Approved Transform Your Mac Interface with Speech Recognition Software Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-startup-to-success-skyrocketing-youtube-subs/"><u>[Updated] 2024 Approved From Startup to Success Skyrocketing Youtube Subs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-storing-films-videographers-guide-to-64gb-and-128gb-drives/"><u>[Updated] 2024 Approved Storing Films Videographers' Guide to 64GB and 128GB Drives</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-top-trending-snapchat-augmentations-for-your-photos/"><u>2024 Approved Top Trending Snapchat Augmentations for Your Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-unwanted-footprint-delete-your-facebook-watching-trails/"><u>Eliminate Unwanted Footprint: Delete Your Facebook Watching Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-erase-all-facebook-notification-sources/"><u>How to Erase All Facebook Notification Sources</u></a></li>
+<li><a href="https://win-trending.techidaily.com/how-to-fix-a-non-responsive-printer-troubleshooting-tips-yl-computing-solutions/"><u>How To Fix A Non-Responsive Printer: Troubleshooting Tips - YL Computing Solutions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-capture-games-effortlessly-with-nvidia/"><u>In 2024, Capture Games Effortlessly with NVIDIA</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-my-information-protected-or-leaked-in-online-communications/"><u>Is My Information Protected or Leaked in Online Communications?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-contact-list-exposed-in-a-facebook-sync-error/"><u>Is Your Contact List Exposed in a Facebook Sync Error?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-complexity-understanding-the-power-of-fb-followingunfollowing/"><u>Navigating Complexity: Understanding the Power of FB Following/Unfollowing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-vivo-s18-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Vivo S18 Pro Phone? Unlock It Now</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-no-sound-problems-with-nvidia-hd-audio-in-windows-computers/"><u>Solving 'No Sound' Problems with NVIDIA HD Audio in Windows Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-metamorphosis-from-vr-to-metaverse-6-core-distinctions/"><u>Unveiling the Metamorphosis From VR to Metaverse: 6 Core Distinctions</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-how-to-recognize-fake-facebook-users/"><u>Virtual Vigilance: How to Recognize Fake Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-scrubbing-your-facebook-view-logs-is-smart/"><u>Why Scrubbing Your Facebook View Logs Is Smart</u></a></li>
 </ul></div>
 

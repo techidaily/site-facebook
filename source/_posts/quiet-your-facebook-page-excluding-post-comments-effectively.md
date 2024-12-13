@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2024-11-23T10:46:51.152Z
-updated: 2024-11-27T14:56:08.988Z
+date: 2024-12-08T23:54:07.826Z
+updated: 2024-12-12T16:58:34.051Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Things to Know About Turning Off Comments on Facebook
 
  Facebook limits what control you have over your personal posts. Because of this, you cannot fully disable comments on your Facebook posts. But you can limit who can comment on your posts.
@@ -34,19 +38,11 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 
  You can choose between using the Facebook mobile app on your phone or its web version on a PC to manage comments on your profile posts. This guide will show you how to do using both versions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Manage Comments on the Facebook App
 
  Here's how to manage comments on your posts using the Facebook mobile app:
 
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
 
@@ -72,7 +68,7 @@ Close
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
@@ -82,7 +78,7 @@ Close
  And that's all you need to manage comments on your Facebook post.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
@@ -91,7 +87,15 @@ Close
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -102,10 +106,6 @@ Close
  Using the web version, the steps are the same. Just make sure to look out for the three dots in the top-right corner of the post.
 
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
 
@@ -128,18 +128,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/updated-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[Updated] Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlock-creative-potential-with-10-best-backdrop-modification-software/"><u>[Updated] Unlock Creative Potential with 10 Best Backdrop Modification Software</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/5liw55wm55qe44gq5zwg5yplusw5byv44gr5yip55so5yplusv6io944gq6yca6lko44k44kk44ox44gv77yf/"><u>世界的な商取引に利用可能な通貨タイプは？</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/comparing-icloud-and-itunes-which-iphone-backup-method-reigns-supreme/"><u>Comparing iCloud and iTunes: Which iPhone Backup Method Reigns Supreme?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Does Life360 Notify When You Log Out On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-rtx-2070-graphics-card-drivers-for-windows-11-8-and-7-users/"><u>Get the Latest RTX 2070 Graphics Card Drivers for Windows 11, 8 & 7 Users</u></a></li>
-<li><a href="https://win-help.techidaily.com/microsoft-stuns-with-futuristic-tech-pants-for-a-steal-at-150-bucks-how-they-work-and-why-you-need-them-as-revealed-by-zdnet/"><u>Microsoft Stuns with Futuristic 'Tech Pants' For a Steal at 150 Bucks | How They Work & Why You Need Them, as Revealed by ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-secret-landscape-of-digital-interactions-on-facebook/"><u>Navigating the Secret Landscape of Digital Interactions on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/rapid-access-speedier-android-alternatives/"><u>Rapid Access: Speedier Android Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-profiles-a-no-politics-no-religion-rule/"><u>Securing Profiles: A No Politics, No Religion Rule</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-standings-deciphering-elite-echelons-in-metals-and-tweets/"><u>Social Standings: Deciphering Elite Echelons in Metals and Tweets</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-reason-behind-facebooks-ubiquitous-suggestion-features/"><u>The Reason Behind Facebook's Ubiquitous Suggestion Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-hashtags-impact-on-facebook-engagement/"><u>Unveiling: Hashtags Impact on Facebook Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-iconic-imagery-transforming-audio-into-visual-podcast-identity/"><u>[New] In 2024, Iconic Imagery Transforming Audio Into Visual Podcast Identity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-simplifying-the-process-of-capturing-and-fine-tuning-videos-in-adobe-connect-for-2024/"><u>[New] Simplifying the Process of Capturing and Fine-Tuning Videos in Adobe Connect for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-free-ways-to-save-your-desktop-on-windows-8/"><u>[Updated] 2024 Approved Free Ways to Save Your Desktop on Windows 8</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-charting-your-financial-course-the-3-step-methodology-for-estimating-youtube-income/"><u>[Updated] Charting Your Financial Course The 3-Step Methodology for Estimating YouTube Income</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-the-art-of-captivating-social-media-marketing-with-tiktok-for-2024/"><u>[Updated] Mastering the Art of Captivating Social Media Marketing with TikTok for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-cyberquake-fb-whatsapp-and-instagram-offline/"><u>Global Cyberquake: FB, WhatsApp & Instagram Offline</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pushing-boundaries-innovative-memes-with-kinemaster/"><u>In 2024, Pushing Boundaries Innovative Memes with KineMaster</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-most-effective-android-apps-to-download-youtube-videos/"><u>In 2024, The Most Effective Android Apps to Download YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazon-lunas-exceptional-cloud-gaming-performance/"><u>In-Depth Look at Amazon Luna's Exceptional Cloud Gaming Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-story-removal-with-ease-on-facebook/"><u>Navigating Story Removal with Ease on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-here-are-9-reasons-to-keep-connected-online/"><u>Social Savvy? Here Are 9 Reasons to Keep Connected Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-paradox-navigating-its-darker-impacts/"><u>The Social Media Paradox: Navigating Its Darker Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-selecting-the-perfect-fb-picture/"><u>Tips for Selecting the Perfect FB Picture</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/top-gif-creation-tools-easy-guide-to-turning-videos-and-pictures-into-animated-memes/"><u>Top GIF Creation Tools: Easy Guide to Turning Videos & Pictures Into Animated Memes</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Secure Yourself: The List of Sharing No-Goes on Social Platforms"
-date: 2024-08-28T03:07:36.909Z
-updated: 2024-08-29T03:07:36.909Z
+date: 2024-12-07T22:55:32.273Z
+updated: 2024-12-12T16:07:12.738Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
 ---
 
 ## Secure Yourself: The List of Sharing No-Goes on Social Platforms
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -42,9 +46,9 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -53,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Personal Complaints and Rants
 
  Social media is not the place to air your grievances. If you want to complain about your boss, coworkers, or relatives, social media is a terrible place to do so. Someone will likely see it and let the person know, resulting in a messy situation.
@@ -76,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -84,21 +89,13 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -110,24 +107,22 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
  If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -136,23 +131,17 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## What You Shouldn't Share Online
 
  While social media can be a fun way to share with friends you don't see in person, sharing online has many downsides compared to talking in person. It's easy to overshare, not realize the audience that could see your posts, or make other mistakes.
 
  Sharing information online voluntarily lessens your privacy and can open you up to attacks on your security, too. It's wise to be intentional about what you share.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +150,18 @@ thumbnail: https://thmb.techidaily.com/c930e94b907356f9a15f0bf147840ab473cafcc14
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-iphone-night-scene-mastery-guide/"><u>[New] In 2024, IPhone Night Scene Mastery Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-complete-critique-the-ultimate-review-for-bublcam-360-camera/"><u>[Updated] Complete Critique The Ultimate Review for Bublcam 360 Camera</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-pro-level-video-editing-with-vivacut-full-review-and-guidebook/"><u>[Updated] In 2024, Pro-Level Video Editing with VivaCut Full Review & Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-the-pitfalls-of-indiscriminate-online-networking/"><u>Avoid the Pitfalls of Indiscriminate Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-the-unknown-when-will-oculus-quest-iii-arrive/"><u>Awaiting the Unknown: When Will Oculus Quest III Arrive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-in-digital-dialogue-with-facebook-sounds/"><u>Breaking Barriers in Digital Dialogue with Facebook Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-smarter-social-media-networking-strategy/"><u>Building a Smarter Social Media Networking Strategy</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/how-can-you-detect-a-defective-cpu-insights-by-the-specialists-at-yl-software/"><u>How Can You Detect a Defective CPU? Insights by the Specialists at YL Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-poco-c50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-snapshots-of-life-compreenasive-guide-to-capturing-the-journey-of-playing-sims-4/"><u>In 2024, Snapshots of Life Compreenasive Guide to Capturing the Journey of Playing Sims 4</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-12-05T23:01:14.787Z
-updated: 2024-12-06T20:44:05.560Z
+date: 2024-12-07T20:56:01.290Z
+updated: 2024-12-12T16:53:27.005Z
 tags:
   - facebook
 categories:
@@ -28,26 +28,26 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -55,6 +55,10 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -86,11 +90,11 @@ Close
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 Close
 
@@ -99,10 +103,6 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -125,22 +125,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-party-pulse-perfect-dj-content-for-events/"><u>[New] 2024 Approved Party Pulse Perfect DJ Content for Events</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/rafting-the-next-big-thing-your-guide-to-youtubes-best-video-types/"><u>[New] Crafting the Next Big Thing Your Guide to YouTube's Best Video Types</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-flash-video-frenzy/"><u>[Updated] Facebook's Flash Video Frenzy</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-connectivitys-silver-lining-7-social-perks/"><u>Digital Connectivity's Silver Lining: 7 Social Perks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/easy-steps-for-screenshotting-instagrams-story-section/"><u>Easy Steps for Screenshotting Instagram's Story Section</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-revs-up-conversations-with-innovative-messaging-features-on-messenger-and-instagram/"><u>FB Revs Up Conversations with Innovative Messaging Features on Messenger & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-deleting-your-social-media-snoop-records/"><u>Guide to Deleting Your Social Media Snoop Records</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-poco-m6-5g-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Poco M6 5G.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-infinix-smart-7-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Infinix Smart 7 Without PUK Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-yourself-safe-while-exploring-fb-marketplace-deals/"><u>Keep Yourself Safe While Exploring FB Marketplace Deals</u></a></li>
-<li><a href="https://facebook.techidaily.com/leap-into-change-how-to-revamp-facebook-details/"><u>Leap Into Change: How to Revamp Facebook Details</u></a></li>
-<li><a href="https://win-dash.techidaily.com/macdvd-dvd/"><u>MacコンピュータにDVDデータ移行テクニック - DVD統合マストリーズ</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-kids-unveiling-sleep-mode-and-its-usage-guide/"><u>Messenger Kids: Unveiling Sleep Mode & Its Usage Guide</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/no-money-down-best-web-converters-from-tiktok-to-mp3-ranked/"><u>No Money Down Best Web Converters From TikTok To MP3 Ranked</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-guide-to-monitoring-app-and-website-interactions-on-fb/"><u>The Essential Guide to Monitoring App & Website Interactions on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-facebook-business-pages-vs-personal-profiles-in-brand-strategy/"><u>The Power of Facebook Business Pages vs Personal Profiles in Brand Strategy</u></a></li>
-<li><a href="https://win11.techidaily.com/tutorial-ceasing-wired-pc-keyboard-on-windows/"><u>Tutorial: Ceasing Wired PC Keyboard on Windows</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ignite-social-media-fanfare-master-these-9-instagram-commandments/"><u>2024 Approved Ignite Social Media Fanfare Master These 9 Instagram Commandments</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-get-your-file-explorer-working-again-after-it-stops-responding-on-windows-cuarenta/"><u>How to Get Your File Explorer Working Again After It Stops Responding on Windows Cuarenta</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-on-iphone-13-pro-max-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock On iPhone 13 Pro Max Online</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-6-sites-boosting-corporate-engagement/"><u>In 2024, Premier 6 Sites Boosting Corporate Engagement</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-proven-methods-for-clear-rl-stream-quality/"><u>In 2024, Proven Methods for Clear RL Stream Quality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-7-iosandroid-apps-for-mobile-friendly-youtube-streaming/"><u>In 2024, Top 7 iOS/Android Apps for Mobile-Friendly YouTube Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-at-the-forefront-of-covid-19-mythology/"><u>Influencers at the Forefront of Covid-19 Mythology</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-security-with-two-factor-authentication-on-major-mail-providers/"><u>Maximizing Security with Two-Factor Authentication on Major Mail Providers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-and-resolving-top-11-social-media-faux-pas-on-facebook/"><u>Navigating & Resolving Top 11 Social Media Faux Pas on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-away-from-sensational-selfies-sharing-at-meta/"><u>Steering Away From Sensational Selfies Sharing at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-is-now-facebookshift-into-meta-redefining-social-interaction/"><u>The Future Is Now: Facebook’shift Into 'Meta', Redefining Social Interaction</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlock-frozen-shift-on-windows-pcs/"><u>Unlock Frozen Shift on Windows PCs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Enigma of Fb's Secretive Users
-date: 2024-08-28T03:12:26.839Z
-updated: 2024-08-29T03:12:26.839Z
+date: 2024-12-11T23:10:55.045Z
+updated: 2024-12-12T17:35:43.078Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/fea6185edc685da72ba963a46eed57a3a71d46169
 
 ![facebook-stories-captioning-featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-stories-captioning-featured.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [A private Facebook profile](https://www.makeuseof.com/how-to-make-anonymous-facebook-profile/) is an account you cannot view without being friends. When you view a private Facebook profile, you don't see any user information and, in many cases, don't see a profile photo either. The user has switched off any public-facing profile settings, making the profile not quite anonymous but certainly more private.
 
  In the early days,[several Facebook tricks existed](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) that allowed at least a partial view of a private Facebook account. For instance, adding someone as a friend granted access to that person's Facebook page, regardless of privacy settings.
@@ -37,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/fea6185edc685da72ba963a46eed57a3a71d46169
 
  In that, the largest vulnerability to Facebook privacy is the human connection: social engineering, weak passwords, and poor personal security.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Users See Someone's Locked Profile on Facebook
 
  Even if you set your Facebook profile to private, it doesn't stop people from attempting to view it. Worse, setting your Facebook profile to private doesn't close the loopholes people can use to skirt the privacy settings. They are, after all, loopholes. The clue is in the name.
@@ -44,20 +52,17 @@ thumbnail: https://thmb.techidaily.com/fea6185edc685da72ba963a46eed57a3a71d46169
  There are a few methods people will use to get into a locked Facebook profile. Here's what you need to watch out for because even if you know the techniques below, someone else may try to use them against you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
  The most straightforward method is via a fake friend. These are users who figure out how to see Facebook posts from non-friends.
@@ -72,9 +77,6 @@ No advertising on the website.
 
  You can[take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Spyware Apps
 
  Once Facebook finally made it genuinely difficult to view a private Facebook profile, those desperate to view private Facebook profiles turned to more extreme options.
@@ -87,9 +89,6 @@ No advertising on the website.
 
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Password Theft
 
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
@@ -105,18 +104,15 @@ No advertising on the website.
  Otherwise, start using stronger passwords, possibly using one of these[online password generators](https://www.makeuseof.com/tag/5-websites-to-generate-a-safe-and-strong-password/) to get you started. Another thing you can do is take proactive steps before a breach happens. There are several ways you can[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , making it easier to get it back if it's breached.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Phishing and Social Engineering
 
  Another last resort someone might use to access your private Facebook account is to socially engineer one of your friends into giving up their account. Sure, it sounds far-fetched, and like it would be a tremendous amount of effort just to view a private Facebook account. But if you're a high-worth individual or someone really wants to see what your cat looks like, they might go all the way and attempt to scam one of your friends to see your locked account.
 
  If you have friends that constantly seem to have their Facebook accounts breached, you might consider[adding them to a Facebook restriction list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) or[even blocking them entirely](https://www.makeuseof.com/how-to-block-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## What Is a Facebook Locked Profile Viewer?
 
  A Facebook locked profile viewer is as it sounds: a tool that promises to unlock any Facebook account and reveal its contents to you. While the idea of using a free online tool to unlock a private Facebook account sounds tempting, these websites are typically filled with all kinds of scams and other nasties, and you could end up doing real harm to your computer. The threat of malware is an issue, and you could lose more than your Facebook data in an attempt to see someone's locked Facebook profile.
@@ -131,14 +127,11 @@ No advertising on the website.
 
  In general, Facebook is a security and privacy nightmare. So, yes, protect your Facebook account against people preying on your data. But consider protecting yourself against the platform itself too.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +140,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-social-scrutiny-who-felt-the-glance-on-your-insta-image/"><u>[New] 2024 Approved Social Scrutiny Who Felt the Glance on Your Insta Image?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-definitive-guide-to-choosing-the-best-webcam-for-your-youtube-channel/"><u>2024 Approved The Definitive Guide to Choosing the Best Webcam for Your YouTube Channel</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/deciphering-if-reviews-on-products-are-paid-for-2024/"><u>Deciphering if Reviews on Products Are Paid for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-sites-and-cities-for-finding-jobs/"><u>Essential Sites and Cities for Finding Jobs</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-social-chains-separate-instagram-and-facebook/"><u>Freedom From Social Chains: Separate Instagram & Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-top-6-minecraft-village-house-ideas/"><u>In 2024, Top 6 Minecraft Village House Ideas</u></a></li>
+<li><a href="https://games-able.techidaily.com/overcoming-display-driver-failed-errors-in-windows-11-os/"><u>Overcoming Display Driver Failed Errors in Windows 11 OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-fb-password-with-minimal-hassle/"><u>Reclaim Your FB Password with Minimal Hassle</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/revolutionizing-productivity-with-lenovos-new-thinkingpad-laptops-equipped-with-cutting-edge-artifice-intelligence-business-users-dream-machine-featured-on-134/"><u>Revolutionizing Productivity with Lenovo’s New ThinkingPad Laptops Equipped With Cutting-Edge Artifice Intelligence: Business User's Dream Machine | Featured on ZDNET</u></a></li>
+<li><a href="https://network-issues.techidaily.com/strategies-to-avert-hp-screensaver-flash/"><u>Strategies to Avert HP Screensaver Flash</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-strategies-for-adjusting-song-speed-on-spotify-for-2024/"><u>Top Strategies for Adjusting Song Speed on Spotify for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-10-secrets-to-simplifying-your-sms-spaces/"><u>Unlock 10 Secrets to Simplifying Your SMS Spaces</u></a></li>
+</ul></div>
 

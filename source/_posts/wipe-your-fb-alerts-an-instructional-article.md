@@ -1,7 +1,7 @@
 ---
 title: "Wipe Your Fb Alerts: An Instructional Article"
-date: 2024-08-28T03:11:26.618Z
-updated: 2024-08-29T03:11:26.618Z
+date: 2024-12-06T19:55:34.090Z
+updated: 2024-12-12T17:15:56.447Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  Facebook has developed a reputation for spamming users. The smartphone app bombards you with alerts. Dozens of emails arrive every day. And every time you log into the web app, you're sure to see lots of new notifications.
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete Facebook Notifications
 
@@ -53,8 +57,9 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 4. Select**Mark all as read** .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
@@ -62,8 +67,9 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications as They Arrive
 
  The process to turn off Facebook notifications as they arrive is similar to the process for deleting Facebook notifications.
@@ -80,16 +86,10 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
  You can also use the menu to re-enable a notification that you'd previously disabled using the first method we discussed.
@@ -115,9 +115,6 @@ Follow the steps below to learn about the process on the web app:
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
 Close
@@ -132,8 +129,9 @@ Close
 6. Slide the toggle next to**Show notifications** into the**Off** position.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on iOS
 
  If you have an iOS device, follow these steps to stop Facebook notifications:
@@ -143,6 +141,10 @@ Close
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## More Ways to Make Facebook Work for You
 
  Wrestling back control of your Facebook notifications is just one way to make Facebook work for you. Yes, there's a little bit of micromanagement involved, but it's worth the effort to ensure Facebook is more useful than annoying.
@@ -151,14 +153,11 @@ Close
 
  Image Credit: jhansen2/[Depositphotos](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU37313/https://depositphotos.com/7590222/stock-illustration-seamless-social-networking-background.html)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +166,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-vivid-visual-storytelling-the-fade-technique-for-2024/"><u>[New] Vivid Visual Storytelling The Fade Technique for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-access-top-shorter-video-downloads-for-free-online/"><u>[Updated] 2024 Approved Access Top Shorter Video Downloads for FREE Online</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebook-cover-makeovers-the-most-trusted-design-tools-ranked/"><u>[Updated] In 2024, Facebook Cover Makeovers The Most Trusted Design Tools Ranked</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-become-a-travel-vlogger-the-ultimate-guide-of-travel-vlogging/"><u>[Updated] In 2024, How To Become A Travel Vlogger | The Ultimate Guide of Travel Vlogging</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-strategies-for-enhancing-your-apple-podcast-visibility/"><u>[Updated] In 2024, Strategies for Enhancing Your Apple Podcast Visibility</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-photoshop-and-beyond-top-monitors-reviewed-editors-picks/"><u>2024 Approved Photoshop & Beyond Top Monitors Reviewed [Editors' Picks]</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-internet-chats-never-be-erased/"><u>Can Internet Chats Never Be Erased?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-art-of-message-room-mastery/"><u>Decoding the Art of Message Room Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-into-facebooks-renaming-speculation/"><u>Digging Deeper Into Facebook's Renaming Speculation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-mobile-shoot-ranking-the-best-9-camgear-innovations/"><u>Elevate Your Mobile Shoot - Ranking the Best 9 CamGear Innovations</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-linear-to-intuitive-ai-in-website-exploration/"><u>From Linear to Intuitive: AI in Website Exploration</u></a></li>
+<li><a href="https://facebook.techidaily.com/muting-unsolicited-social-network-friend-alerts/"><u>Muting Unsolicited Social Network Friend Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-obstacles-in-receiving-facebook-login-verification/"><u>Overcoming Obstacles in Receiving Facebook Login Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-from-the-barrage-of-intrusive-facebook-promotions/"><u>Shielding Yourself From the Barrage of Intrusive Facebook Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-users-shift-to-hardware-for-cybersecurity/"><u>Social Network Users Shift to Hardware for Cybersecurity</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-ultimate-guide-to-saving-your-iphone-7-display/"><u>The Ultimate Guide to Saving Your iPhone 7 Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/yes-you-can-still-poke-people-on-facebook-heres-how/"><u>Yes, You Can Still Poke People on Facebook: Here's How</u></a></li>
+</ul></div>
 

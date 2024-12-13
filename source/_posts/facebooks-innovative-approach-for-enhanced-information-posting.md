@@ -1,7 +1,7 @@
 ---
 title: Facebook's Innovative Approach for Enhanced Information Posting
-date: 2024-08-28T03:13:31.986Z
-updated: 2024-08-29T03:13:31.986Z
+date: 2024-12-05T23:54:28.644Z
+updated: 2024-12-12T23:43:04.376Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
 
  If you try to share a news article without opening it on Facebook, you may soon see a notification that encourages you to read it first. The prompt is currently being tested on the platform, with the goal of promoting more informed sharing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Prods Users to Read Before Sharing
 
  Facebook wants you to look past the headline, and actually read the news article you're about to share with your friends.
@@ -27,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
 
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Twitter Already Unveiled a Similar Prompt
 
  Facebook clearly took this prompt directly from Twitter's playbook. In September 2020,[Twitter launched a notification](https://www.makeuseof.com/twitter-encourages-to-read-before-retweeting/) that appears when users try to Retweet an article they didn't open. Surprisingly enough, Twitter saw some success with this feature—the prompt actually increased the likelihood of users reading the article before Retweeting it.
@@ -36,22 +44,20 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Facebook Ever Be Free of Misinformation?
 
  Facebook's new prompt will only make a tiny impact on a much larger problem. It's likely that many users will end up sharing unread articles in the heat of the moment, especially if the headline is shocking enough.
 
  And since Facebook can't force you not to post certain things (unless it breaks Facebook's rules), misinformation will always be an issue. That's why it's important to know how to identify misinformation, as well as how to find reliable news sources.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -60,4 +66,24 @@ thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-securing-every-moment-tips-for-reliable-capture-of-google-meet-sessions-for-2024/"><u>[New] Securing Every Moment Tips for Reliable Capture of Google Meet Sessions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-harnessing-the-benefits-with-creative-commons-licenses/"><u>[Updated] In 2024, Harnessing the Benefits with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-secure-your-brand-on-youtube-adding-logos-and-watermarks-for-2024/"><u>[Updated] Secure Your Brand on YouTube Adding Logos & Watermarks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-avoiding-deceptive-fb-links/"><u>Best Practices for Avoiding Deceptive FB Links</u></a></li>
+<li><a href="https://common-error.techidaily.com/ease-windows-wmi-process-demands/"><u>Ease Windows WMi Process Demands</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-chapter-nine-exciting-reasons-to-dive-into-the-metaverse/"><u>Facebook's Next Chapter: Nine Exciting Reasons to Dive Into the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-depth-hardware-analysis-with-tom-your-guide-to-gadgets-and-equipment/"><u>In-Depth Hardware Analysis with Tom - Your Guide to Gadgets and Equipment</u></a></li>
+<li><a href="https://android-location.techidaily.com/mastering-modern-gear-tips-and-tricks-from-toms-hardware-analysis/"><u>Mastering Modern Gear: Tips & Tricks From Tom's Hardware Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-connectivity-with-apps-and-websites/"><u>Navigating Facebook Connectivity with Apps & Websites</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-laptop-bright-screen-dilemma-a-comprehensive-fix-guide/"><u>Overcoming Laptop Bright Screen Dilemma: A Comprehensive Fix Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-trends-in-facebook-usage-metrics/"><u>Peaking Trends in Facebook Usage Metrics</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-privacy-delete-fb-watch-logs-now/"><u>Securing Your Privacy: Delete FB Watch Logs Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-embedding-image-descriptors-in-fb-photos/"><u>Step-by-Step: Embedding Image Descriptors in Fb Photos</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/unraveling-windows-woes-solutions-to-resolve-stop-error-0x00000-groggy-f4-screen-freeze/"><u>Unraveling Windows Woes: Solutions to Resolve STOP Error 0X00000 Groggy F4 Screen Freeze</u></a></li>
+</ul></div>
 

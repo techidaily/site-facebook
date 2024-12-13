@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2024-11-22T12:45:52.059Z
-updated: 2024-11-26T18:15:18.908Z
+date: 2024-12-08T22:19:05.324Z
+updated: 2024-12-12T23:50:32.923Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -30,16 +30,16 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 * [How to Check if You've Opted In to Facebook's Link History](#how-to-check-if-you-39-ve-opted-in-to-facebook-39-s-link-history)
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Enabling Link History in the Facebook app will allow Meta to track your data.
 * You can turn the Link History feature on or off from the Settings & Privacy section of the Facebook app.
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Facebook's Link History Feature Works
 
@@ -61,23 +61,19 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -90,12 +86,16 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
@@ -121,17 +121,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-gratitude-archive-complete-collection-freepaid/"><u>[New] Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-watch-record-and-edit-football-matches-for-free/"><u>[New] How to Watch, Record, and Edit Football Matches for Free</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-starter-guide-8-easy-youtube-money-makers/"><u>2024 Approved Starter Guide 8 Easy YouTube Money-Makers</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-the-ultimate-guide-to-choosing-a-professional-video-editor-filmora-or-democracy-creator/"><u>2024 Approved The Ultimate Guide to Choosing a Professional Video Editor (Filmora or Democracy Creator)</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-reels-strategy-for-instant-success/"><u>In 2024, Instagram Reels Strategy for Instant Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-digital-connection-5-best-platforms-for-companies/"><u>Mastering Digital Connection: 5 Best Platforms for Companies</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/mastering-green-screen-filming-essential-techniques/"><u>Mastering Green Screen Filming Essential Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-your-feed-intelligent-photo-captioning-tech/"><u>Streamline Your Feed: Intelligent Photo Captioning Tech</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-wlanapidll-not-found-easy-solutions-for-windows-users/"><u>Troubleshooting 'wlanapi.dll Not Found': Easy Solutions for Windows Users</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/wheauncorrectableissue-eliminated-a-step-by-step-troubleshooting-methodology/"><u>WHEA_UNCORRECTABLE_ISSUE Eliminated – A Step-by-Step Troubleshooting Methodology</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-definitive-guide-to-efficient-screen-recording-on-an-hp-notebook-for-2024/"><u>[New] The Definitive Guide to Efficient Screen Recording on an HP Notebook for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-efficiently-configuring-zoom-for-flawless-calls-for-2024/"><u>[Updated] Efficiently Configuring Zoom for Flawless Calls for 2024</u></a></li>
+<li><a href="https://win-great.techidaily.com/ais-future-outlined-by-sam-altman-in-microsofts-build-keynote-insights-on-progress/"><u>AI's Future Outlined by Sam Altman in Microsoft's Build Keynote - Insights on Progress</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-a-smooth-transition-off-facebook-8-essential-tips/"><u>Ensuring a Smooth Transition Off Facebook - 8 Essential Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-flaccid-features-heres-how-to-fix-them/"><u>Facebook's Flaccid Features? Here’s How to Fix Them</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-honor-v-purse-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Honor V Purse? Try These Fixes</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-motorola-moto-g84-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Motorola Moto G84 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-location-accessible-on-messenger/"><u>How to Make Your Location Accessible on Messenger</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-the-spectrum-enhanced-by-blades-newest-quad-hd-cameras/"><u>In 2024, The Spectrum Enhanced by Blade's Newest Quad-HD Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/metascape-unleashed-discovering-six-exciting-facebook-innovations/"><u>Metascape, Unleashed: Discovering Six Exciting Facebook Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-wave-pro-palestinian-actions-hit-facebooks-ratings-hard/"><u>One-Star Wave: Pro-Palestinian Actions Hit Facebook's Ratings Hard</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-presence-changing-your-facebook-name/"><u>Redefining Online Presence: Changing Your Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/senior-vp-of-fb-ads-everson-exits-role/"><u>Senior VP of FB Ads, Everson, Exits Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-uptime-cycles-for-users/"><u>Unveiling Facebook's Uptime Cycles for Users</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-honest-guide-to-getting-filmora-for-free-no-illegal-downloads-for-2024/"><u>Updated The Honest Guide to Getting Filmora for Free (No Illegal Downloads) for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/vsdc-insight-an-in-depth-look-at-its-features-and-rivals-for-2024/"><u>VSDC Insight An In-Depth Look at Its Features and Rivals for 2024</u></a></li>
 </ul></div>
 

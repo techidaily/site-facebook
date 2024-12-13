@@ -1,7 +1,7 @@
 ---
 title: "The Cessation Chronicle: How to Erase Your Account for Ever"
-date: 2024-12-01T19:14:01.006Z
-updated: 2024-12-06T18:15:26.554Z
+date: 2024-12-10T17:07:53.098Z
+updated: 2024-12-12T21:00:47.955Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What It Means to Delete a Facebook Account
 
 ![Facebook email announcing account deletion](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-email-announcing-account-deletion.jpeg)
@@ -45,12 +41,16 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Once the cooling-off period passes, Facebook promises to remove all traces of your profile from its servers within 90 days. But don't worry; during the 90 days, your data is unavailable to other Facebook users.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Delete Your Facebook Account
 
  Before you remove your Facebook account forever, there are a few steps you need to take to ensure that the process runs smoothly and you don't have a burning feeling of regret later on.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Download Your Facebook Data
 
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 ![Apps and website section of Facebook settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/apps-and-website-section-of-facebook-settings.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can see which apps have access to your Facebook account by clicking your profile picture and going to **Settings & privacy > Settings > Apps and Websites** .
@@ -107,13 +107,13 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
 ![Deactivating or deleting your Facebook account prompt on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-or-deleting-your-facebook-account-prompt-on-facebook-web.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You will be asked to enter your password and confirm your decision. Once you do that, your account will be deleted.
 
  But if you want a less permanent solution, you can choose to deactivate your account instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Deactivate a Facebook Account
 
@@ -131,13 +131,13 @@ Here's how to deactivate your Facebook account:
 
 ![Facebook account deactivation prompt in the account center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-account-deactivation-prompt-in-the-account-center.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You will be asked to confirm your decision. Once you do that, your account will be deactivated.
 
  You can toggle the option to continue using Messenger even though your Facebook account is disabled.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Reactivate a Facebook Account
 
@@ -164,22 +164,17 @@ Here's how to deactivate your Facebook account:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-improve-conference-efficiency-webcam-assisted-powerpoint/"><u>[New] In 2024, Improve Conference Efficiency Webcam-Assisted PowerPoint</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-newbies-guide-6-strategic-social-media-tactics-for-growth/"><u>[New] Newbies Guide 6 Strategic Social Media Tactics for Growth</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-the-right-time-to-invest-in-your-next-4k-lens-for-2024/"><u>[New] The Right Time to Invest in Your Next 4K Lens for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-must-try-microphones-for-exceptional-asmr-sounds/"><u>[Updated] In 2024, 10 Must-Try Microphones for Exceptional ASMR Sounds</u></a></li>
-<li><a href="https://facebook.techidaily.com/checklist-for-identifying-fb-enthusiasts/"><u>Checklist for Identifying FB Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-power-play-the-new-strategy-against-big-tech-and-silicon-valley/"><u>Deconstructing Power Play: The New Strategy Against Big Tech and Silicon Valley</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/expert-insights-into-latest-hardware-from-toms-technology-hub/"><u>Expert Insights Into Latest Hardware From Tom's Technology Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-sever-spotify-facebook-association-effectively/"><u>How To Sever Spotify-Facebook Association Effectively</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-platforms-responsibility-in-the-fight-against-covid-19-misinformation/"><u>Online Platforms' Responsibility in the Fight Against COVID-19 Misinformation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719298161302-overcoming-grayed-out-screensaver-in-win-os-top-fixes/"><u>Overcoming Grayed-Out Screensaver in Win OS: Top Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/sustainability-shines-facebooks-full-renewable-dependency/"><u>Sustainability Shines: Facebook's Full Renewable Dependency</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-vk-understanding-russias-alternative-facebook/"><u>The Rise of VK: Understanding Russia’s Alternative Facebook</u></a></li>
-<li><a href="https://win-hot.techidaily.com/top-2-free-desktop-screen-capture-tools-perfect-for-quick-screenshots/"><u>Top 2 Free Desktop Screen Capture Tools - Perfect for Quick Screenshots!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/uncover-the-potential-testing-and-review-of-the-netgear-ex6200-wifi-signal-amplifier-ac1200-model/"><u>Uncover the Potential: Testing and Review of the Netgear EX6200 WiFi Signal Amplifier (AC1200 Model)</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-eyes-the-case-for-deleting-your-facebook-watch-history/"><u>Unseen Eyes: The Case for Deleting Your Facebook Watch History</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-filming-made-simple-steps-for-pcs-iphones-and-macbooks/"><u>[New] Filming Made Simple Steps for PCs, iPhones & MacBooks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-optimize-game-console-audio-settings-on-sony-platforms/"><u>[New] In 2024, Optimize Game Console Audio Settings on Sony Platforms</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-iphone-15-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase iPhone 15 When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-my-selection-in-fbs-custom-ads/"><u>Decoding My Selection in FB's Custom Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-sheryls-role-in-facebooks-evolution/"><u>Decoding Sheryl's Role in Facebook's Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-chamber-of-messages-essential-beginner-tricks/"><u>Decoding the Chamber of Messages: Essential Beginner Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-legal-standoff-with-g-f-t-over-free-speech/"><u>Donald Trump's Legal Standoff with G-F-T Over Free Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-update-birthdate-on-social-media/"><u>Easy Steps to Update Birthdate on Social Media</u></a></li>
+<li><a href="https://win-forum.techidaily.com/effective-methods-to-erase-user-profiles-from-your-pc-running-on-windows-10/"><u>Effective Methods to Erase User Profiles From Your PC Running on Windows 10</u></a></li>
+<li><a href="https://os-tips.techidaily.com/imitation-lastpass-application-found-on-apples-official-digital-marketplace/"><u>Imitation LastPass Application Found on Apple's Official Digital Marketplace</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-composers-handbook-to-instagram-and-music-rights/"><u>In 2024, The Composer's Handbook to Instagram and Music Rights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-rising-star-in-e-readers-a-thorough-review-of-the-kobo-nia-vs-kindle/"><u>The Rising Star in E-Readers: A Thorough Review of the Kobo Nia vs Kindle</u></a></li>
 </ul></div>
 

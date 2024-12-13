@@ -1,7 +1,7 @@
 ---
 title: Should Social Media Sites Have Dislike Buttons?
-date: 2024-08-28T03:12:36.854Z
-updated: 2024-08-29T03:12:36.854Z
+date: 2024-12-07T16:28:09.602Z
+updated: 2024-12-12T17:51:21.072Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Hate Campaigns Leave Less of an Impact
 
  A major reason YouTube shared for[hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
@@ -37,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Less Stress When Posting
 
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
@@ -54,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 
 ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
  Stress and anxiety don't only occur at the point of posting. Rather, they can plague every step of your YouTube experience. Sure, you can be nervous to click "post" on your video, but those nerves can be with you when you check on the video later on, too.
@@ -74,11 +72,16 @@ What's more, it goes beyond affecting only the poster.
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### You Can't Discern Helpfulness
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
@@ -88,17 +91,14 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### You Can't Tell if It's Worth Seeing
 
 ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  When the dislikes aren't visible, you can't gauge whether a video is worth your time.
 
  The like-to-dislike ratio is a good metric to decide whether certain videos are up to your viewing standards. When that's taken away, you might get suckered into watching something that's not worth it at all.
@@ -111,9 +111,6 @@ What's more, it goes beyond affecting only the poster.
 
  Does it make sense to have a dislike button, remove it, or hide the count? Let's look at two examples: Twitter and Reddit.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Does It Make Sense for the Platform at All?
 
  Twitter is dipping its toes into the dislike pool by introducing a[downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
@@ -138,20 +135,21 @@ What's more, it goes beyond affecting only the poster.
 
  Reddit needs the balance of both upvotes and downvotes to be the platform people signed up to use. So, instead of removing the button entirely, it chose to hide the count of both buttons it offers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Are Hidden Dislikes the Future?
 
  YouTube and Reddit took the path of hiding the dislike count. Twitter is looking to introduce a dislike system. Facebook had a dislike button but chose to remove it.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +158,26 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-revealing-top-streamers-expert-tips-on-choosing-right/"><u>[New] Revealing Top Streamers Expert Tips on Choosing Right</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-huaweis-built-in-recorder-screen-capture-for-mate-and-p-series-for-2024/"><u>[Updated] Huawei's Built-In Recorder Screen Capture for Mate and P Series for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-standard-youtube-licenses-versus-cc-for-2024/"><u>[Updated] Standard Youtube Licenses Versus CC for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-comparing-connectivity-and-control-between-original-and-new-samsung-galaxy-watch/"><u>Comprehensive Review: Comparing Connectivity and Control Between Original & New Samsung Galaxy Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-online-persona-with-a-facebook-image/"><u>Creating an Online Persona with a Facebook Image</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/creating-characters-crafting-chronicles-gpts-sixfold-strategy/"><u>Creating Characters, Crafting Chronicles: GPT's Sixfold Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-big-blunders-a-list-of-5-user-missteps/"><u>Facebook's Big Blunders: A List of 5 User Missteps</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-present-board-members/"><u>Facebook's Present Board Members</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-a25-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy A25 5G Phones with/without a PC</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-guide-to-enable-dynamic-hdr-in-windows-11/"><u>In 2024, Guide to Enable Dynamic HDR in Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/is-inshot-surging-above-all-else-in-edits-for-2024/"><u>Is InShot Surging Above All Else in Edits for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/linkedins-sneaky-approach-to-user-activity-and-app-availability/"><u>LinkedIn's Sneaky Approach to User Activity and App Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-your-snapshots-from-public-eyes/"><u>Shielding Your Snapshots From Public Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-ties-7-innovative-ways-online-to-converge/"><u>Social Ties: 7 Innovative Ways Online to Converge</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-meizu-21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-conversations-excluding-politics/"><u>Streamlining Conversations, Excluding Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-differences-in-facebook-devices/"><u>Understanding the Differences in Facebook Devices</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlock-potential-ms-store-apps-that-elevate-experience/"><u>Unlock Potential: MS Store Apps That Elevate Experience</u></a></li>
+</ul></div>
 

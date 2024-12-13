@@ -1,7 +1,7 @@
 ---
 title: Facebook Was Right to Ban Donald Trump but Not Indefinitely
-date: 2024-08-28T03:09:42.085Z
-updated: 2024-08-29T03:09:42.085Z
+date: 2024-12-10T23:58:02.456Z
+updated: 2024-12-12T18:10:27.920Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
  The Facebook Oversight Board has reviewed Facebook's suspension of former-President Donald Trump from the platform. And although the decision was upheld, the Board has stated that Facebook must review the suspension as it wasn't a proper penalty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Oversight Board Rules on Facebook's Trump Suspension
 
  Facebook suspended Trump from the platform on January 7, 2021, for comments he made with regard to the Capitol incident on January 6\. In particular, the comments Facebook took action over were "We love you. You're very special," "great patriots," and "remember this day forever" across two posts.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
  Since the ruling, there has been a large amount of backlash on social media regarding the decision. Users on both sides of the argument have mentioned that the ruling was not right, either because they believe Trump shouldn't have been banned in the first place, or because he shouldn't be allowed back on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Next Steps for Facebook?
 
  Since The Oversight Board ruled that an indefinite suspension was not appropriate, it has told Facebook that it must reassess the decision. The Board has decided this after evaluating that suspending any user for an indefinite amount of time didn't follow any procedure.
@@ -42,8 +50,9 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
  The Oversight Board also made a number of other recommendations for Facebook, such as reviewing the platform's role in the events of January 6th, and creating policies on Facebook's response to any similar events in the future.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is The Oversight Board?
 
  The Facebook Oversight Board is a body of experts that will review "difficult and significant decisions" that the social network makes. Essentially, the Board exists to make sure Facebook doesn't break any rules or laws in its decision-making.
@@ -51,27 +60,26 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 ![Facebook Oversight Board logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Oversight_Board_Logo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Facebook did set up and fund the Board, but it is an independent body with no Facebook employees involved. The Board has the power to make binding decisions. Members of the public can appeal decisions to the Board.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What About Other Social Media Platforms?
 
  Other notable social media sites such as Twitter also suspended Trump for the same reason as Facebook. Twitter has gone as far as to[ban Trump from the platform forever](https://www.makeuseof.com/twitters-trump-ban-last-forever/) .
 
  The Oversight Board's ruling on Trump's suspension from the platform applies only to Facebook. No other sites are bound by the decisions, so it remains unclear if any other social media platforms will reconsider Trump's ban.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +88,16 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-how-to-change-your-tiktok-username/"><u>[New] 2024 Approved How to Change Your TikTok Username</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-evaluating-igtv-video-impact-effectively/"><u>2024 Approved Evaluating IGTV Video Impact Effectively</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-three-key-strategies-for-acquiring-youtube-srt-files/"><u>2024 Approved Three Key Strategies for Acquiring YouTube SRT Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-your-fb-birthdate-step-by-step-guide/"><u>Adjusting Your FB Birthdate: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternatives-to-messenger-no-social-media-required/"><u>Alternatives to Messenger: No Social Media Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-functionality-with-privacy-facebooks-extended-services/"><u>Balancing Functionality with Privacy: Facebook's Extended Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-commentary-for-online-communities/"><u>Covert Commentary for Online Communities</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-techniques-implementing-luts-in-adobe-ae-for-2024/"><u>Expert Techniques Implementing LUTs in Adobe AE for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 12 5G | Dr.fone</u></a></li>
+</ul></div>
 

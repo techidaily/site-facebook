@@ -1,7 +1,7 @@
 ---
 title: The Rationale Behind Selecting You for Fb Ads
-date: 2024-08-28T03:10:51.093Z
-updated: 2024-08-29T03:10:51.093Z
+date: 2024-12-10T19:41:18.870Z
+updated: 2024-12-12T20:31:03.553Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
 
 ### Interests
@@ -42,30 +46,28 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Demographics
 
  This subcategory will reach people by carefully considering certain details, such as their employment, finance, income, household, education, language, and lifestyle.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Learn More About the Ads You See
 
  The easiest way to learn why you are seeing a certain post or ad on Facebook is to use its feature “Why am I seeing this ad?”. This will provide you with specific insight as to why that certain ad or post appeared on your feed.
 
 ![Facebook why am I seeing this ad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Why-Am-I-Seeing-This-Ad-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you are seeing something that you are not interested in, you are able to block those types of ads, as well as report any data misuse.
 
  In order to reach out to you through advertisements, advertisers need to clarify that they have obtained your information legally. In addition, other than learning the reason why you are seeing something on your Facebook page, this tool will also give you a couple of options that will help you have better control of your News Feed inputs.
 
  However, since[Facebook’s News Feed](https://www.facebook.com/help/1155510281178725) is still a mystery to many, it has provided a detailed explanation of how all of this works.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Adjust Your Ad Preferences on Facebook
 
@@ -80,8 +82,9 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
 ![Facebook Ad Options In Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Click-On-Ads.jpg)
@@ -94,28 +97,23 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
 
 ![Facebook Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Ad-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Let Facebook Know Your Ad Preferences
 
  In order to specifically target users, Facebook uses a lot of complex math and algorithms. It all boils down to the information that you decided to make public. To make your Facebook experience more pleasant, Facebook has provided its users with ways to adjust their ad preferences.
 
  That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +122,17 @@ thumbnail: https://thmb.techidaily.com/c8505bae3e314a2b381005e22ef6317da32419f0b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-stepwise-guide-to-optimal-zoom-audio-recording/"><u>[Updated] 2024 Approved Stepwise Guide to Optimal Zoom Audio Recording</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-circumnavigating-youtubes-block-list/"><u>2024 Approved Circumnavigating YouTube's Block List</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-best-practices-facebooks-role-in-dynamic-work-environments/"><u>8 Best Practices: Facebook's Role in Dynamic Work Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/anonymous-contribution-techniques-to-groups/"><u>Anonymous Contribution Techniques to Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-distributing-content-wisely-amongst-fb-groups/"><u>Balancing Act: Distributing Content Wisely Amongst Fb Groups</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dreamland-discourse-top-asmr-practitioners-recommended/"><u>Dreamland Discourse Top ASMR Practitioners Recommended</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-stop-frequent-content-warning-browser-issues-on-windows-based-desktops/"><u>How To Stop Frequent 'Content Warning' Browser Issues on Windows-Based Desktops</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lava-blaze-curve-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Lava Blaze Curve 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Phantom V Fold? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154685992-take-your-fb-content-global-upload-and-transfer-to-major-websites-now/"><u>Take Your Fb Content Global: Upload and Transfer to Major Websites Now</u></a></li>
+</ul></div>
 

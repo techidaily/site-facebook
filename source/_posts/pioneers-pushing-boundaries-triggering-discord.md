@@ -1,7 +1,7 @@
 ---
 title: Pioneers Pushing Boundaries, Triggering Discord
-date: 2024-08-28T03:09:07.525Z
-updated: 2024-08-29T03:09:07.525Z
+date: 2024-12-08T20:20:40.723Z
+updated: 2024-12-12T19:24:47.592Z
 tags:
   - facebook
 categories:
@@ -50,15 +50,13 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Julian Assange
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Best known for:** Founder of WikiLeaks
 
  Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
@@ -73,13 +71,18 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Susan Wojcicki
 
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Best known for:** CEO of YouTube
 
  Relatively foreign to controversy, Wojcicki's first fall out with the YouTube community was when she upheld the decision not to kick YouTube personality Logan Paul from the platform. This was after he posted a video of a person who had committed suicide.
@@ -90,10 +93,11 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Bill Gates
 
@@ -111,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Mark Zuckerberg
 
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
@@ -137,8 +138,9 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
  When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Least Polarizing Tech Figure?
 
  It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
@@ -147,14 +149,11 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +162,26 @@ thumbnail: https://thmb.techidaily.com/6f4cdd66eb80d6b11b40dd91cdc2954ad9c9332b6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-learn-how-to-create-compelling-youtube-closures-economically/"><u>[New] 2024 Approved Learn How To Create Compelling YouTube Closures Economically</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/eamless-blend-of-text-and-video-without-payment/"><u>[New] Seamless Blend of Text & Video Without Payment</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtube-to-igtv-conversion-pro-tips-revealed/"><u>[Updated] YouTube-to-IGTV Conversion Pro Tips Revealed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-professional-drones-an-in-depth-pilots-list/"><u>2024 Approved Best Professional Drones – An In-Depth Pilot’s List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-bites-of-wisdom-youtube-tvs-unique-selling-points/"><u>2024 Approved Bites of Wisdom YouTube TV's Unique Selling Points</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprerancial-guide-to-facebook-echo-show-vs-portal/"><u>A Comprerancial Guide to Facebook Echo Show vs Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-crafting-profile-pics-that-resonate/"><u>A Guide to Crafting Profile Pics That Resonate</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-app-usage-patterns-a-predictor-of-consumer-desires/"><u>Are App Usage Patterns A Predictor of Consumer Desires?</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-out-fbs-constant-notification-chirps/"><u>Blocking Out Fb's Constant Notification Chirps</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-in-digital-socialization-with-facebook-updates/"><u>Bridging Gaps in Digital Socialization with Facebook Updates</u></a></li>
+<li><a href="https://common-error.techidaily.com/chrome-in-crisis-effective-ways-to-address-your-browsers-sudden-nightfall/"><u>Chrome in Crisis: Effective Ways to Address Your Browser’s Sudden Nightfall</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/deciphering-the-value-of-photoshop-sway-control-for-2024/"><u>Deciphering the Value of Photoshop Sway Control for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/google-pixel-5-insights-striking-a-chord-between-economy-and-flagship-quality/"><u>Google Pixel 5 Insights: Striking a Chord Between Economy and Flagship Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-your-screen-three-strategies-to-slow-youtube-videos-down-57-chars-for-2024/"><u>Quiet Your Screen Three Strategies to Slow YouTube Videos Down (57 Chars) for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/top-11-cost-free-pdf-editors-the-ultimate-software-and-web-tool-guide/"><u>Top 11 Cost-Free PDF Editors: The Ultimate Software and Web Tool Guide</u></a></li>
+</ul></div>
 

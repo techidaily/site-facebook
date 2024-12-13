@@ -1,7 +1,7 @@
 ---
 title: "The Mystery of Shadowbanning: Definition & Prevention"
-date: 2024-11-26T09:01:41.459Z
-updated: 2024-11-26T16:15:43.527Z
+date: 2024-12-08T16:35:37.489Z
+updated: 2024-12-12T17:37:12.611Z
 tags:
   - facebook
 categories:
@@ -30,13 +30,13 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  We are talking about shadowbanning. So, what is shadowbanning? And what can you do to prevent a social media platform from shadowbanning you?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Shadowbanning?
 
 ![Self portrait of a man with shadows cast across his face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/creative-self-portraits-shadows.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social media platforms can ban users in a few different ways. You can lose access to your account for a short period of time or indefinitely. They can also ban you from making a new account if the offense is serious enough for an IP ban, which is when the platform shuts you out based on your IP address.
 
@@ -51,12 +51,16 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
  However, the mystery is whether the practice actually really exists in a tangible form, or if people just cry "Shadowbanned!" when their content just doesn't get a lot of views.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are People Really Getting Shadowbanned?
 
 ![Angry woman holding smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/angry-woman-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There have been numerous claims of shadowbanning across different social media platforms. With the politically charged environment making it harder than ever to distinguish genuine news from fake news, social media platforms have been accused of having a bias and using shadowbanning to silence the opinions they dislike.
 
@@ -72,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  Even after Twitter's switch to X, talk about shadowbanning was still prominent. X addressed shadowbanning, explaining that some posts will have their reach limited if they go against the platform's rules.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Shadowbanning on Instagram
 
  Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to[check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
@@ -81,10 +89,6 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
  However, this did not convince everyone. If you follow some smaller accounts on Instagram with a few thousand followers, you might have seen them complain about low reach all of a sudden.
 
  It could have happened to you, too, where an Instagram story posted by you had fewer views than you expected. This might not necessarily be shadowbanning. It could be up to algorithmic decisions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Shadowbanning on Facebook
 
@@ -103,16 +107,12 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 ![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  TikTok also doesn't explicitly shadowban, but its rules state that it may reduce visibility on content that violates its community guidelines. This includes content containing nudity, drugs, hate speech, or other prohibited content. Many TikTok creators feel like they have been shadowbanned at least temporarily.
 
  TikTok users notice they might have been shadowbanned when their TikToks rapidly lose engagement, like views and likes, from the For You Page. Posts may not even upload correctly or at all, and their fans have a hard time seeing their videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Avoid Getting Shadowbanned
 
@@ -143,20 +143,24 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-musical-alchemy-transforming-previews-into-memories/"><u>[Updated] 2024 Approved Musical Alchemy Transforming Previews Into Memories</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-honor-90-gt-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Honor 90 GT to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/graphic-geniuses-discover-the-best-10-free-sketch-for-mac/"><u>Graphic Geniuses Discover the Best 10 Free Sketch for Mac</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-find-x7-ultra-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Find X7 Ultra</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-a-disk-read-error-occurred-error-on-windows/"><u>How to Fix the “A Disk Read Error Occurred” Error on Windows</u></a></li>
-<li><a href="https://techidaily.com/how-to-set-up-remote-desktop-on-windows-10/"><u>How to Set up Remote Desktop on Windows 10</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/leveraging-powerpoints-automatic-transcription-feature/"><u>Leveraging PowerPoint’s Automatic Transcription Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-your-fb-following-list/"><u>Navigating Your FB Following List</u></a></li>
-<li><a href="https://facebook.techidaily.com/neutralizing-online-presence-by-scrubbing-beliefs-and-policies/"><u>Neutralizing Online Presence by Scrubbing Beliefs & Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/restore-your-feed-fixing-stuck-videos-on-facebook/"><u>Restore Your Feed: Fixing Stuck Videos on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/sony-buys-bungie-wardle-sells-wordle-facebook-quits-crypto-and-ebay-scams/"><u>Sony Buys Bungie, Wardle Sells Wordle, Facebook Quits Crypto, and eBay Scams</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-choosing-effective-timeline-image-covers/"><u>The Art of Choosing Effective Timeline Image Covers</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-favors-a-later-date-for-full-e2e-encryption-by-default/"><u>Why Meta Favors a Later Date for Full E2E Encryption by Default</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-11-lock-screen-fails-solving-common-screen-saver-malfunctions/"><u>Windows 11 Lock Screen Fails: Solving Common Screen Saver Malfunctions</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/windows-7-mouse-driver-download-and-installation-guide-errors-resolved/"><u>Windows 7 Mouse Driver Download and Installation Guide - Errors Resolved</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/our-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>[New] Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-acquire-standardized-thumbnails-from-youtube-online-and-desktop-options-for-2024/"><u>[Updated] How To Acquire Standardized Thumbnails From Youtube Online & Desktop Options for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-innovating-your-ultimate-tiktok-seal/"><u>[Updated] Innovating Your Ultimate TikTok Seal</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-budgeting-approach-to-making-music-videos/"><u>2024 Approved Budgeting Approach to Making Music Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-punchy-prowess-vs-online-influence/"><u>2024 Approved Punchy Prowess Vs Online Influence</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-the-most-out-of-your-audio-gear-reviving-a-dead-steelseries-halo-30-microphone/"><u>Getting the Most Out of Your Audio Gear: Reviving a Dead SteelSeries Halo 30 Microphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-patterns-in-facebooks-news-feed-curation/"><u>Hidden Patterns in Facebook's News Feed Curation</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-the-email-and-phone-number-on-your-facebook-account/"><u>How to Change the Email and Phone Number on Your Facebook Account</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-warno-app-continuously-crashing-on-your-windows-computer/"><u>How to Fix 'Warno' App Continuously Crashing on Your Windows Computer</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Unlock Verizon iPhone 15 Plus</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-precision-photography-without-shake/"><u>In 2024, Precision Photography without Shake</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-management-of-online-interactions-on-fb/"><u>Masterful Management of Online Interactions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mysterious-mingle-fb-friends-veil-techniques/"><u>Mysterious Mingle: FB Friends Veil Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-users-whatsapp-clashes-with-government-law/"><u>Protecting Users, WhatsApp Clashes with Government Law</u></a></li>
+<li><a href="https://techtrends.techidaily.com/strategic-alliances-with-abbyy-signature-mastering-process-intelligence/"><u>Strategic Alliances with ABBYY Signature: Mastering Process Intelligence</u></a></li>
+<li><a href="https://facebook.techidaily.com/to-connect-or-not-the-pros-and-cons-of-facebook-powered-account-access/"><u>To Connect or Not: The Pros & Cons of Facebook-Powered Account Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-verification-process/"><u>Understanding Meta's Verification Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/unexpected-discovery-your-contacts-online-on-facebook/"><u>Unexpected Discovery: Your Contacts Online on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-caution-is-needed-in-the-facebook-digital-frontier/"><u>Why Caution Is Needed in the Facebook Digital Frontier</u></a></li>
 </ul></div>
 

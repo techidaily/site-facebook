@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-11-30T17:17:49.008Z
-updated: 2024-12-06T21:42:55.194Z
+date: 2024-12-10T21:56:42.062Z
+updated: 2024-12-12T19:17:28.042Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,17 +61,20 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/aximizing-video-quality-enabling-av1-on-youtube-for-2024/"><u>[New] Maximizing Video Quality Enabling AV1 on YouTube for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-easy-steps-to-securely-record-your-virtual-gatherings-with-google/"><u>[Updated] Easy Steps to Securely Record Your Virtual Gatherings with Google</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-break-it-down-free-techniques-to-go-frame-by-frame-on-youtube/"><u>[Updated] In 2024, Break It Down Free Techniques to Go Frame by Frame on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/create-effective-fb-video-ads-with-free-kit-for-2024/"><u>Create Effective FB Video Ads with FREE Kit for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/easy-guide-transforming-your-videos-format-with-top-online-converters/"><u>Easy Guide: Transforming Your Videos' Format with Top Online Converters</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-wearable-experiment-could-include-two-detachable-cameras/"><u>FB's Wearable Experiment: Could Include Two Detachable Cameras?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-ban-a-profile-from-your-facebook-page/"><u>How to Ban a Profile From Your Facebook Page</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-honor-90-pro-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Honor 90 Pro? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/project-pics-blend-outside-focus-with-radial-filters-psx/"><u>Project Pics Blend Outside Focus with Radial Filters PSX</u></a></li>
-<li><a href="https://facebook.techidaily.com/system-shutdown-fb-wa-ig-services-offline/"><u>System Shutdown: FB, WA, IG Services Offline</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-from-rewind-to-save-incorporating-80s-vhs-in-todays-cinematic-edits/"><u>[New] In 2024, From Rewind to Save Incorporating 80S VHS in Today's Cinematic Edits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-live-streaming-recorders-for-youtube-maestros/"><u>[New] Ultimate Live Streaming Recorders for YouTube Maestros</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-expert-selection-of-10-premium-spotify-soundscape-tools/"><u>[Updated] 2024 Approved Expert Selection of 10 Premium Spotify Soundscape Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-unlock-advanced-broadcast-techniques-with-obs-on-youtube-and-twitch/"><u>2024 Approved Unlock Advanced Broadcast Techniques with OBS on YouTube & Twitch</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-capturing-the-moment-expert-tips-for-amazing-android-slow-mo-videos/"><u>In 2024, Capturing the Moment Expert Tips for Amazing Android Slow Mo Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-secrets-safe-bypass-these-intrusive-apps/"><u>Keep Your Secrets Safe: Bypass These Intrusive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-hashtag-strategies-for-effective-communication-on-facebook/"><u>Leveraging Hashtag Strategies for Effective Communication on Facebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/prime-day-preview-discover-the-best-value-2-in-1-laptop-beyond-lenovo-and-dell-at-unbeatable-prices/"><u>Prime Day Preview: Discover the Best Value 2-in-1 Laptop Beyond Lenovo and Dell at Unbeatable Prices</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-concerns-removing-facial-recognition-data-effects-on-users/"><u>Privacy Concerns: Removing Facial Recognition Data Effects on Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-regain-facebook-acces-after-sign-out/"><u>Strategies to Regain Facebook Acces After Sign-Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-5-tech-blunders-in-the-pandemic-year/"><u>The Top 5 Tech Blunders in the Pandemic Year</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/the-ultimate-guide-capturing-epic-gameplay-recording-pc-games-for-youtube/"><u>The Ultimate Guide: Capturing Epic Gameplay - Recording PC Games for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-microphone-list-for-best-asmr-sound/"><u>The Ultimate Microphone List for Best ASMR Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-networks-finding-page-and-profile-links/"><u>Unveiling Facebook Networks: Finding Page & Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/vague-narratives-explored-a-digital-phenomenons-analysis/"><u>Vague Narratives Explored: A Digital Phenomenon's Analysis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-12-04T20:32:29.678Z
-updated: 2024-12-06T21:36:02.924Z
+date: 2024-12-09T18:12:07.405Z
+updated: 2024-12-12T21:42:42.328Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,20 +67,19 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-unmatched-gaming-laptops-top-4k-picks-reviewed-for-2024/"><u>[New] Unmatched Gaming Laptops - Top 4K Picks Reviewed for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-guffaw-guild-robotic-raiders/"><u>[Updated] 2024 Approved Guffaw Guild Robotic Raiders</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-audio-junction-expert-logic-pro-x-tips/"><u>2024 Approved Seamless Audio Junction Expert Logic Pro X Tips</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-hearts-online-facebooks-pioneering-dating-innovations/"><u>Connecting Hearts Online: Facebook’s Pioneering Dating Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/dial-down-the-intensity-of-targeted-advertisement-screens/"><u>Dial Down the Intensity of Targeted Advertisement Screens</u></a></li>
-<li><a href="https://facebook.techidaily.com/expedited-transition-tactics-for-facebook-user-accounts/"><u>Expedited Transition Tactics for Facebook User Accounts</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-blaze-pro-5g-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Blaze Pro 5G?</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-breaks-tradition-whatsapp-delivers-2fa-codes/"><u>Instagram Breaks Tradition: WhatsApp Delivers 2FA Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructions-new-password-implementation-on-facebook/"><u>Instructions: New Password Implementation on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/troubleshooting-cannot-log-in-to-your-facebook-profile/"><u>Troubleshooting: Cannot Log In to Your Facebook Profile</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-eye-candy-for-digital-performances/"><u>Ultimate Eye Candy for Digital Performances</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-guide-setting-up-your-home-theatre-for-the-super-bowl-experience/"><u>Ultimate Guide: Setting Up Your Home Theatre for the Super Bowl Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-your-audience-for-effective-social-media-marketing/"><u>Understanding Your Audience for Effective Social Media Marketing</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/unlock-your-creativity-with-manycam-the-ultimate-guide-to-online-broadcasting-and-digital-webcams/"><u>Unlock Your Creativity with ManyCam - The Ultimate Guide to Online Broadcasting and Digital Webcams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-enhance-film-scenes-with-soundtracks-in-premiere-pro/"><u>2024 Approved Enhance Film Scenes With Soundtracks in Premiere Pro</u></a></li>
+<li><a href="https://howto.techidaily.com/asus-rog-phone-7-ultimate-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Asus ROG Phone 7 Ultimate Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/asus-unboxing-special-the-mg28uq-monitor-a-high-res-journey-for-2024/"><u>ASUS Unboxing Special The MG28UQ Monitor - A High-Res Journey for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-architectural-essence-of-facebook/"><u>Decoding the Architectural Essence of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-irony-facebooks-latest-policy/"><u>Detecting Irony: Facebook's Latest Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorum-validity-in-banning-trump-short-term-intervention/"><u>Digital Decorum: Validity in Banning Trump, Short-Term Intervention</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-reality-unbound-facebooks-pursuit-of-the-metaverse/"><u>Digital Reality Unbound: Facebook's Pursuit of the Metaverse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-the-nook-glowlight-4-edition-assessment/"><u>Expert Opinion: The Nook Glowlight 4 Edition Assessment</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-honor-70-lite-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/inside-the-tech-box-toms-hardware-wisdom/"><u>Inside the Tech Box: Tom's Hardware Wisdom</u></a></li>
+<li><a href="https://blog-min.techidaily.com/nastenne-vyuziti-audiovizualniho-snahovaneni-obrazu-v-windows-11-pet-kvalitativnich-pocinku/"><u>Nástěnné Využití Audiovizuálního Snahovánění Obrazů v Windows 11: Pět Kvalitativních Počinků</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-final-cut-pro-x-tutorial-l-cuts-and-j-cuts/"><u>Updated In 2024, Final Cut Pro X Tutorial L-Cuts and J-Cuts</u></a></li>
 </ul></div>
 

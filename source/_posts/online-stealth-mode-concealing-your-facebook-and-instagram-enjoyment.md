@@ -1,7 +1,7 @@
 ---
 title: "Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment"
-date: 2024-12-03T23:44:24.659Z
-updated: 2024-12-06T22:15:20.151Z
+date: 2024-12-10T18:05:44.024Z
+updated: 2024-12-12T17:22:28.294Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,24 +58,20 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-rapid-rendering-of-epic-battle-royale-tiles/"><u>[New] 2024 Approved Rapid Rendering of Epic Battle Royale Tiles</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-5-pinterest-video-downloads-no-cost-and-fast-access-online/"><u>[New] 5 Pinterest Video Downloads – No Cost & Fast Access Online</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ultimate-ringtone-collection-top-download-locales/"><u>[Updated] 2024 Approved Ultimate Ringtone Collection Top Download Locales</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-a-compreenas-guide-to-high-quality-mov-recording-in-windows-10/"><u>[Updated] In 2024, A Compreenas Guide to High-Quality MOV Recording in Windows 10</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-elevating-text-artistry-in-illustrator/"><u>2024 Approved Elevating Text Artistry in Illustrator</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-xiaomi-13t-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Xiaomi 13T Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-intrusions-social-media-statistics/"><u>Cyber Intrusions: Social Media Statistics</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-local-groups-and-usage-policies/"><u>Exploring Facebook's Local Groups & Usage Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-isolation-to-interaction-unveiling-9-social-perks/"><u>From Isolation to Interaction: Unveiling 9 Social Perks</u></a></li>
-<li><a href="https://facebook.techidaily.com/guidelines-for-describing-images-on-facebook/"><u>Guidelines for Describing Images on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-change-your-birthday-on-facebook/"><u>How to Change Your Birthday on Facebook</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-x7b-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor X7b to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mute-the-noise-steps-to-silence-post-reactions-on-social/"><u>Mute the Noise: Steps to Silence Post Reactions on Social</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/new-apple-unveils-m3-chip-powered-macbook-air-explore-the-upgrades-in-the-latest-13-and-15-models-insights/"><u>New Apple Unveils M3 Chip Powered MacBook Air: Explore the Upgrades in the Latest 13 & 15 Models - Insights !</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-tecno-spark-10c-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Tecno Spark 10C Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-redefined-a-comparative-analysis-of-the-metaverse-and-virtual-reality/"><u>Reality Redefined: A Comparative Analysis of the Metaverse and Virtual Reality</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-safely-acquire-privately-shared-facebook-media/"><u>Steps to Safely Acquire Privately Shared Facebook Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-pioneer-trumps-online-revival/"><u>The Digital Pioneer: Trumps Online Revival</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-5-best-vob-video-editors-that-wont-break-the-bank/"><u>Updated 5 Best VOB Video Editors That Wont Break the Bank</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-fundamentals-of-using-ffpm-in-firefox/"><u>[New] The Fundamentals of Using FFPM in Firefox</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discover-why-this-lenovo-thinkpad-stands-out-as-an-almost-ideal-ultraportable-notebook-review/"><u>Discover Why This Lenovo ThinkPad Stands Out as an Almost Ideal Ultraportable Notebook Review</u></a></li>
+<li><a href="https://driver-install.techidaily.com/easy-fixes-hassle-free-m-track-corrections/"><u>Easy Fixes, Hassle-Free M-Track Corrections</u></a></li>
+<li><a href="https://facebook.techidaily.com/forge-stronger-bonds-and-drive-success-top-8-facebook-workplace-features/"><u>Forge Stronger Bonds & Drive Success: Top 8 Facebook Workplace Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac/"><u>Get That Perfect Fit Resize Videos to Instagram Standards Using Mac</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-honor-100-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Honor 100? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovate-interaction-elevate-your-groups-social-standing/"><u>Innovate Interaction: Elevate Your Group's Social Standing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/precision-and-performance-top-6-video-edits-on-macos-big-sur/"><u>Precision and Performance Top 6 Video Edits on macOS Big Sur</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-priority-list-avoid-these-three-traps/"><u>Privacy Priority List: Avoid These Three Traps</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-the-swift-solution-for-forgetful-fb-users/"><u>Regaining Access - The Swift Solution for Forgetful FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-platforms-add-sponsored-content-features/"><u>Social Media Platforms Add Sponsored Content Features</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-lenovo-g580-drivers-easy/"><u>Upgrade Lenovo G580 Drivers, Easy!</u></a></li>
+<li><a href="https://driver-install.techidaily.com/upgrade-sound-precision-fresh-scarlett-6i6-driver-guide/"><u>Upgrade Sound Precision: Fresh Scarlett 6I6 Driver Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-skepticism-rises-examining-five-times-facebook-missed-the-target/"><u>User Skepticism Rises: Examining Five Times Facebook Missed the Target</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Conversations: Facebook's New Messaging Features Announced"
-date: 2024-11-22T19:01:42.623Z
-updated: 2024-11-27T04:22:25.075Z
+date: 2024-12-07T19:15:08.375Z
+updated: 2024-12-12T19:15:54.592Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,22 +83,16 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-implementing-soft-decline-in-logic-pro-audio/"><u>[New] Implementing Soft Decline in Logic Pro Audio</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ookie-riches-profitable-sites-for-beginnere-buyouts-for-2024/"><u>[New] Rookie Riches Profitable Sites for Beginner'e Buyouts for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-quick-guide-how-to-download-windows-movie-maker-6/"><u>[Updated] Quick Guide How to Download Windows Movie Maker 6</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-lava-yuva-2-pro-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Lava Yuva 2 Pro Phone? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/financial-networking-fundamentals/"><u>Financial Networking Fundamentals</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-audio-a-step-by-step-guide-to-playing-fb-videos-with-sound-on-laptopsdesktops/"><u>How to Restore Audio: A Step-by-Step Guide to Playing FB Videos with Sound on Laptops/Desktops</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-honor-x50-gt-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Honor X50 GT to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/joint-venture-in-virtual-spaces-facebook-and-instagram-unite/"><u>Joint Venture in Virtual Spaces: Facebook & Instagram Unite</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-to-networking-success-social-media-groups/"><u>Navigating to Networking Success: Social Media Groups</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/prime-top-10-free-programs-for-screen-visibility/"><u>Prime Top 10 Free Programs for Screen Visibility</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-through-clues-for-facebooks-future-nickname/"><u>Sifting Through Clues for Facebook’s Future Nickname</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-symphony-orchestrating-photographic-collections-on-fb/"><u>Social Media Symphony: Orchestrating Photographic Collections on FB</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/step-by-step-guide-streaming-twitch-channels-via-your-roku-device/"><u>Step-by-Step Guide: Streaming Twitch Channels via Your Roku Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/thrive-in-social-media-economy-with-these-5-steps/"><u>Thrive in Social Media Economy with These 5 Steps</u></a></li>
-<li><a href="https://article-files.techidaily.com/top-10-live-streamers-an-analytical-comparison-review-for-2024/"><u>Top 10 Live Streamers An Analytical Comparison Review for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-metas-move-against-facebooks-faces/"><u>Understanding Meta's Move Against Facebook's Faces</u></a></li>
-<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-meta-ai-on-sites/"><u>Weighing the Advantages and Disadvantages of Meta AI on Sites</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-unveiling-the-secrets-of-efficient-audio-recordings/"><u>[New] 2024 Approved Unveiling the Secrets of Efficient Audio Recordings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-tips-understanding-asmr-recordings/"><u>[Updated] 2024 Approved Top Tips Understanding ASMR Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficiently-managing-youtube-videos-with-the-watch-later-feature-for-2024/"><u>[Updated] Efficiently Managing YouTube Videos with the Watch Later Feature for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-path-to-prominence-with-powerful-instagram-video-narratives/"><u>[Updated] The Path to Prominence with Powerful Instagram Video Narratives</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-fix-your-wifi-adapter-tackling-ralink-rt3290-drivers-problems-in-microsofts-latest-os-versions/"><u>How to Fix Your WiFi Adapter: Tackling Ralink RT3290 Drivers Problems in Microsoft's Latest OS Versions</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-apple-iphone-12-pro-max-without-a-home-button-by-drfone-ios/"><u>How To Open Your Apple iPhone 12 Pro Max Without a Home Button</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-news-events-in-googles-timeline-2022/"><u>Key News Events in Google's Timeline 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-algorithm-for-higher-engagement-metrics/"><u>Navigating Facebook's Algorithm for Higher Engagement Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-your-profile-the-art-of-creating-3d-photos-for-facebook/"><u>Revolutionizing Your Profile: The Art of Creating 3D Photos for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-to-reaching-wider-audiences-on-fb-groups/"><u>The Key to Reaching Wider Audiences on FB Groups</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transforming-windows-11-7-holiday-upgrades/"><u>Transforming Windows 11: 7 Holiday Upgrades</u></a></li>
 </ul></div>
 

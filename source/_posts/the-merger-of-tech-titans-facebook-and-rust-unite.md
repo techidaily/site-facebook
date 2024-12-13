@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-12-02T20:30:01.494Z
-updated: 2024-12-06T22:48:24.352Z
+date: 2024-12-07T16:30:47.125Z
+updated: 2024-12-12T18:33:50.810Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,21 +61,18 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/solved-how-to-fix-high-ping-in-back-4-blood/"><u>[SOLVED] How to Fix High Ping in Back 4 Blood</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-concluding-coverage-craftsmanship/"><u>[Updated] 2024 Approved Concluding Coverage Craftsmanship</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-deconstructing-the-revenue-stream-of-tseries-in-youtube-economy/"><u>[Updated] 2024 Approved Deconstructing the Revenue Stream of TSeries in YouTube Economy</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-comprehensible-guide-to-capturing-instagram-media-via-computer-systems/"><u>[Updated] In 2024, The Comprehensible Guide to Capturing Instagram Media via Computer Systems</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-professional-panoramic-vision-leading-360-cameras-of-2023/"><u>2024 Approved Professional Panoramic Vision Leading 360° Cameras of 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-to-the-9-signs-of-unauthorized-account-access/"><u>Alert to the 9 Signs of Unauthorized Account Access</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/explore-elite-movie-choices-streaming-on-disneyplus-right-now/"><u>Explore Elite Movie Choices Streaming on Disney+ Right Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/fine-tuning-profile-pictures-on-facebook/"><u>Fine-Tuning Profile Pictures on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-upload-hd-videos-and-photos-on-facebook-mobile/"><u>How to Upload HD Videos and Photos on Facebook Mobile</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebrand-yourself-with-a-new-facebook-profile-pic/"><u>Rebrand Yourself with a New Facebook Profile Pic</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giants-testing-out-meta-drops-future-potential/"><u>Social Media Giants Testing Out Meta Drop's Future Potential</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-accessing-disk-management-on-windows-11/"><u>Step-by-Step Guide: Accessing Disk Management on Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-apple-way-no-sync-with-facebooks-metaverse-blueprint/"><u>The Apple Way: No Sync with Facebook's Metaverse Blueprint</u></a></li>
-<li><a href="https://win11.techidaily.com/the-ultimate-win-troubleshooting-toolkit/"><u>The Ultimate Win Troubleshooting Toolkit</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-student-friendly-chromebook-picks-in-depth-reviews-and-comparison-by-experts-zdnet/"><u>Top-Rated Student-Friendly Chromebook Picks: In-Depth Reviews & Comparison by Experts - ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/using-spotify-directly-through-facebook-interface/"><u>Using Spotify Directly Through Facebook Interface</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-essential-guide-to-creating-popularity-with-youtube-opens-for-2024/"><u>[Updated] Essential Guide to Creating Popularity with YouTube Opens for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-perfect-color-accuracy-in-canon-imagery-with-free-and-paid-lut-combinations/"><u>2024 Approved Perfect Color Accuracy in Canon Imagery with Free & Paid LUT Combinations</u></a></li>
+<li><a href="https://games-able.techidaily.com/ideal-gameplay-list-for-versatile-streaming/"><u>Ideal Gameplay List for Versatile Streaming</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-tecno-spark-20-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Tecno Spark 20 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-compendium-for-professionals-in-vivacut-video-editing/"><u>In 2024, The Ultimate Compendium for Professionals in VivaCut Video Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-info-the-one-whistleblowing-to-fbs-secret-life/"><u>Inside Info: The One Whistleblowing to FB's Secret Life</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/inside-information-sony-afeela-car-what-to-expect-from-specs-and-market-debut/"><u>Inside Information: Sony Afeela Car - What to Expect From Specs & Market Debut</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-creating-memorable-online-gatherings-on-facebook/"><u>Mastering the Art of Creating Memorable Online Gatherings on Facebook</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/modern-methods-of-mixing-media-the-latest-on-adding-sound-to-ae-projects-2023s-insights-and-tips-for-2024/"><u>Modern Methods of Mixing Media The Latest on Adding Sound to AE Projects (2023S Insights and Tips) for 2024</u></a></li>
+<li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-8-plus-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone 8 Plus Suddenly | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-digital-conversations-a-guide-to-a-prolific-facebook-clan/"><u>Thriving in Digital Conversations: A Guide to a Prolific Facebook Clan</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-chat-vibes-with-fbs-messenger-sounds/"><u>Transform Your Chat Vibes with FB's Messenger Sounds</u></a></li>
 </ul></div>
 

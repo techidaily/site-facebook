@@ -1,7 +1,7 @@
 ---
 title: Hack-Proofing Your Life on Social Platform (FB) with These 7 Rules
-date: 2024-08-28T03:10:27.690Z
-updated: 2024-08-29T03:10:27.690Z
+date: 2024-12-06T20:54:51.355Z
+updated: 2024-12-12T23:37:55.728Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/a33821f7d1add97134f0556ceb5947dead1c89e2b
  Let's start with the basics. It is an[unsaid rule not to add strangers on Facebook](https://www.makeuseof.com/reasons-shouldnt-add-strangers-facebook/) because we never know their intentions or real identity. The best practice is to only add people you know personally and in real life.
 
  Apart from unknowns, you should try not to add people from your professional setup. Let's keep the colleagues away—they don't have to see the pictures you took on your last trip. Try to meet a person several times before making them friends on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Don't Upload All Your Information
 
@@ -48,9 +52,6 @@ To change the privacy of your Facebook post:
 
 ![Post a Facebook Status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Post-a-Facebook-Status.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-post-audience.JPG)
 
 Close
@@ -66,9 +67,17 @@ Close
 
 ![Facebook Story privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Story-privacy.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  Facebook Stories expire after 24 hours, but since anyone can view them, it is better to change your settings to keep the Stories within your friend circle.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Lock Your Facebook Profile
 
@@ -82,19 +91,17 @@ To lock your Facebook profile:
 
 ![Facebook-Menu-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Menu-on-mobile.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![Facebook-user-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-user-profile.JPG)
 
 ![Lock Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-Facebook-profile.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![Lock-your-profile-on-Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-your-profile-on-Facebook.JPG)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Frequently Check Which Devices You Are Logged In On
 
@@ -107,8 +114,9 @@ Close
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
 
 ![Check where you are logged in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Check-where-you-are-logged-in.JPG)
@@ -119,9 +127,6 @@ Close
 
  Do not save your Facebook account information on devices you do not own to ensure that you are only logged in where necessary.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Only Give Necessary Permissions to Facebook
 
  When you log into your Facebook account on a device, it requests permission to access your camera, location, and gallery. It helps Facebook collect data for marketing purposes.
@@ -139,28 +144,21 @@ Close
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-app-settings.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Turn off Allow Tracking option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Turn-off-Allow-Tracking-option.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Perform Privacy Checkups
 
  For those who feel unsatisfied even after taking all necessary protocols, Facebook offers its users the option to perform a complete privacy checkup of their account. You can review the changes and settings to ensure your account is safe and secure.
@@ -180,9 +178,14 @@ To conduct the Facebook privacy checkup:
 ![Take a privacy checkup on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Take-a-privacy-checkup-on-Facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -194,14 +197,11 @@ Close
 
  Lastly, users must keep tabs on logged-in devices and perform regular privacy checks to ensure a safe experience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +210,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-switching-file-extensions-for-your-mac-snapshots/"><u>[New] 2024 Approved Switching File Extensions for Your Mac Snapshots</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-blissful-family-nights-the-top-10-classics-for-summertime/"><u>[New] Blissful Family Nights The Top 10 Classics for Summertime</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-review-magix-video-edit-suite/"><u>[New] Review MAGIX Video Edit Suite</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-steps-for-modifying-your-social-network-cover-pictorial/"><u>[New] Steps for Modifying Your Social Network Cover Pictorial</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-wondershare-photo-story-platinum/"><u>[Updated] 2024 Approved Wondershare Photo Story Platinum</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-tips-tuning-your-snapchat-videos-for-maximum-impact/"><u>2024 Approved Top Tips Tuning Your Snapchat Videos for Maximum Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-loses-ground-among-iphone-fans/"><u>App Tracking Loses Ground Among iPhone Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/banned-beyond-borders-facebook-in-these-countries/"><u>Banned Beyond Borders: Facebook in These Countries?</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-fires-off-new-resignation-post/"><u>Carolyn Everson Fires Off: New Resignation Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/copyright-clarity-for-digital-photo-posting/"><u>Copyright Clarity for Digital Photo Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-your-platform-for-success/"><u>Cultivating Your Platform for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153364524-expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-clean-up-disk-space-on-windows-10/"><u>How to Clean Up Disk Space on Windows 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-narzo-60-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme Narzo 60 5G Phone</u></a></li>
+</ul></div>
 

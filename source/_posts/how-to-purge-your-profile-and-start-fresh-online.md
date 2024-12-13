@@ -1,7 +1,7 @@
 ---
 title: How to Purge Your Profile and Start Fresh Online
-date: 2024-08-28T03:06:56.026Z
-updated: 2024-08-29T03:06:56.026Z
+date: 2024-12-05T20:43:20.246Z
+updated: 2024-12-12T21:54:55.867Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
 ![A visual showing the homepage of BrandYourself](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-BrandYourself.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  It’s a social media cleanup software that helps you tidy up your complete online presence on Facebook and Twitter. The app uses Machine Learning technology to locate the posts which a potential employer might flag during online screening.
 
  It can flag posts that contain offensive language, unprofessional behavior or communication, including bullying, violence, drinking, and criminal activities. Later, you can review these posts and proceed to delete them.
@@ -39,14 +43,6 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
 
  While it doesn’t remove any content by itself, it provides a report flagging content containing profanity, innuendo, and mention of drugs or alcohol.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## 3. Redact
 
 ![An image of the website homepage of Redact](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Redact.jpeg)
@@ -60,30 +56,31 @@ thumbnail: https://thmb.techidaily.com/dccea8e74312ef3978115e47791b42d8d3af59dde
  You can wipe out everything by deletion. Or, you may customize the items through keyword, content category, or sentiment. It also offers the preview mode that you can use to double-check before deletion.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. TweetDelete
 
 ![An image representing the TweetDelete homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-TweetDelete.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  This service helps you delete your Twitter posts in bulk. You can set a schedule that will make the tool run automatically to delete tweets. You can remove tweets depending on some text it contains or the time of publishing.
 
  It is an ideal tool for removing any regrettable content in your Twitter account for professional or personal reasons. Apart from your tweets, you can also delete likes you have given to other users’ tweets.
 
  For free, it lets you delete the previous 3,200 likes. Moreover, it can also delete tweets containing attachments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Facebook's Manage Posts Feature
 
 ![Image showing the Manage Posts section on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Facebook.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  The Manage Activity feature on Facebook is a great way to clean up your profile by archiving or deleting posts in bulk. It lets you revisit, edit, and delete any post or comment you posted since joining the platform. To delete an old post on Facebook, follow these steps:
 
 1. Go to your Facebook profile and scroll a bit to find the**Posts** section.
@@ -96,13 +93,14 @@ The powerful video editing program for your Windows PC</a>
 
  The best thing about this feature is the ample scope for customization; you can find an old post without any hassle.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Twitter Settings
 
 ![An image showing how to delete posts on Twitter](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Twitter.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
  Using the delete feature on Twitter, you can manually delete unwanted tweets. Follow these simple steps to remove old tweets that you don't want in your profile anymore.
 
 1. Go to your Twitter profile and browse through your posts.
@@ -113,6 +111,10 @@ The powerful video editing program for your Windows PC</a>
  For those who want to delete multiple tweets at once, Twitter doesn’t offer a batch delete option.
 
  If you want to start afresh with your current username, create another account with a temporary username. Then, switch the username and delete your old account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Manage Shared Content in LinkedIn
 
@@ -136,23 +138,17 @@ The powerful video editing program for your Windows PC</a>
 
  For this extension to perform, the default language of your Facebook and Twitter profile should be English.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Fix Your Social Media Profiles
 
  Active social media users tend to post and share various things online, and some of those might be unprofessional. With the tools, extensions, and features mentioned here, you can remove such posts and make your social media profile look more professional.
 
  You may also want to use robust tools for scheduling posts on your social accounts, which will help you build your presence without needing to spend too much time online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +157,20 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-comprehensive-app-exploration-az-capture-essentials/"><u>[New] 2024 Approved Comprehensive App Exploration AZ Capture Essentials</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-natural-and-artificial-blending-lights-in-iphone-photos/"><u>[Updated] 2024 Approved Natural & Artificial Blending Lights in iPhone Photos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-screen-time-find-your-must-have-7-android-blockers/"><u>[Updated] Master Screen Time Find Your Must-Have 7 Android Blockers</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-access-rites-to-meta-social-network-governance/"><u>Deciphering Access Rites to Meta Social Network Governance</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-digital-picture-proprietorship/"><u>Determining Digital Picture Proprietorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-delirium-the-top-20-web-pages-where-people-unite/"><u>Digital Delirium: The Top 20 Web Pages Where People Unite</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-ways-to-disconnect-from-facebook-android-style/"><u>Efficient Ways to Disconnect From Facebook, Android Style</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/memorial-day-sale-alert-save-45-on-the-roborock-q7-maxplus-robot-vacuum-mower-for-crystal-clean-floors-zdnet/"><u>Memorial Day Sale Alert! Save 45% on the Roborock Q7 Max+ Robot Vacuum Mower for Crystal-Clean Floors | ZDNET</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-of-ion-audio-tailgater-plus-ultimate-portable-sound-experience-with-on-demand-bass-boost/"><u>Review of ION Audio Tailgater Plus: Ultimate Portable Sound Experience with On-Demand Bass Boost</u></a></li>
+<li><a href="https://win-unique.techidaily.com/step-by-step-solutions-for-when-your-samsung-smart-switch-fails-to-operate/"><u>Step-by-Step Solutions for When Your Samsung Smart Switch Fails to Operate</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unboxing-the-future-in-depth-analysis-of-the-revolutionary-iphone-15-pro-in-action/"><u>Unboxing the Future: In-Depth Analysis of the Revolutionary iPhone 15 Pro in Action</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-free-ai-image-learning-master-the-art-of-machine-vision-on-udemy-using-a-clever-hack-tech-innovations/"><u>Unlocking Free AI Image Learning: Master the Art of Machine Vision on Udemy Using a Clever Hack! | Tech Innovations</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-windows-7s-wi-fi-drivers-with-these-quick-downloads/"><u>Update Your Windows 7'S Wi-Fi Drivers with These Quick Downloads</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Significant Setbacks: Biggest Tech Fails of 2022"
-date: 2024-08-28T03:07:32.111Z
-updated: 2024-08-29T03:07:32.111Z
+date: 2024-12-08T16:33:21.703Z
+updated: 2024-12-13T00:02:00.412Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 
 ![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Heisenberg Media/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Elon%5FMusk%5F-%5FThe%5FSummit%5F2013.jpg)
 
  In October 2022, tech mogul[Elon Musk took control of Twitter](https://www.makeuseof.com/how-elon-musk-bought-twitter-timeline/) . But instead of ushering in a new era of prosperity and efficiency, his reign has been plagued with missteps and controversies. First, Musk offered a paid verification option on the platform, immediately leading to people impersonating famous personalities and big companies. His reign also led to the reinstatement of Kanye "Ye" West's and other controversial accounts, leading to other issues with content moderation.
@@ -42,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
  In addition, Musk also faces a deadline for repaying the $13 billion he borrowed to buy Twitter.
 
  This Twitter takeover has proven to be an unmitigated disaster and a cautionary tale for anyone considering a similar venture. Musk's ambitious plan will likely be remembered as one of the biggest tech failures of 2022.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere
 
@@ -56,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 ![green celsius graphic](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/green-celsius-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: Satheesh Sankaran/[Flickr](https://www.flickr.com/photos/justanothercreativesoul/52455459544/in/)
 
  Like Celsius, BlockFi closed its doors after it could not meet its obligations to customers who had lent their money through the platform. 3AC made several large bets on specific cryptocurrencies, which ultimately didn't pan out, leaving them with huge losses they couldn't recover from.
@@ -66,16 +75,14 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Meta
 
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on[Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
  This decline is a result of Meta facing stiff competition and several high-profile scandals, including employers opposing some of the company's practices. Also, the company's audacious plan to launch the metaverse has been a flop so far.
@@ -84,16 +91,14 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## 5\. Amazon Alexa
 
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Despite being one of the[most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a[Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
  The company is said to utilize a business model that only actualizes earnings when people use their devices rather than when they buy them. As a result, as the applications of Alexa reduced, so did its income. And several customer reviews have further worsened the issue.
@@ -102,23 +107,17 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 
  In response, Amazon carried out some restructuring. Amazon CEO[Andy Jassy released a note](https://www.aboutamazon.com/news/company-news/a-note-from-ceo-andy-jassy-about-role-eliminations) regarding role reductions in the face of uncertainties and economic difficulties. And although Jassy affirmed ample opportunities ahead for Alexa, at present, Alexa appears to be a failed project, especially with rumors about employees calling the voice assistant a wasted effort.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## 2023 Promises to Be Better Than 2022
 
  Like the buildup to 2022, tech enthusiasts anticipate better optimization, improvement, maintenance of integrity, and sustainability in the tech space in 2023\. However, this time, customers are less trusting in tech companies due to the mismanagement and failures of 2022.
 
  But these failures can be repaired and prevented by developers and consultants. We must aim for perfection, clearly define performance objectives in routine situations and emergencies, and confirm that the technology meets them. If our systems are excessively complex, we must prioritize automation, support training, and regular testing until they become second nature and function when needed.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,18 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-earning-edge-exploiting-youtube-studio-for-global-viewers/"><u>[New] 2024 Approved Earning Edge Exploiting YouTube Studio for Global Viewers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-exploring-soft-cessation-of-audio-tracks-with-audacity/"><u>[New] 2024 Approved Exploring Soft Cessation of Audio Tracks with Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/analysis-q2-sales-surge-oculus-quests-purchased-by-facebook-users/"><u>Analysis: Q2 Sales Surge - Oculus Quests Purchased by Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-internet-comments-eternal-markers/"><u>Are Internet Comments Eternal Markers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-users-trust-fb-messenger-encryption/"><u>Can Users Trust FB Messenger Encryption?</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-active-status-on-fb/"><u>Controlling Who Sees Your Active Status on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719579212463-dive-into-hindi-mastery-with-8-compelling-mondly-advantages/"><u>Dive Into Hindi Mastery with 8 Compelling Mondly Advantages!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/full-assessment-hero4-black-capabilities/"><u>Full Assessment Hero4 Black Capabilities</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/keeping-track-of-facetime-with-facebooks-live-feature/"><u>Keeping Track of FaceTime with Facebook's Live Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149786368-livestream-instagram-no-media-necessary/"><u>Livestream Instagram: No Media Necessary!</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/premier-macos-sierra-tools-for-video-changeovers-for-2024/"><u>Premier macOS Sierra Tools for Video Changeovers for 2024</u></a></li>
+</ul></div>
 

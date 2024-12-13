@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2024-11-20T02:28:06.468Z
-updated: 2024-11-27T07:29:13.513Z
+date: 2024-12-10T16:12:34.565Z
+updated: 2024-12-12T20:31:38.346Z
 tags:
   - facebook
 categories:
@@ -28,21 +28,25 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -53,10 +57,6 @@ To hide the number of reactions on your posts, follow these steps.
 3. Select**Settings** .
 4. Scroll down to**News Feed Settings** and select **Reaction Preferences** . This will take you to the Reactions preferences settings page. From here, you can disable the reactions count on your posts, from posts of other users, or both.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Hiding the Reaction Count on Facebook on the Web
 
@@ -70,7 +70,7 @@ To hide the number of reactions on your posts, follow these steps.
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Your new settings are saved automatically.
@@ -78,7 +78,7 @@ Your new settings are saved automatically.
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
@@ -112,18 +112,22 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-grid-artistry-at-its-peak-the-definitive-10-for-insta-posts-for-2024/"><u>[New] Grid Artistry at Its Peak The Definitive 10 for Insta Posts for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-enhanced-photoshoot-with-online-backdrop-swap/"><u>[New] In 2024, Enhanced Photoshoot with Online Backdrop Swap</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-high-end-downloads-best-10-apps-for-extracting-vimeo-videos/"><u>[Updated] 2024 Approved High-End Downloads Best 10 Apps for Extracting Vimeo Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-10-best-video-tools-perfect-your-webcam-vids/"><u>[Updated] In 2024, 10 Best Video Tools Perfect Your Webcam Vids</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-select-best-tiktok-video-apps-reviewed/"><u>[Updated] In 2024, Select Best TikTok Video Apps Reviewed</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/building-brand-loyalty-through-emotional-fb-video-storytelling/"><u>Building Brand Loyalty Through Emotional FB Video Storytelling</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-to-end-encryption-on-the-horizon-for-meta-set-for-23-implementation/"><u>End-to-End Encryption on the Horizon for Meta, Set for '23 Implementation</u></a></li>
-<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-70-lite-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/governments-gambit-unraveling-big-techs-dominance/"><u>Government's Gambit: Unraveling Big Tech's Dominance</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-restoring-functionality-in-obs-capture-device/"><u>In 2024, Restoring Functionality in OBS Capture Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-latest-revelations-from-facebook-papers/"><u>The Latest Revelations From Facebook Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/unearthing-did-my-phone-number-surface-due-to-facebook-glitches/"><u>Unearthing: Did My Phone Number Surface Due to Facebook Glitches?</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-9-benefits-the-positive-impact-of-social-networking/"><u>Unveiling 9 Benefits: The Positive Impact of Social Networking</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-from-canvas-to-cryptos-select-7-nft-creating-powerhouses-for-2024/"><u>[New] From Canvas to Cryptos Select 7 NFT-Creating Powerhouses for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-exploring-holy-hymns-for-mobile-phones/"><u>[New] In 2024, Exploring Holy Hymns for Mobile Phones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-list-of-superior-real-time-streaming-networks/"><u>[New] The Ultimate List of Superior Real-Time Streaming Networks</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ces-2023-highlights-top-tech-unveiled-on-the-second-day-featured/"><u>CES 2023 Highlights: Top Tech Unveiled on the Second Day Featured</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-user-control-over-facebook-content-display/"><u>Enhanced User Control Over Facebook Content Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-do-you-hide-your-chats-on-messenger/"><u>How Do You Hide Your Chats on Messenger?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-rhythm-on-rings-creating-tamil-ringtone-playlists/"><u>In 2024, Rhythm on Rings Creating Tamil Ringtone Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/overcome-the-invisibility-of-short-videos-for-2024/"><u>Overcome The Invisibility of Short Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-free-digital-aides-to-streamline-social/"><u>Prime Free Digital Aides to Streamline Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-boundaries-in-smm-creativity-using-ripl/"><u>Pushing Boundaries in SMM Creativity Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-remedies-for-popular-facebook-challenges-and-hurdles/"><u>Quick Remedies for Popular Facebook Challenges and Hurdles</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-strategy-combined-coverage-of-the-wnb/"><u>Social Strategy: Combined Coverage of the WNB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-elevate-your-fb-profile-professionally/"><u>Strategies to Elevate Your FB Profile Professionally</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-gaming-computers-of-2024-thoroughly-vetted-by-pros-zdnet/"><u>Top Rated Gaming Computers of 2024: Thoroughly Vetted by Pros | ZDNet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unlocking-twitters-potential-with-live-videos-for-2024/"><u>Unlocking Twitter's Potential with Live Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-of-facebooks-renaming-rumor/"><u>Unveiling the Secrets of Facebook's Renaming Rumor</u></a></li>
 </ul></div>
 

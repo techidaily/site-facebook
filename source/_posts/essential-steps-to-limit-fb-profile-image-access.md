@@ -1,7 +1,7 @@
 ---
 title: Essential Steps to Limit FB Profile Image Access
-date: 2024-08-28T03:11:33.778Z
-updated: 2024-08-29T03:11:33.778Z
+date: 2024-12-08T21:12:08.559Z
+updated: 2024-12-12T17:20:14.966Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
  In this article, we're going to look at why photo privacy matters, then explain how you can protect your images from the eyes of strangers.
 
  Keep reading to learn everything you need to know about Facebook photo privacy settings...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Photo Privacy Is More Important Than You Think
 
@@ -40,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
  When you upload a new picture to Facebook, you can use the same privacy controls as you do for regular text posts. In the upper left-hand corner of the new post box, you'll see a dropdown menu. This menu controls who can see the post.
@@ -50,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
  You have six options to choose from:**Public** ,**Friends** ,**Friends except** (to exclude some people),**Specific friends** ,**Only me** , and**Custom** .
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Old Photos
 
@@ -59,9 +64,6 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -79,8 +81,9 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
@@ -88,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -101,35 +108,27 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +137,26 @@ thumbnail: https://thmb.techidaily.com/8b607e0e604394629b363ae69329923c5b752c9a4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-turn-a-minute-into-millions-maximizing-viewership-for-youtubers/"><u>[Updated] In 2024, How to Turn a Minute Into Millions Maximizing Viewership for YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-streaming-tunes-quick-methods-for-youtube-videos-in-imovie/"><u>2024 Approved Streaming Tunes Quick Methods for Youtube Videos in iMovie</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ais-impact-on-website-navigation-systems/"><u>AI's Impact on Website Navigation Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-facebooks-buzz-to-silence-land/"><u>Banishing Facebook's Buzz to Silence Land</u></a></li>
+<li><a href="https://program-issues.techidaily.com/clear-path-ahead-solving-forza-horizon-5s-startup-stalls-with-seven-expert-tweaks/"><u>Clear Path Ahead: Solving Forza Horizon 5'S Startup Stalls with Seven Expert Tweaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-mystique-a-guide-to-facebooks-emoji-lexicon/"><u>Demystifying the Mystique: A Guide to Facebook's Emoji Lexicon</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-your-timelines-past-content/"><u>Diving Into Your Timeline's Past Content</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/easy-and-complete-guide-for-rebooting-your-windows-server-2012-r2-system-expert-strategies/"><u>Easy and Complete Guide for Rebooting Your Windows Server 2012 (R2) System: Expert Strategies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eradicating-windows-updater-issue-0x80246007-in-w10w11/"><u>Eradicating Windows Updater Issue 0X80246007 in W10/W11</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-contempt-the-facebook-like-phenomenon-decoded/"><u>Examining Contempt: The Facebook-Like Phenomenon Decoded</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-ground-to-sky-expert-and-beginners-guide-to-editing-drones-for-2024/"><u>From Ground to Sky - Expert and Beginner's Guide to Editing Drones for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-unhide-hidden-facebook-posts/"><u>Guidelines to Unhide Hidden Facebook Posts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-correctly-address-and-repair-msstdfmtdll-missing-errors/"><u>How to Correctly Address and Repair Msstdfmt.dll Missing Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-you-use-facebook-to-log-into-other-apps-6-pros-and-cons/"><u>Should You Use Facebook to Log Into Other Apps? 6 Pros and Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-alteration-of-childs-information-in-facebook-messenger/"><u>Stepwise Alteration of Child's Information in Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-building-a-significant-profile/"><u>The Art of Building a Significant Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-discontentment-into-dollars-fb-refund-method/"><u>Transform Your Discontentment Into Dollars - FB Refund Method</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-and-solving-the-rockalldlldll-not-detected-problem/"><u>Understanding and Solving the Rockalldll.dll Not Detected Problem</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleashing-creativity-with-aes-best-text-presets/"><u>Unleashing Creativity with AE's Best Text Presets</u></a></li>
+</ul></div>
 

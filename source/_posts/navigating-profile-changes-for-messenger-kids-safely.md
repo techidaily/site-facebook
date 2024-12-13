@@ -1,7 +1,7 @@
 ---
 title: Navigating Profile Changes for Messenger Kids Safely
-date: 2024-08-28T03:09:24.207Z
-updated: 2024-08-29T03:09:24.207Z
+date: 2024-12-05T22:16:01.017Z
+updated: 2024-12-12T21:32:17.907Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/bed828e860e21f38fd1f019188cab74669ed8a928
 
 Here's a look at the different fields you can add...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Adding Pronouns
 
  Messenger Kids gives your child a chance to show their pronouns. He/him, She/her, and They/them are the available pronouns in Messenger Kids.
@@ -50,8 +54,9 @@ Here's a look at the different fields you can add...
  Facebook allows you to do this both on the website or using the mobile app.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Changing Personal Information on Messenger Kids Via Smartphone
 
  You can change your child’s information on Messenger Kids using the Facebook app. Ensure that the account you use is connected to Messenger Kids.
@@ -64,14 +69,12 @@ Here's how to change the information through a smartphone:
 
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 1. Open your Facebook app. You’ll be directed to the**Home Page** .
@@ -99,13 +102,18 @@ To change your child's profile image:
 3. Tap on the**Checkmark** to update the profile picture.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Change Name and Date of Birth
 
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -116,20 +124,19 @@ Close
 3. Select**Save** after making the desired changes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Change Pronouns
 
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 Follow these steps to change pronouns in the Messenger Kids app:
@@ -148,26 +155,22 @@ Follow these steps:
 2. The leftmost bar features the services offered by Facebook in your region. You can find**Messenger Kids** in the list by scrolling down.  
 ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)
 3. Click**Messenger Kids** to open the accounts connected.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. Choose the account you wish to make changes to.
 5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
  7\. Bring your cursor to the name area and change it accordingly. Remember, it is mandatory to have a first and surname.
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 7. Similarly, update the date of birth and gender of your child.
 8. Select**Save** to apply the changes.
 9. If you don't want your child to use Messenger Kids anymore, or they have outgrown the age to be using it, there is an option to**Delete Account** and erase all information.  
 ![Delete Messenger kids Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Delete-Messenger-kids-Account.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Changing Information on Messenger Kids Made Easy
 
  Messenger Kids integrates interesting features and safe technology to let kids socialize with their loved ones. Parents can change information on the Messenger Kids account to keep everyone updated and maintain security.
@@ -176,14 +179,11 @@ Follow these steps:
 
  It is possible to perform this activity by using the Facebook app on a smartphone or desktop browser. We hope this step-by-step guide will help you make relevant changes to your kid's Messenger account as desired.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -192,4 +192,19 @@ Follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-scalable-success-lawful-techniques-for-video-visibility/"><u>[New] In 2024, Scalable Success Lawful Techniques for Video Visibility</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-50-must-try-virtual-bikes-for-riders/"><u>[New] The 50 Must-Try Virtual Bikes for Riders</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tips-for-constructing-inspirational-day-to-day-visual-narratives/"><u>[New] Tips for Constructing Inspirational Day-to-Day Visual Narratives</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-archive-all-your-images-flawlessly-infinite-no-charge-and-elite-paid-storage/"><u>[Updated] In 2024, Archive All Your Images Flawlessly Infinite, No-Charge & Elite Paid Storage</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-group-engagement-through-efficient-channels/"><u>Amplifying Group Engagement Through Efficient Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-how-and-why-telegram-skyroited-after-facebook-crash/"><u>Analyzing How and Why Telegram Skyroited After Facebook Crash</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-facebooks-data-collection-ploys/"><u>Avoiding Facebook's Data Collection Ploys</u></a></li>
+<li><a href="https://facebook.techidaily.com/clandestine-companions-on-facebook/"><u>Clandestine Companions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-insight-on-fb-image-safety/"><u>Comprehensive Insight on FB Image Safety</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ioss-finest-virtual-ps2-games-for-2024/"><u>IOS's Finest Virtual PS2 Games for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/pricing-outline-the-cost-to-film-melodies-visually-for-2024/"><u>Pricing Outline The Cost to Film Melodies Visually for 2024</u></a></li>
+</ul></div>
 

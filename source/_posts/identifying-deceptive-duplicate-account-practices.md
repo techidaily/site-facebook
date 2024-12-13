@@ -1,7 +1,7 @@
 ---
 title: Identifying Deceptive Duplicate Account Practices
-date: 2024-08-28T03:12:17.859Z
-updated: 2024-08-29T03:12:17.859Z
+date: 2024-12-10T23:32:00.187Z
+updated: 2024-12-12T19:06:32.582Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
 
  Here’s everything you need to know about the Facebook cloning scam, how to check if you’re already a victim, and what you can do to protect yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Facebook Account Cloning Scam?
 
  This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for[other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
  They replicate social media accounts by using all your public photos and information, making a copy of your existing account, and then adding your contacts. Scammers will pretend to be you and then start messaging your connections.
 
  The more they trick into adding them, the more legit their accounts will look like.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Do Scammers Clone Accounts?
 
@@ -43,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
 
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Cloning vs. Facebook Hacking
 
  Facebook cloning does not involve getting into your account using credentials they may have acquired through a data leak or another phishing attack.
@@ -55,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Check If Your Facebook Account Has Been Cloned
 
  The most obvious sign that you have been cloned is if a friend reaches out to you to ask if you made a new account. This means someone made a mirror copy of your current account and is reaching out to your friends.
@@ -71,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
 
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## How to Protect Yourself From Facebook Account Cloning
 
  Be mindful of what you share with people outside your friends' list and the platform. Remember that everything you share—photos, private information, friends list—that’s set to public can be seen by everyone on the internet.
@@ -85,8 +88,9 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
  Also, set your friends list to private so scammers can’t target them.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Check If Your Facebook Account Is Public
 
  There might have been times when you shared something without knowing that it was set to "Public". To check what the public can see, go to your profile. Then click the three dots on the top right corner, below your cover photo. Click the eye icon that says**View As** .
@@ -97,9 +101,6 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
 
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What to Do If You Find a Cloned Facebook Account
 
  If you find a Facebook clone account, go to the profile of the clone account. Click the three dots on the top right corner of the screen below the cover photo. Then select**Find Support or Report Page** .
@@ -107,22 +108,20 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
  If you don’t have a Facebook account and someone has made a fake account, you can fill out [this form](https://www.facebook.com/help/contact/295309487309948?helpref=faq%5Fcontent) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Protect Your Friends and Family From Scammers
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
  Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like[social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +130,19 @@ thumbnail: https://thmb.techidaily.com/8fe26e0805ce05f014893fbbb4d4db477ab6f4023
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-create-unique-audio-trailers-at-zero-expense/"><u>[Updated] Create Unique Audio Trailers at Zero Expense</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-exceptional-quality-hd-video-documenters-for-2024/"><u>[Updated] Exceptional Quality HD Video Documenters for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-you-watch-mov-movies-on-samsung-galaxy-f14-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can you watch MOV movies on Samsung Galaxy F14 5G ?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comparing-network-performance-a-closer-look-at-cat5-and-cat6-cabling/"><u>Comparing Network Performance: A Closer Look at Cat5 and Cat6 Cabling</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/cutting-costs-on-youtube-premium-heres-how-students-can-save/"><u>Cutting Costs on YouTube Premium? Here's How Students Can Save!</u></a></li>
+<li><a href="https://facebook.techidaily.com/designating-which-friends-can-view-you-active/"><u>Designating Which Friends Can View You Active</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-helper-exploring-its-aid-and-resolution-features/"><u>Facebook Helper: Exploring Its Aid and Resolution Features</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-spontaneous-search-menu-open-in-win11/"><u>Fixing Spontaneous Search Menu Open in Win11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-pagewide-pro-477dw-printer-drivers-compatible-with-windows-11108-pcs-free-download-now/"><u>HP PageWide Pro 477DW Printer Drivers - Compatible with Windows 11/10/8 PCs, Free Download Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-enigma-understanding-vague-content-sharing/"><u>Social Media's Enigma - Understanding Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-smart-language-for-social-networking-success/"><u>The Ultimate Guide to SMART Language for Social Networking Success</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-capturing-screenshots-effortlessly-on-dell-lenovo-and-mac-lakes-tips-from-zdnet/"><u>Ultimate Guide: Capturing Screenshots Effortlessly on Dell, Lenovo & Mac Lakes - Tips From ZDNet</u></a></li>
+</ul></div>
 

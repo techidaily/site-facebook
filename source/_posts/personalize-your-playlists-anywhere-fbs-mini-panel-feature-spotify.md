@@ -1,7 +1,7 @@
 ---
 title: Personalize Your Playlists Anywhere - FB's Mini-Panel Feature, Spotify
-date: 2024-12-01T16:37:54.317Z
-updated: 2024-12-06T17:00:37.497Z
+date: 2024-12-11T17:37:59.784Z
+updated: 2024-12-12T17:11:10.867Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Enjoy Your Favorite Spotify Content on the Facebook App
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -64,11 +64,11 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -77,7 +77,7 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -101,22 +101,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-online-no-cost-fb-sound-archive/"><u>[New] Online, No Cost FB Sound Archive</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-top-pick-cross-platform-devices-ideal-entry-editor/"><u>[New] Top Pick Cross-Platform Devices' Ideal Entry Editor</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-transform-your-casual-gopro-footage-to-a-pro-level-for-2024/"><u>[New] Transform Your Casual Gopro Footage to a Pro Level for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-best-on-the-move-dvd-player-selections-for-you-for-2024/"><u>[Updated] Best On-the-Move DVD Player Selections for You for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-secrets-of-content-creators-finding-free-music/"><u>[Updated] Secrets of Content Creators Finding Free Music</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-disliked-social-media-targeting-tactics/"><u>Banishing Disliked Social Media Targeting Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-hashtag-science-maximizing-reach-and-interaction-on-facebook/"><u>Demystifying #Hashtag Science: Maximizing Reach and Interaction on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-unearth-facebook-accounts-youve-locked-out/"><u>How to Unearth Facebook Accounts You've Locked Out</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Itel P55+? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-expert-market-approach-rapid-eradication-on-youtube/"><u>In 2024, The Expert' Market Approach Rapid Eradication on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovating-event-experiences-a-facebook-creation-blueprint/"><u>Innovating Event Experiences: A Facebook Creation Blueprint</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/mastering-the-art-of-fb-chat-transcription/"><u>Mastering the Art of FB Chat Transcription</u></a></li>
-<li><a href="https://facebook.techidaily.com/mindful-interaction-for-effective-digital-advertising/"><u>Mindful Interaction for Effective Digital Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/refusal-of-new-terms-doesnt-affect-whatsapps-access-levels/"><u>Refusal of New Terms Doesn’t Affect WhatsApp's Access Levels</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-majority-of-covid-myths-link-to-12-influencers/"><u>The Majority of Covid Myths Link to 12 Influencers</u></a></li>
-<li><a href="https://facebook.techidaily.com/warning-signs-and-actions-minor-facebook-usage/"><u>Warning Signs and Actions: Minor Facebook Usage</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-essential-tips-on-acquiring-profitable-yt-channels-for-2024/"><u>[New] Essential Tips on Acquiring Profitable YT Channels for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-complete-guide-to-hp-envy-27s-4k-features/"><u>[New] The Complete Guide to HP Envy 27'S 4K Features</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-peak-performance-pcs-top-rated-screen-capture-tools-reviewed/"><u>[Updated] 2024 Approved Peak Performance PCs Top-Rated Screen Capture Tools Reviewed</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capture-your-skype-conversations-on-any-system/"><u>[Updated] Capture Your Skype Conversations on Any System</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-explore-new-horizons-in-video-editing-software/"><u>2024 Approved Explore New Horizons in Video Editing Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-omnidirectional-recording-gadgets/"><u>2024 Approved Top 5 Omnidirectional Recording Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-page-privacy-control-mastery/"><u>Facebook Page Privacy Control Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-ai-picturing-words-mimicking-styles/"><u>Facebook Unveils AI: Picturing Words, Mimicking Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-of-expression-say-no-to-facebook-tagged-photos/"><u>Freedom of Expression: Say No to Facebook Tagged Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-revitalize-the-credential-of-your-social-network/"><u>How to Revitalize the Credential of Your Social Network</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-freely-enhance-your-photos-iosandroids-best-overlay-apps/"><u>In 2024, Freely Enhance Your Photos IOS/Android's Best Overlay Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/laughing-matters-facebooks-humor-guidelines/"><u>Laughing Matters: Facebook's Humor Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/lockdown-stealth-mode-activated-on-your-fb-feed/"><u>Lockdown: Stealth Mode Activated on Your FB Feed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/solo-sounder-snafu-remedy-plan/"><u>Solo Sounder Snafu Remedy Plan</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-motorola-edge-40-neo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-social-media-vigilance-on-fb/"><u>The Complete Guide to Social Media Vigilance on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-brand-identity-top-reasons-to-prioritize-facebook-company-profiles/"><u>Transforming Brand Identity: Top Reasons to Prioritize Facebook Company Profiles</u></a></li>
 </ul></div>
 

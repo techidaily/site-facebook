@@ -1,7 +1,7 @@
 ---
 title: "Pre-Deletion Self-Assessment: Are You Ready for an Unplugged Life?"
-date: 2024-11-20T10:21:43.219Z
-updated: 2024-11-26T22:02:45.872Z
+date: 2024-12-09T23:14:47.401Z
+updated: 2024-12-12T18:57:14.686Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/e8e4a6d6a9bc5b040ff402928b53a2666775b46cc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Deactivate First
@@ -49,7 +49,7 @@ Close
  When deactivating, remember that some platforms will permanently delete your account after a specific time period. For example, you can only stay deactivated for 30 days on X (Twitter) before your account gets deleted.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Delete the App
@@ -58,17 +58,29 @@ Close
 
 ![Deleting Facebook App Confirmation Pop-Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/delete-facebook-app-confirmation-pop-up.JPEG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  If deactivating feels too dramatic, you can always delete the app instead. This way, you'll get the same effect of deactivation—but your account remains unchanged.
 
  There's also no limit as to how many times you can uninstall and reinstall an app should you keep changing your mind. Whereas with deactivation, there's a waiting period on some platforms before you can deactivate again if you have back-and-forth contemplations.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Stop Doomscrolling
 
 ![Screen Time Setting on TikTok](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screen-time-setting-on-tiktok.JPEG)
 
 ![Time Spent Setting on Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/time-spent-setting-on-instagram-1.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -79,10 +91,6 @@ Close
  Instead, set some rules. Stay away from the feed and go straight to the creators that you want to keep an eye on specifically. There are many other[ways to keep doomscrolling under check](https://www.makeuseof.com/what-is-doomscrolling-how-to-stop/) —TikTok has a Screen Time setting to help manage your time spent on the app, and Instagram has the Time Spent setting.
 
  Once you've developed a healthier relationship with social media, you might not feel the need to delete your accounts anymore.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Consider Your Career
 
@@ -99,7 +107,7 @@ Close
 ![Woman Using Phone in the Dark Outside](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/woman-using-phone-dark.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For a lot of people, deleting their social media accounts is a way of bidding goodbye to a time when they were problematic. We're all constantly learning what is and isn't acceptable, so it's only natural to want to part with your old self.
@@ -120,11 +128,11 @@ Close
 
 ![Download Your Data Option on Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-download-data-option.JPEG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Download Data Option on TikTok App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/tiktok-download-data-option.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -133,6 +141,10 @@ Close
  Most social media platforms give you the option of downloading your data, which can include things like posts, profile information, chat history, and account activity, depending on the platform. Downloading your data might not include the posts that you were tagged in, so you'll have to save those individually.
 
  If you're not sure how to do it, see our guides on[how to download your TikTok data](https://www.makeuseof.com/how-to-download-your-tiktok-data/) ,[how to download your Twitter data](https://www.makeuseof.com/how-to-download-your-twitter-data/) , and[how to download all your Instagram photos](https://www.makeuseof.com/tag/download-save-instagram-photos/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Make a Contact List
 
@@ -145,12 +157,16 @@ Close
  But should there be someone you'd like to keep in touch with, having their contact details ensures you won't have to spend hours trying to find them after your account is gone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Update Your Login Information on Sites That Use Social Login
 
 ![Sign Up Options for Canva on Desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/canva-sign-up-options-page-on-desktop.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The social login feature (part of Social Sign-On Technology) allows users to log in to other apps or sites with one social media account. This makes it easier to remember your username and password. The problem with this feature is that it's not foolproof.
 
@@ -162,10 +178,6 @@ Close
 
 ![Sad Person Scrolling on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/sad-person-using-phone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The FOMO will be real, especially if you've succumbed to the grips of short-form content like Reels and TikToks.
 
  If you're deleting your accounts with the intention of quitting social media for good, you're going to need a distraction. Otherwise, you'll find yourself making new accounts to get back in the loop. Try picking up a hobby that doesn't involve the use of your phone, or focus on[building healthier habits in your personal life](https://www.makeuseof.com/5-minute-healthy-habits/) .
@@ -176,29 +188,17 @@ Close
 
 ![Man With Hand Covering Face Against Yellow Background With the Words Disconnected Projected](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/man-against-yellow-background-with-words.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Disconnecting from the chaos of society isn't necessarily a bad thing. But, how much disconnection is healthy?
 
  Apart from connecting with friends and family, social media also connects us with the world. For many of us, it's a source of news, updates, events, trends, and cultural phenomena. If you're content with letting all of that go, that's your prerogative. But this limited awareness might not be as beneficial as you'd think, especially if you're, say, a business owner.
 
  Given how dependent socialization and communication have become on social media, giving it up could result in a bit of social alienation. It might be worth ensuring your real-life connections are reliable before cutting off the digital ones.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Consider deactivating your social media accounts first to see if it brings any positive changes to your life before permanently deleting them.
 * If deactivation feels too drastic, try deleting the app instead to achieve a similar effect while keeping your account intact.
 * Reflect on why you want to delete your accounts - if it's due to mental health or time management issues, consider establishing healthier habits and setting boundaries instead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Are You Ready to Delete Your Social Media Accounts?
 
@@ -223,16 +223,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-top-screen-recording-software-compared-bandicam-vs-camtasia/"><u>[New] In 2024, Top Screen Recording Software Compared Bandicam Vs Camtasia</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-delving-into-youtubes-complex-calculation-of-viewer-stats/"><u>[Updated] Delving Into YouTube's Complex Calculation of Viewer Stats</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-dark-patterns-mislead-you-into-making-bad-privacy-choices/"><u>How Dark Patterns Mislead You Into Making Bad Privacy Choices</u></a></li>
-<li><a href="https://facebook.techidaily.com/looking-past-hype-examining-the-impact-of-facebook-leaks/"><u>Looking Past Hype: Examining The Impact of Facebook Leaks</u></a></li>
-<li><a href="https://discover-great.techidaily.com/losungen-fur-fehlende-dateien-nach-windows-10-update-sorgenfrei-verbindet-sie-mit-experten/"><u>Lösungen Für Fehlende Dateien Nach Windows 10-Update: Sorgenfrei Verbindet Sie Mit Experten</u></a></li>
-<li><a href="https://facebook.techidaily.com/preemptive-actions-for-recovering-a-breached-social-media-account/"><u>Preemptive Actions for Recovering a Breached Social Media Account</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-motorola-moto-g73-5g-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Motorola Moto G73 5G has been deleted.</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/streamlining-your-process-tools-and-tricks-for-smooth-broadcasting-for-2024/"><u>Streamlining Your Process Tools and Tricks for Smooth Broadcasting for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-struggle-amazon-vs-the-ruling-factions-in-thousands-of-fb-groups/"><u>The Struggle: Amazon Vs. The Ruling Factions in Thousands of FB Groups</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unleashing-humor-kinemaster-for-memes/"><u>Unleashing Humor KineMaster for Memes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-photodnas-image-matching/"><u>Unlocking the Secrets of PhotoDNA's Image Matching</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-masterpiece-episodes-for-airwaves/"><u>[Updated] Masterpiece Episodes for Airwaves</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unbeatable-5-photo-backdrop-switchers-for-x8-series/"><u>[Updated] Unbeatable 5 Photo Backdrop Switchers for X/8 Series</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-key-to-online-success-mastering-backlink-construction/"><u>2024 Approved The Key to Online Success Mastering Backlink Construction</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exposing-the-fraudulent-use-of-counterfeit-keysets-by-lamptron-for-lcd-based-products/"><u>Exposing the Fraudulent Use of Counterfeit Keysets by Lamptron for LCD-Based Products</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-google-pixel-fold-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Google Pixel Fold without App | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/latest-guide-how-to-bypass-oneplus-11-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass OnePlus 11 5G FRP Without Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneers-pushing-boundaries-triggering-discord/"><u>Pioneers Pushing Boundaries, Triggering Discord</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-focus-delete-facebook-tags-quickly/"><u>Privacy in Focus: Delete Facebook Tags Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-mobile-payments-facebooks-unique-subscriber-tie-ups-explored/"><u>Revolutionizing Mobile Payments: Facebook's Unique Subscriber Tie-Ups Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dilemma-is-linking-accounts-via-facebook-login-safe-and-practical/"><u>The Dilemma: Is Linking Accounts Via Facebook Login Safe & Practical?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-three-countries-where-facebooks-illegal/"><u>What Are the Three Countries Where Facebook's Illegal?</u></a></li>
 </ul></div>
 

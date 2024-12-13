@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-12-01T16:55:28.559Z
-updated: 2024-12-06T17:02:44.132Z
+date: 2024-12-11T19:55:30.460Z
+updated: 2024-12-12T19:46:25.334Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
@@ -47,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Facebook Make Money?
@@ -69,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
@@ -80,12 +76,16 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
@@ -127,22 +127,17 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-master-list-of-premium-9-multi-platform-video-communication-apps-for-2024/"><u>[New] Master List of Premium 9 Multi-Platform Video Communication Apps for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-lightning-foldout-sculpting-rapidly-produced-google-collage-pics/"><u>[Updated] Lightning Foldout Sculpting Rapidly Produced Google Collage Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/after-the-social-giant-your-datas-fate/"><u>After the Social Giant: Your Data's Fate</u></a></li>
-<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-steps-erase-and-reset-your-facebook-narrative/"><u>Easy Steps: Erase and Reset Your Facebook Narrative</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-poco-c65-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/friends-across-platforms-embodying-your-social-media-self-on-whatsapp/"><u>Friends Across Platforms: Embodying Your Social Media Self on WhatsApp</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-a-found-iphone-14-plus-drfone-by-drfone-ios/"><u>How To Unlock A Found iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/solving-chatgpt-plugin-connection-problems-a-step-by-step-guide/"><u>Solving ChatGPT Plugin Connection Problems: A Step-by-Step Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/streamlined-approach-transforming-your-audio-impression-in-pubg-for-2024/"><u>Streamlined Approach Transforming Your Audio Impression in PUBG for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/take-full-page-screen-images-for-2024/"><u>Take Full-Page Screen Images for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-creating-a-duel-on-tiktok/"><u>The Ultimate Guide: Creating a Duel on TikTok</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-photodna-a-tool-against-piracy/"><u>Understanding PhotoDNA: A Tool Against Piracy</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150126533-unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-ultimate-digital-hangout-vote-here/"><u>Your Ultimate Digital Hangout - Vote Here</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-easy-access-to-12-exclusive-livestreams-daily-for-2024/"><u>[Updated] Easy Access to 12 Exclusive Livestreams Daily for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gopro-max-versus-hero-11-ultimate-review-guide/"><u>[Updated] GoPro Max Versus Hero 11 Ultimate Review Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-whos-in-your-fb-blacklist/"><u>Deciphering Who’s in Your FB Blacklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-emojis-a-comprehensive-guide/"><u>Decoding Facebook Emojis: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-deepest-dive-2022s-best-rated-podcasts/"><u>Delving Into the Deepest Dive: 2022'S Best-Rated Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-implementing-facebooks-break-notifications/"><u>Digital Detox: Implementing Facebook's Break Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-conversation-with-augmented-interactions-on-messenger/"><u>Elevate Conversation with Augmented Interactions on Messenger</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-get-the-newest-epson-wf-7720-printer-driver-update-on-your-windows-pc/"><u>How to Get the Newest Epson WF-7720 Printer Driver Update on Your Windows PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-role-of-vector-databases-in-advancing-ai-technology/"><u>The Role of Vector Databases in Advancing AI Technology</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/transfert-facile-et-gratuit-des-fichiers-de-votre-pc-a-onedrive-guide-complet-pour-windows-etailor/"><u>Transfert Facile Et Gratuit Des Fichiers De Votre PC À OneDrive : Guide Complet Pour Windows eTailor</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>What is Fake GPS Location Pro and Is It Good On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
 </ul></div>
 

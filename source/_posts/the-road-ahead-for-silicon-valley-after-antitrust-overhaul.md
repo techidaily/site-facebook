@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2024-12-05T20:01:06.900Z
-updated: 2024-12-06T17:05:26.602Z
+date: 2024-12-06T23:11:33.804Z
+updated: 2024-12-12T18:50:08.301Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
@@ -43,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
@@ -51,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -92,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -106,6 +106,10 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -117,10 +121,6 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,17 +143,22 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-social-scoop-twitters-trending-talks/"><u>[Updated] 2024 Approved Social Scoop Twitter’s Trending Talks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-hire-wisdom-top-10-recruiting-video-guide/"><u>[Updated] Hire Wisdom Top 10 Recruiting Video Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-adapts-to-the-changes-from-ios-145-update/"><u>Facebook Adapts to the Changes From iOS 14.5 Update</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-realme-12-proplus-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Realme 12 Pro+ 5G Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-primeplay-videoapp-inspection/"><u>In 2024, PrimePlay VideoApp Inspection</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-step-by-step-analysis-of-substitutes-for-apowersofts-audio-recorder/"><u>In 2024, Step-by-Step Analysis of Substitutes for Apowersofts Audio Recorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leveraging-chatgpt-as-an-alternative-dm-tool-in-tabletop-gaming-a-practical-guide/"><u>Leveraging ChatGPT as an Alternative DM Tool in Tabletop Gaming - A Practical Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/permanent-disconnection-from-fb-notifications/"><u>Permanent Disconnection From Fb Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-unseen-discussions-on-social-platforms/"><u>The Art of Unseen Discussions on Social Platforms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-wasteland-2-directors-cut-review-a-compelling-turn-based-rpg/"><u>The Wasteland 2: Director’s Cut Review: A Compelling Turn-Based RPG</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-career-advancement-top-6-facebook-strategies/"><u>Unlocking Career Advancement: Top 6 Facebook Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-reality-on-facebook-3-red-flags-to-note/"><u>Virtual Reality on Facebook – 3 Red Flags to Note</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-bypassing-vimeo-top-10-editing-software-choices/"><u>[Updated] 2024 Approved Bypassing Vimeo Top 10 Editing Software Choices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-ultimate-8-mobile-tools-for-smart-traveling/"><u>Discover the Ultimate 8 Mobile Tools for Smart Traveling</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/gpt-4-versus-its-siblings-dissecting-the-differences-between-gpt-4-gpt-4turbo-and-phi/"><u>GPT-4 Versus Its Siblings: Dissecting the Differences Between GPT-4, GPT-4Turbo, and Phi</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-hashtags-for-broad-impact/"><u>Harnessing Hashtags for Broad Impact</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-does-handbrake-eliminate-drm-on-dvds-step-by-step-removal-guide/"><u>How Does Handbrake Eliminate DRM on DVDs? Step-by-Step Removal Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-profile-picture/"><u>How to Change Your Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/image-rights-user-generated-imagery-claims/"><u>Image Rights: User-Generated Imagery Claims</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-facebook-profile-as-secure/"><u>Setting Facebook Profile as Secure</u></a></li>
+<li><a href="https://win11.techidaily.com/setting-up-offline-mode-in-microsoft-onedrive/"><u>Setting Up Offline Mode in Microsoft OneDrive</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-ways-to-part-with-your-virtual-social-circle/"><u>Smart Ways to Part With Your Virtual Social Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-on-preferred-social-spheres/"><u>Spotlight on Preferred Social Spheres</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/egic-insights-into-youtubes-adsense-earnings-by-thousand-viewers-for-2024/"><u>Strategic Insights Into Youtube's AdSense Earnings by Thousand Viewers for 2024</u></a></li>
+<li><a href="https://win-best.techidaily.com/top-inquiries-and-answers-on-utilizing-the-aomei-image-deploy-feature/"><u>Top Inquiries and Answers on Utilizing the AOMEI Image Deploy Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-year-of-my-digital-networking-beginnings-facebook/"><u>Unlocking the Year of My Digital Networking Beginnings: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-vagueness-in-digital-dialogues-and-expression/"><u>Unraveling Vagueness in Digital Dialogues & Expression</u></a></li>
 </ul></div>
 

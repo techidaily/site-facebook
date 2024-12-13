@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-11-26T08:08:22.942Z
-updated: 2024-11-27T15:08:40.695Z
+date: 2024-12-08T21:18:09.023Z
+updated: 2024-12-13T00:06:11.681Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,16 +79,18 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-picks-ultimate-tools-for-efficient-scheduling-screen-captures/"><u>[Updated] 2024 Approved Top Picks Ultimate Tools for Efficient Scheduling Screen Captures</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-tips-and-tricks-to-attract-product-sponsors-to-your-youtube-channel/"><u>[Updated] Tips and Tricks to Attract Product Sponsors to Your Youtube Channel</u></a></li>
-<li><a href="https://win11.techidaily.com/fixing-win-10-and-11-intruder-exceptions-error-message/"><u>Fixing Win 10 & 11 Intruder Exceptions Error Message</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-channels-make-it-easier-to-connect-in-facebook-groups/"><u>How Channels Make It Easier to Connect in Facebook Groups</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-undo-corrupted-mp4-videos-on-your-windows-1187-pc-with-three-effective-methods/"><u>How to Undo Corrupted MP4 Videos on Your Windows 11/8/7 PC with Three Effective Methods</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-13-pro-using-find-my-iphone-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 13 Pro using find my iphone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/humor-hierarchy-the-20-most-popular-memes-for-2024/"><u>Humor Hierarchy The 20 Most Popular Memes for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovation-in-social-media-twittersphere-to-facebooks-knowledgeable-posting/"><u>Innovation in Social Media: Twittersphere to Facebook's Knowledgeable Posting</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-full-whatsapp-account-ability-post-privacy-policy-refusal/"><u>Maintaining Full WhatsApp Account Ability Post-Privacy Policy Refusal</u></a></li>
-<li><a href="https://facebook.techidaily.com/techs-intrigue-is-your-device-secretly-curating-commerce/"><u>Tech's Intrigue: Is Your Device Secretly Curating Commerce?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-community-curation-employing-new-features-in-facebook-group-control/"><u>The Art of Community Curation: Employing New Features in Facebook Group Control</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-acquire-excellent-images-at-no-cost-essential-strategies/"><u>[New] Acquire Excellent Images at No Cost Essential Strategies</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-screensnapper-showdown-for-2024/"><u>[New] ScreenSnapper Showdown for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-recorder-tips-effective-screen-and-camera-capturing-techniques-for-2024/"><u>[New] Vimeo Recorder Tips Effective Screen & Camera Capturing Techniques for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-an-anthology-of-admiration-highlighting-top-10-reddit-threads-for-2024/"><u>[Updated] An Anthology of Admiration Highlighting Top 10 Reddit Threads for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boosting-youtube-success-mastery-with-tubebuddy-for-2024/"><u>[Updated] Boosting YouTube Success Mastery with TubeBuddy for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-digital-paintbrushes-at-your-fingertips-explore-11-color-correction-essentials/"><u>2024 Approved Digital Paintbrushes at Your Fingertips Explore 11 Color Correction Essentials</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/iently-add-youtube-playlists-to-your-website-interface/"><u>Efficiently Add YouTube Playlists to Your Website Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-invites-you-to-shape-tomorrows-metaverse-awaiting-10k/"><u>Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-assertively-claim-a-purchase-correction-via-facebook/"><u>How to Assertively Claim a Purchase Correction via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-eloquence-unlocked-top-30-smart-words-and-phrases/"><u>Online Eloquence Unlocked: Top 30 SMART Words and Phrases</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/review-insights-on-the-winter-audio-player-soundbots-sb210-and-its-dependable-quality-output/"><u>Review Insights on the Winter Audio Player - Soundbot's SB210 and Its Dependable Quality Output</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-billions-for-virus-eradication-effort/"><u>Social Media's Billions for Virus Eradication Effort</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnba-unleashed-on-two-social-titans-this-season/"><u>WNBA Unleashed on Two Social Titans This Season</u></a></li>
 </ul></div>
 

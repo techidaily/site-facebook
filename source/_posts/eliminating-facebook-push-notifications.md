@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2024-12-05T18:00:28.035Z
-updated: 2024-12-06T18:59:22.438Z
+date: 2024-12-11T18:01:31.310Z
+updated: 2024-12-13T00:07:19.314Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete Facebook Notifications
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Clear All Facebook Notifications
@@ -64,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 2. Click on the**Notifications** icon in the upper right-hand corner.
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Turn Off Facebook Notifications
 
@@ -91,13 +87,13 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -115,7 +111,7 @@ Follow the steps below to learn about the process on the web app:
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Stop Facebook Notifications Altogether
@@ -123,6 +119,10 @@ Follow the steps below to learn about the process on the web app:
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on Android
 
@@ -173,14 +173,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-androids-leading-photographic-enhancers/"><u>2024 Approved Android's Leading Photographic Enhancers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/cutting-through-the-noise-strategies-for-standout-instagram-success/"><u>Cutting Through the Noise Strategies for Standout Instagram Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/framework-for-alerting-misuse-of-facebook-by-youngsters/"><u>Framework for Alerting Misuse of Facebook by Youngsters</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-diagnose-and-repair-no-spin-lock-available-error-stop-code-0x0000001d/"><u>How to Diagnose and Repair No Spin Lock Available Error - STOP Code 0X0000001D</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-wipe-out-your-virtual-trail-on-facebook/"><u>How to Wipe Out Your Virtual Trail on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/rank-the-networks-that-keep-us-connected/"><u>Rank the Networks That Keep Us Connected</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryls-visionary-leadership-in-the-tech-sphere/"><u>Sheryl's Visionary Leadership in the Tech Sphere</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/supercharge-your-tiktok-experience-mastery-of-the-speed-control-feature-for-2024/"><u>Supercharge Your TikTok Experience Mastery of the Speed Control Feature for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/transforming-file-system-visibility-on-modern-windows-pcs/"><u>Transforming File System Visibility on Modern Windows PCs</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-1st-place-video-saver-download-anywhere-anytime/"><u>[New] 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-send-hidden-youtube-videos-using-google-login/"><u>[New] 2024 Approved How to Send Hidden YouTube Videos Using Google Login</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-essential-breakdown-of-dji-phantom-3-mechanics/"><u>[New] 2024 Approved The Essential Breakdown of DJI Phantom 3 Mechanics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-does-youtube-offer-frequent-payments-to-you-for-2024/"><u>[New] Does YouTube Offer Frequent Payments to You for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-short-form-content-top-10-edits-for-iosandroid-for-2024/"><u>[Updated] Elevate Your Short-Form Content Top 10 Edits for iOS/Android for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/drafting-a-powerful-post-for-online-fundraising/"><u>Drafting a Powerful Post for Online Fundraising</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-meetings-key-strategies-with-zoom-adapter/"><u>Elevate Meetings Key Strategies with Zoom Adapter</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-social-media-spying-strategies-to-block-facebook/"><u>End Social Media Spying: Strategies to Block Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-photo-privacy-settings-everything-you-need-to-know/"><u>Facebook Photo Privacy Settings: Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-reworked-evolving-from-a-social-network-to-meta/"><u>Facebook Reworked: Evolving From a Social Network to Meta</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-motorola-edgeplus-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-securing-fb-profile-against-unseen-eyes/"><u>Master Securing FB Profile Against Unseen Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-success-tips-for-creating-effective-facebook-reels/"><u>Streamline Social Media Success: Tips for Creating Effective Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unheard-side-of-stories-rethinking-the-true-impact-of-the-fb-papers/"><u>The Unheard Side of Stories: Rethinking the True Impact of The FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unknown-ventures-facebooks-secret-wrist-tech-project/"><u>Unknown Ventures: Facebook's Secret Wrist Tech Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-changed-symbolism-in-facebooks-updated-page-tags/"><u>Unraveling the Changed Symbolism in Facebook's Updated Page Tags</u></a></li>
 </ul></div>
 

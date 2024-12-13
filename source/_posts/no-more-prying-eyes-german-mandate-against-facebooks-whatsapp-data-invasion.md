@@ -1,7 +1,7 @@
 ---
 title: "No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion"
-date: 2024-11-30T17:54:50.994Z
-updated: 2024-12-06T23:11:53.758Z
+date: 2024-12-11T22:54:18.748Z
+updated: 2024-12-12T23:22:16.286Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,22 +81,24 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-decoding-facebooks-in-stream-ad-setup-process-from-basics-to-advanced-strategies/"><u>[New] In 2024, Decoding Facebook's In-Stream Ad Setup Process From Basics to Advanced Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elite-10-audio-boosters-for-os-x-ios-android/"><u>[New] In 2024, Elite 10 Audio Boosters for OS X, iOS, Android</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-vivo-v27e-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Vivo V27e Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/account-takeovers-regularity-and-trends/"><u>Account Takeovers: Regularity and Trends</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-unique-digital-home-for-your-facebook-page/"><u>Crafting a Unique Digital Home for Your Facebook Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/cybersecurity-alert-discovering-9-social-indicators-of-a-break-in/"><u>Cybersecurity Alert! Discovering 9 Social Indicators of a Break-In</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-when-to-transform-your-social-media-icon/"><u>Deciding When to Transform Your Social Media Icon</u></a></li>
-<li><a href="https://facebook.techidaily.com/empowering-players-with-a-unified-online-identity-for-xbox/"><u>Empowering Players with a Unified Online Identity for Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/engaging-entirety-group-post-acknowledgement-tactics/"><u>Engaging Entirety: Group Post Acknowledgement Tactics</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/how-to-safely-delete-the-windowsapps-directory-in-windows-11-without-damaging-your-system/"><u>How to Safely Delete the 'WindowsApps' Directory in Windows 11 Without Damaging Your System</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-fcpx-2024-essentials-how-to-sync-audio-and-video-like-a-pro/"><u>New FCPX 2024 Essentials How to Sync Audio and Video Like a Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/reminisce-connections-a-dive-into-facebooks-past/"><u>Reminisce Connections: A Dive Into Facebook's Past</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-ultimate-snapchat-checklist-for-engaging-content-for-2024/"><u>The Ultimate Snapchat Checklist for Engaging Content for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-virtual-and-the-immersive-delineating-metavirtualitys-six-aspects/"><u>The Virtual and the Immersive: Delineating Metavirtuality's Six Aspects</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-samsung-galaxy-m14-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Samsung Galaxy M14 5G? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/write-with-confidence-using-these-win-friendly-apps/"><u>Write with Confidence Using These Win-Friendly Apps</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-update-targus-displaylink-drivers-in-windows-1087/"><u>[DOWNLOAD] Update Targus DisplayLink Drivers in Windows 10/8/7</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-dealing-with-disconnected-live-video-sessions-on-facebook/"><u>[Updated] 2024 Approved Dealing with Disconnected LIVE Video Sessions on Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-essential-guide-to-documentary-storytelling-mechanics/"><u>[Updated] 2024 Approved The Essential Guide to Documentary Storytelling Mechanics</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-essential-business-youtube-sites-you-must-follow-for-2024/"><u>[Updated] Essential Business YouTube Sites You Must Follow for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/convert-3gp-videos-to-mpeg-file-format-at-no-cost-using-moveavis-website/"><u>Convert 3GP Videos to MPEG File Format at No Cost Using Moveavi's Website</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/efficient-methods-to-master-your-phone-memos/"><u>Efficient Methods to Master Your Phone Memos</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-list-of-regrets-a-compilation-of-5-major-mishaps-to-its-community/"><u>Facebook’s List of Regrets: A Compilation of 5 Major Mishaps to Its Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-dimension-reasons-for-apprehension/"><u>Facebook's New Dimension – Reasons for Apprehension</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-worlds-at-our-fingertips-discovering-the-reality-of-metaverse-on-facebook/"><u>Future Worlds at Our Fingertips: Discovering The Reality of Metaverse on Facebook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/innovative-techniques-for-backward-video-editing-in-snapchat-apps/"><u>Innovative Techniques for Backward Video Editing in Snapchat Apps</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/instantly-stream-youtube-content-on-facebook-auto-play-guide-for-2024/"><u>Instantly Stream YouTube Content on Facebook Auto-Play Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/on-the-go-living-portal-gets-a-portable-makeover/"><u>On-the-Go Living: Portal Gets a Portable Makeover</u></a></li>
+<li><a href="https://win11.techidaily.com/solutions-for-slashing-dropbox-cpu-load-on-windows-devices/"><u>Solutions for Slashing Dropbox CPU Load on Windows Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/sovereign-suing-social-giants-trump-vs-google-facebook/"><u>Sovereign Suing Social Giants: Trump Vs. Google, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-user-exclusion-for-businesses-on-facebook/"><u>The Essential Guide to User Exclusion for Businesses on Facebook</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ower-of-first-impressions-crafting-impactful-youtube-images-for-2024/"><u>The Power of First Impressions Crafting Impactful YouTube Images for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-advanced-account-protection-with-fb-mtgc/"><u>Unlock Advanced Account Protection with FB MTGC</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-the-hidden-dangers-in-social-quiz-platforms/"><u>Unmasking the Hidden Dangers in Social Quiz Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/writers-world-expanded-with-facebooks-5-million-for-new-digital-platform-venture/"><u>Writers' World Expanded with Facebook's $5 Million for New Digital Platform Venture</u></a></li>
 </ul></div>
 

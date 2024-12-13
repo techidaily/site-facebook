@@ -1,7 +1,7 @@
 ---
 title: How to Prune Out of Touch FB Content
-date: 2024-08-28T03:10:44.316Z
-updated: 2024-08-29T03:10:44.316Z
+date: 2024-12-08T17:14:50.460Z
+updated: 2024-12-12T21:24:52.224Z
 tags:
   - facebook
 categories:
@@ -32,8 +32,13 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
 ![Unfollowing a Facebook Page From a Post in the News Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/1-unfollowing-a-facebook-page-from-a-post-in-the-news-feed.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Unfollow a Facebook Page Directly From the Page
 
  Unfollowing a page directly from the page itself is another option you have at your disposal. This method is suitable if you know the page's name and want to unfollow it directly.
@@ -48,14 +53,6 @@ Here's how to unfollow a Facebook page using this method:
 
 ![Unfollowing a Facebook Page From the Follow Settings Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/2-unfollowing-a-facebook-page-from-the-follow-settings-window.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Unfollow Facebook Pages From the Pages Tab
 
  If you want to unfollow multiple pages simultaneously, unfollowing them from the Pages tab is a great option. To unfollow Facebook pages in bulk: first select the**Pages** tab on the left. If you don't see it, expand the**See More** menu and select the**Pages** tab.
@@ -63,8 +60,9 @@ Here's how to unfollow a Facebook page using this method:
 ![Opening the Pages Tab From the Facebook Homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/3-opening-the-pages-tab-in-the-facebook-homepage-tab.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Now:
 
 1. Navigate to**Liked Pages** on the left.
@@ -75,13 +73,14 @@ Now:
 
 ![Opening the Follow Settings window for a page from the Liked Pages tab](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/4-opening-the-follow-settings-window-for-a-page-in-the-liked-pages-window.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  From there, turn on the toggle next to**Unfollow this page** and click the**Update** button to unfollow the page successfully.
 
 ![Unfollowing a Facebook Page From the Follow Settings Window on Facbeook Website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/unfollowing-a-facebook-page-from-the-follow-settings-window-on-facbeook-website.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Follow the same procedure for all the pages you want to unfollow.
 
 ### 4\. Unfollow Facebook Pages From Your Feed Preferences
@@ -90,9 +89,6 @@ Follow the same procedure for all the pages you want to unfollow.
 
 ![Opening the Feed Settings from the Settings and Privacy Menu on Facbeook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/6-opening-the-feed-settings-from-the-settings-and-privacy-window-on-facbeook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
  From there, select**Unfollow people and groups** .
 
 ![Opening the Feed Preference to Unfollow People and Groups in the Manage Your Feed Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/7-opening-the-feed-preference-to-unfollow-people-and-groups-in-the-manage-your-feed-window.jpg)
@@ -102,20 +98,18 @@ Follow the same procedure for all the pages you want to unfollow.
 ![Unfollowing Pages in Bulk From the Unfollow Window in the Manage Your Feed Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/8-unfollowing-pages-in-bulk-from-the-unfollow-window-in-the-manage-your-feed-window.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Unfollow Facebook Pages From the Mobile App
 
  Similar to the Facebook website, unfollowing a page from Facebook's mobile app is also straightforward. There are four ways to unfollow a Facebook page from your phone, all of which work the same for Android and iOS devices.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +118,24 @@ Follow the same procedure for all the pages you want to unfollow.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-overcome-no-image-problem-in-youtube-shorts-for-2024/"><u>[New] How To Overcome No Image Problem in YouTube Shorts for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-top-10plus-best-online-screen-capture-platforms/"><u>[New] In 2024, Top 10+ Best Online Screen Capture Platforms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-macs-visionary-picks-the-10-elite-monitors-with-4k-for-2024/"><u>[New] Mac's Visionary Picks The #10 Elite Monitors with 4K for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-master-the-art-of-preserving-your-musical-journey/"><u>[Updated] 2024 Approved Master the Art of Preserving Your Musical Journey</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-construct-a-careerscape-on-camera-by-critiquing-closets/"><u>[Updated] In 2024, Construct a Careerscape on Camera by Critiquing Closets</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/4k-vs-8k/"><u>「4K vs 8K - 解説！高解像度ビデオをダウンロードする完全ガイド」</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-innovative-approaches-to-surge-engagement-in-your-social-feed/"><u>12 Innovative Approaches to Surge Engagement in Your Social Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-key-planning-tools-to-master-your-content-calendar/"><u>5 Key Planning Tools to Master Your Content Calendar</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deeper-dive-into-personalized-advertising-facebooks-newsfeed-update/"><u>A Deeper Dive Into Personalized Advertising: Facebook's Newsfeed Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/administrative-control-integrating-new-members-on-facebook-pages/"><u>Administrative Control: Integrating New Members on Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/baffling-befrienders-hide-your-list-precision/"><u>Baffling Befrienders: Hide Your List Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-networks-grasping-the-essence-of-facebooks-virtual-world/"><u>Beyond Networks: Grasping the Essence of Facebook’s Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/darkening-outlook-what-the-future-holds-for-facebook/"><u>Darkening Outlook: What the Future Holds for Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/engineering-engaging-media-excerpts-for-2024/"><u>Engineering Engaging Media Excerpts for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-properly-download-and-set-up-dell-g15-graphics-drivers-in-windows-1011/"><u>How to Properly Download and Set Up Dell G15 Graphics Drivers in Windows 10/11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-f54-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy F54 5G Location | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154016371-unintentional-sharing-of-numbers-on-social-media-alert/"><u>Unintentional Sharing of Numbers on Social Media Alert</u></a></li>
+</ul></div>
 

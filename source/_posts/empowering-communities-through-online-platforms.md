@@ -1,7 +1,7 @@
 ---
 title: Empowering Communities Through Online Platforms
-date: 2024-08-28T03:11:13.559Z
-updated: 2024-08-29T03:11:13.559Z
+date: 2024-12-11T21:13:45.932Z
+updated: 2024-12-12T18:24:52.706Z
 tags:
   - facebook
 categories:
@@ -49,16 +49,14 @@ thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5
 
 **Social media can act as a kind of group therapy session.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## 3\. Social Media Allows for Speedy Communication
 
 ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
  Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with[social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
@@ -69,18 +67,14 @@ thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5
 
  **Social media allows you to live a life unhindered by small talk.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## 4\. Social Media Makes the World Seem Smaller
 
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
  It isn't just your inner circle of close friends and even closer family members that social networking sites allow you to communicate with easily and effectively. One of the good things about social media is its power to open the world up to you, making it a smaller place than it has ever been before.
@@ -90,6 +84,10 @@ The powerful video editing program for your Windows PC</a>
  Family members living abroad can be kept abreast of the latest happenings in your world as quickly as those living next door. Friends you haven't seen since school, and who have since moved away, are able to keep in touch. Social networking sites mean someone's physical location has become a lot less important.
 
 **Social media has made the world a much smaller place.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Social Media Helps You Build Relationships
 
@@ -110,8 +108,9 @@ The powerful video editing program for your Windows PC</a>
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
  New lines of communication have opened the world up in a big way. No more so than when it comes to news, which can makes its way around the world and back again with seconds.
@@ -123,6 +122,10 @@ The powerful video editing program for your Windows PC</a>
  So, this isn't the fault of social media, but the users willing to believe anything and everything they read online.
 
  **Social media helps news travel further, faster, keeping us all more informed.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Social Media Helps You Find Common Ground
 
@@ -138,21 +141,15 @@ The powerful video editing program for your Windows PC</a>
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +158,22 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-innovative-ways-to-document-your-digital-collaboration-sessions/"><u>[New] In 2024, Innovative Ways to Document Your Digital Collaboration Sessions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-unleashing-potential-the-art-of-youtube-seo-keywords/"><u>[Updated] 2024 Approved Unleashing Potential The Art of YouTube SEO Keywords</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjust-facebook-friend-views-privacy-control/"><u>Adjust Facebook Friend Views Privacy Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-overcoming-top-11-social-media-snags-on-fb/"><u>Comprehensive Guide to Overcoming Top 11 Social Media Snags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-devices-smartphone-and-television/"><u>Connecting Devices: Smartphone & Television</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-kings-discovering-todays-most-trending-digital-places/"><u>Connectivity Kings: Discovering Today's Most Trending Digital Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptic-compliments-concealing-your-facebook-like/"><u>Cryptic Compliments: Concealing Your Facebook Like</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-excessive-facebook-communications/"><u>Cutting Down Excessive Facebook Communications</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151405205-facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-motorola-edge-2023-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Motorola Edge 2023 with Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-stop-the-sims-4-game-from-freezing-or-crashing-in-pc-version-solutions/"><u>How to Stop The Sims 4 Game From Freezing or Crashing in PC Version (Solutions)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-guide-on-how-to-remove-apple-id-from-iphone-xs-by-drfone-ios/"><u>In 2024, Guide on How To Remove Apple ID From iPhone XS</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-the-art-of-running-elevated-powershell-in-windows-11/"><u>Mastering the Art of Running Elevated PowerShell in Windows 11</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/seamless-volume-reduction-for-apple-and-microsoft-systems/"><u>Seamless Volume Reduction for Apple and Microsoft Systems</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Five Principles to a Clean Feed
-date: 2024-08-28T03:08:39.899Z
-updated: 2024-08-29T03:08:39.899Z
+date: 2024-12-07T19:37:10.409Z
+updated: 2024-12-12T22:54:31.639Z
 tags:
   - facebook
 categories:
@@ -34,24 +34,23 @@ thumbnail: https://thmb.techidaily.com/cb431f215cf0eee5f553b44b6e0b6eba3871dc3f5
  It's time to go into your photos and decide what you want to be on the internet for all to see. While you can[make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Deleting Facebook Photo Albums
 
  Albums are the easiest way to delete photos from Facebook. Click the**ellipsis** next to an Album and select**Transfer** if you want to transfer a copy of the album to another service such as Google Drive. Follow the onscreen instructions, double-check the transfer was successful, and then you're safe to delete the album from your Facebook for good.
 
 ![Transfer Facebook photos in an album to an external service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729197.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You'll notice that certain Facebook photo Albums like your**Profile Pictures** ,**Timeline Photos** ,**Mobile Uploads** , and**Cover Photos** can't be deleted. These albums can be downloaded and transferred to another service, but their content must be deleted manually, one photo at a time.
 
 ![Deleting an Album on Facebook Warning Pop Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729222.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ### Deleting Your Photos on Facebook
 
 **Your Photos** contains every image you've ever uploaded to your Facebook timeline. The only way to delete photographs in the**Your Photos** section is one at a time. It's a long and slow process.
@@ -60,22 +59,24 @@ thumbnail: https://thmb.techidaily.com/cb431f215cf0eee5f553b44b6e0b6eba3871dc3f5
 
 ![View Photos hidden from timeline on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729155.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Deleting Photos of You on Facebook
 
  Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our[Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
 
 ![Remove a tagged photo of yourself on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729047.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To remove yourself from a tagged photo, tap the**pencil icon** and then tap**Remove Tag** . You can also delete your tag by opening the photo, clicking the**tag icon** , and then clicking the**cross** next to your name tag. Once untagged, you won't see the photo in the**Photos of You** section, but it will still be available on the owner's Facebook profile. If you want someone to delete a photo of you from Facebook, then the only thing you can do is ask them. If the image is offensive, then you can report it.
 
 ![Deleting a tag on an image you don't own Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729089.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Unlike and Unfollow Facebook Pages
 
  Next, it's time to sort through the Facebook Pages you like and follow. To find your liked Pages, head to the Pages flag icon and then select**Liked Pages** . Here, you'll find every page you currently like on Facebook. To help you sort through your liked Pages, try filtering them from oldest to newest.
@@ -87,22 +88,27 @@ thumbnail: https://thmb.techidaily.com/cb431f215cf0eee5f553b44b6e0b6eba3871dc3f5
 ![Unlike a Facebook Page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728904.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Leave Facebook Groups
 
  Now your Pages are in order, it's time to go through your Facebook Groups. Head to the Groups icon in your Profile menu, which looks like three people in a blue circle. Tap the**Settings** gear icon and then select**Membership** in the**Manage Groups** section. Here, you'll be able to scroll through all the groups you're currently a member of and**Leave** any you no longer use.
 
 ![Find and Edit Groups you Follow on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728697.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Next, go back to your**Group Settings** , only this time select**Following** . Here, you'll see the groups you Follow but aren't a member of.**Unfollow** any groups you no longer want to see content from.
 
 ![Leaving Facebook Groups You are a member of](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728617.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Show or Hide Facebook Profile Sections
 
  While this won't clean up your Facebook feed, it will hide certain things from your Facebook profile. Head to your profile page and then tap**More** . Then select,**Manage Sections** . Here, you can choose the sections to show or hide on your Profile. De-selecting**Likes** and**Groups** will prevent your followers from finding the Groups and Pages you follow, but it won't change the content you see on your news feed.
@@ -110,27 +116,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 ![How to manage sections on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728566.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You can't hide your About, Friends, Following, or Photos profile sections, but you can choose who can see this profile information by changing your Facebook privacy settings.
 
 ![Hide or show Facebook Sections](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662728521.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Tailoring What You See on Facebook
 
  Cleaning up your Facebook profile will help you see more of what you care about on your Facebook feed. At the end of the day, the more people, pages, and groups you follow, the more content Facebook will try to throw at you. Hopefully, your Facebook is now a more accurate representation of the person you are now and no longer a memorial to the person you were when you first set up your profile.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +140,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-prime-strategies-for-constructing-mcc-homes-for-2024/"><u>[New] Prime Strategies for Constructing MCC Homes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ranking-top-10-srt-modifications-for-pc-and-macos/"><u>[Updated] 2024 Approved Ranking Top 10 SRT Modifications for PC & macOS</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-vr-action-cams-face-off-hero5-black-vs-yis-new-release/"><u>[Updated] VR Action Cams Face-Off Hero5 Black Vs. Yi's New Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-insider-tips-using-facebook-to-boost-professional-life/"><u>5 Insider Tips: Using Facebook to Boost Professional Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/archiving-antics-concealing-status-updates-and-stories/"><u>Archiving Antics: Concealing Status Updates and Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-crisis-global-social-platform-failure/"><u>Connectivity Crisis: Global Social Platform Failure</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-and-amending-social-groups-regulatory-frameworks/"><u>Creating & Amending Social Groups' Regulatory Frameworks</u></a></li>
+<li><a href="https://win-lab.techidaily.com/effective-techniques-for-creating-seamless-looping-videos/"><u>Effective Techniques for Creating Seamless Looping Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-novice-to-influencer-a-step-by-step-fb-live-blueprint-for-2024/"><u>From Novice to Influencer A Step-by-Step FB Live Blueprint for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-htc-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on HTC to Protect Your Individual Information</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-xiaomi-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Xiaomi Phone that is Locked?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-art-of-integrating-google-duo-with-your-gmail-experience/"><u>Mastering the Art of Integrating Google Duo with Your Gmail Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-durable-sony-w800-superior-performance-at-a-right-price/"><u>Unveiling the Durable Sony W800 - Superior Performance at a Right Price</u></a></li>
+</ul></div>
 

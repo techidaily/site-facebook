@@ -1,7 +1,7 @@
 ---
 title: "Responding To: Your Facebook Account's Security Crisis"
-date: 2024-08-28T03:12:14.290Z
-updated: 2024-08-29T03:12:14.290Z
+date: 2024-12-10T20:35:35.905Z
+updated: 2024-12-12T23:32:42.286Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 
  These are the most obvious signs something's wrong, but there are more subtle ones. If a Facebook hacker gets into your account, they will leave a trace.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Check Your Login Sessions
 
  Did someone log in from a location or device you're not familiar with?
@@ -48,9 +52,6 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
@@ -63,9 +64,6 @@ Other signs that your account may have been hacked include:
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
 Do this only if you're sure you can log back in.
@@ -84,9 +82,6 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
  If the hacker changed your email address, you should have received a message to the original address. Find this message because it contains a special link that will let you reverse the change and secure your account.
@@ -97,13 +92,14 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Use the**Try another way** link if you no longer have access to any of the offered email accounts. Facebook will offer to send a code to the phone numbers associated with your account. If none of those are viable, either, it's nearly impossible to recover your account.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -111,8 +107,9 @@ Do this only if you're sure you can log back in.
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
 
 ### 3\. Remove Suspicious Applications
@@ -125,15 +122,19 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Do Damage Control
 
@@ -152,20 +153,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do You Keep Your Facebook Account Safe?
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +173,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-wordsmith-whispers-picks-for-the-best-transcription-programs/"><u>[New] 2024 Approved Wordsmith Whispers Picks for the Best Transcription Programs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-shaky-to-steady-selecting-the-best-gimbals-for-your-drones/"><u>[Updated] From Shaky to Steady Selecting the Best Gimbals for Your Drones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-earning-as-a-video-game-geek/"><u>[Updated] In 2024, Earning as a Video Game Geek</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-revisiting-social-media-written-history-on-your-laptopsphones/"><u>[Updated] In 2024, Revisiting Social Media' Written History on Your Laptops/Phones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-highly-ranked-drone-selections-for-gopro-videos-and-shoots/"><u>2024 Approved Highly Ranked Drone Selections for GoPro Videos & Shoots</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-social-revolution-facebooks-rebranding-journey-leads-to-meta/"><u>A Social Revolution: Facebook’s Rebranding Journey Leads to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-surveillance-unauthorized-use-of-personal-devices/"><u>Digital Surveillance: Unauthorized Use of Personal Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-virtual-persona-picture-perfection-tips/"><u>Elevating Your Virtual Persona: Picture Perfection Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/enable-the-muted-color-palette-in-facebook/"><u>Enable the Muted Color Palette in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chats-step-into-the-ar-realm-with-messenger/"><u>Facebook Chats Step Into the AR Realm with Messenger</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-redmi-k70-pro-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Xiaomi Redmi K70 Pro?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-evade-facebooks-watchful-eye/"><u>How to Evade Facebook's Watchful Eye</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-motorola-moto-g14-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Motorola Moto G14 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-13-most-engaging-true-crime-audio-shows/"><u>Top 13 Most Engaging True Crime Audio Shows</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-symbolism-in-new-facebook-page-designations/"><u>Unpacking The Symbolism In New Facebook Page Designations</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-the-best-of-the-best-top-10-free-and-paid-android-video-editing-apps-for-2024/"><u>Updated The Best of the Best Top 10 Free and Paid Android Video Editing Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-101-comprehensively-understanding-russias-social-media/"><u>VK 101: Comprehensively Understanding Russia’s Social Media</u></a></li>
+</ul></div>
 

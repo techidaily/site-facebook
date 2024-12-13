@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-11-29T23:34:52.709Z
-updated: 2024-12-06T18:43:14.968Z
+date: 2024-12-06T23:47:38.913Z
+updated: 2024-12-12T21:05:10.300Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,15 +87,17 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-how-to-transfer-photos-and-videos-from-android-phone-to-an-iphone/"><u>[New] 2024 Approved How to Transfer Photos and Videos From Android Phone to an iPhone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-infusing-your-reels-with-soundscape-elements-for-2024/"><u>[New] Infusing Your Reels with Soundscape Elements for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-solitary-speaker-issue-solution-steps/"><u>[Updated] 2024 Approved Solitary Speaker Issue Solution Steps</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-step-into-the-world-of-vrecorder-downloading-and-using-for-2024/"><u>[Updated] Step Into the World of VRecorder Downloading and Using for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-reasoning-behind-feeding-on-facebook/"><u>Exploring the Reasoning Behind 'Feeding' On Facebook</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/guide-triggering-a-hard-reset-on-windows-boot-into-safe-mode/"><u>Guide: Triggering a Hard Reset on Windows - Boot Into Safe Mode</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrating-social-media-into-work-culture-effectively/"><u>Integrating Social Media Into Work Culture Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/ios-145-update-forces-facebook-to-reconsider-strategy/"><u>IOS 14.5 Update Forces Facebook to Reconsider Strategy</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/ssdwindows-1011/"><u>SSDクローンを行ったあとでもWindows 10・11が迅速に起動する方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfriend-suggested-people-on-social-media-hub/"><u>Unfriend Suggested People on Social Media Hub</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-customize-your-youtube-experience-with-altered-pace/"><u>[Updated] 2024 Approved Customize Your YouTube Experience with Altered Pace</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unseen-streamer-how-to-live-stream-privately-on-instagram/"><u>2024 Approved Unseen Streamer How to Live-Stream Privately on Instagram</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-poco-c55-frp-bypass-by-drfone-android/"><u>About Poco C55 FRP Bypass</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489220-9780907791676-changing-our-minds/"><u>Changing Our Minds | Free Book</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-a24-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy A24 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-reboot-to-renaissance-instagrams-potential-return/"><u>From Reboot to Renaissance: Instagram's Potential Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/metavote-the-us-endorsement-initiative-launches/"><u>Metavote – The U.S. Endorsement Initiative Launches</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-turn-artistry-professionally-crafted-valorant-game-imagery/"><u>Quick-Turn Artistry Professionally Crafted Valorant Game Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/revising-your-profiles-birthday-on-facebook/"><u>Revising Your Profile's Birthday on Facebook</u></a></li>
+<li><a href="https://win-community.techidaily.com/sdtop6-202-cups/"><u>SDカード修復ソフトウェアランキングTOP6 最新版(202 Cups) - コストなしと費用がかかる両方の選択!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-spectrum-of-ai-intelligence-what-difference/"><u>The Spectrum of AI Intelligence: What Difference?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-syncopated-future-facebook-and-spotifys-boombox-dream/"><u>Unveiling the Syncopated Future: Facebook and Spotify's Boombox Dream</u></a></li>
 </ul></div>
 

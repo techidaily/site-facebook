@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2024-12-04T19:02:21.736Z
-updated: 2024-12-06T17:36:40.760Z
+date: 2024-12-09T21:04:35.438Z
+updated: 2024-12-12T18:30:13.596Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Surveillance Capitalism?
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
@@ -48,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
@@ -60,19 +56,23 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Ease of Transactions
@@ -104,13 +104,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -145,18 +145,24 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-analyzing-video-platforms-vimeo-and-youtube/"><u>[New] 2024 Approved Analyzing Video Platforms Vimeo and YouTube</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/udio-clarity-10-pro-tips-for-high-quality-recordings-for-2024/"><u>[New] Audio Clarity 10 Pro Tips for High-Quality Recordings for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-optimize-your-youtube-content-for-maximum-viewership-and-engagement/"><u>[Updated] Optimize Your YouTube Content for Maximum Viewership and Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-amplify-your-online-presence-with-fb-groups/"><u>A Guide to Amplify Your Online Presence with FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
-<li><a href="https://facebook.techidaily.com/credibility-clash-who-wins-in-the-meta-blue-battle/"><u>Credibility Clash: Who Wins in the Meta-Blue Battle?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/download-facebook-links-for-free-online-for-2024/"><u>Download Facebook Links for FREE Online for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-framework-understanding-its-governance-entity/"><u>Facebook's Framework: Understanding Its Governance Entity</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-11-pro-max-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone 11 Pro Max In Different Conditionsin</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-whimsical-videoland-assessment/"><u>In 2024, Whimsical Videoland Assessment</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-opportunities-5-facebook-strategies-for-careers/"><u>Maximizing Opportunities: 5 Facebook Strategies for Careers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-room-and-pc-checklist-for-vr-for-2024/"><u>The Ultimate Room and PC Checklist for VR for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/us-enters-metas-verification-era/"><u>US Enters Meta's Verification Era</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-optimizing-vimeo-video-speed-rates/"><u>[New] In 2024, Optimizing Vimeo Video Speed Rates</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-essential-knowledge-for-effective-screensaver-use-in-mobile-applications/"><u>[Updated] 2024 Approved Essential Knowledge for Effective Screensaver Use in Mobile Applications</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1-fixing-the-blackout-a-comprehensive-guide-to-resolving-youtube-video-display-issues/"><u>1. Fixing the Blackout: A Comprehensive Guide to Resolving YouTube Video Display Issues</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-pcs-best-of-breed-ps1-emulation-titles/"><u>2024 Approved PC's Best of Breed PS1 Emulation Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inners-guide-to-elevating-auditory-experiences-on-youtube/"><u>A Beginner's Guide to Elevating Auditory Experiences on YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-free-webm-players-how-to-play-webm-video-files-for-2024/"><u>Best Free WebM Players How to Play WebM Video Files for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disruption-why-big-tech-faces-government-scrutiny/"><u>Decoding the Disruption: Why Big Tech Faces Government Scrutiny</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-operation-of-photodna-technology/"><u>Delving Into the Operation of PhotoDNA Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/disappearing-into-the-digital-ether-fb-messaging/"><u>Disappearing Into the Digital Ether: FB Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-8-key-functions-to-elevate-your-campaign-strategy/"><u>Discover 8 Key Functions to Elevate Your Campaign Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/discussing-the-case-for-allowing-users-to-have-separate-identities-within-a-singular-facebook-identity/"><u>Discussing the Case for Allowing Users to Have Separate Identities Within a Singular Facebook Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebook-id-vs-displayed-name-variations/"><u>Dissecting Facebook ID vs Displayed Name Variations</u></a></li>
+<li><a href="https://facebook.techidaily.com/diversify-chat-partners-integrate-new-individuals-into-fb-messenger/"><u>Diversify Chat Partners: Integrate New Individuals Into FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-purging-facial-data-impact-user-safety-on-facebook/"><u>Does Purging Facial Data Impact User Safety on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-process-for-detaching-spotify-from-facebook/"><u>Easy Process for Detaching Spotify From Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-iphone-x-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on iPhone X</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/mastering-luts-unlocking-color-grading-in-ar-and-vfx/"><u>Mastering LUTs Unlocking Color Grading in AR & VFX</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-android-call-issues-a-step-by-step-guide-to-restore-phone-functionality/"><u>Solving Android Call Issues: A Step-by-Step Guide to Restore Phone Functionality</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Motorola Moto G34 5G | Dr.fone</u></a></li>
 </ul></div>
 

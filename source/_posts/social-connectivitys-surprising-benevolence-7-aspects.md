@@ -1,7 +1,7 @@
 ---
 title: "Social Connectivity’s Surprising Benevolence: 7 Aspects"
-date: 2024-11-20T08:16:15.753Z
-updated: 2024-11-26T21:22:39.896Z
+date: 2024-12-09T00:11:12.274Z
+updated: 2024-12-12T22:02:43.548Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
  One of the biggest positives of social media is that it has never been easier to make friends. Just a decade ago, it was pretty tough to connect with people, unless you were the overly outgoing type able to make conversation with anyone and everyone at a party.
@@ -42,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
  All of us probably spend a little too long talking about ourselves on social media sites. Which is perfectly natural. We're sharing our lives---the ups and downs, the twists and turns---with people we think will care.
@@ -57,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
  You'll also be able to see for yourself that they made it out of the other side, that this issue didn't derail them, and that they are perhaps better for the experience. Which is another reason why social media is good for you.
 
 **Social media can act as a kind of group therapy session.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Social Media Allows for Speedy Communication
 
@@ -87,12 +91,16 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 **Social media has made the world a much smaller place.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Social Media Helps You Build Relationships
 
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -104,16 +112,12 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  **Social media can help foster friendships and more besides.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
@@ -131,10 +135,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 ## 7\. Social Media Helps You Find Common Ground
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -165,18 +165,21 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-stabilize-your-camera-without-buying-a-tripod-in-2024/"><u>[New] How to Stabilize Your Camera without Buying a Tripod, In 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-turning-tides-in-photographic-history-retrieval-on-facebook/"><u>[New] In 2024, Turning Tides in Photographic History Retrieval on Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-from-passive-to-active-earnings-with-instagram-expertise/"><u>[Updated] 2024 Approved From Passive to Active Earnings with Instagram Expertise</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boost-efficiency-with-10-leading-chatgpt-plugins/"><u>Boost Efficiency with 10 Leading ChatGPT Plugins</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/going-viral-made-simple-discover-10-ingenious-hacks-for-insta-success/"><u>Going Viral Made Simple: Discover 10 Ingenious Hacks for Insta Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Honor 70 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/inspiration-in-frames-top-20-creative-instagrams/"><u>Inspiration in Frames Top 20 Creative Instagrams</u></a></li>
-<li><a href="https://facebook.techidaily.com/managing-direct-linking-to-facebook-site/"><u>Managing Direct Linking to Facebook Site</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-photobooks-creating-collages-for-social-sharing/"><u>Mastering Photobooks: Creating Collages for Social Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-feed-essential-mobile-setting-tweaks-in-fb-app/"><u>Mastery Over Feed: Essential Mobile Setting Tweaks in FB App</u></a></li>
-<li><a href="https://facebook.techidaily.com/reduce-user-specific-promotional-messages-online/"><u>Reduce User-Specific Promotional Messages Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-sanctions-justifiable-trump-halt-not-eternal/"><u>Social Media Sanctions: Justifiable Trump Halt, Not Eternal</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-next-step-for-connectivity-might-fb-open-stores-locally-soon/"><u>The Next Step for Connectivity: Might FB Open Stores Locally Soon?</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-elevate-and-engage-the-ultimate-seo-playbook-for-podcasters-for-2024/"><u>[New] Elevate and Engage The Ultimate SEO Playbook for Podcasters for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-elevate-visuals-with-these-top-pixlr-tips/"><u>[New] In 2024, Elevate Visuals with These Top Pixlr Tips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-integrating-obs-studio-for-optimal-android-performance/"><u>[New] In 2024, Integrating OBS Studio for Optimal Android Performance</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-depth-recmaster-screen-capture-analysis/"><u>[New] In-Depth Recmaster Screen Capture Analysis</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-seamless-integration-of-multimedia-pip-video-tips-for-sierra-users/"><u>[New] Seamless Integration of Multimedia PIP Video Tips for Sierra Users</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-most-effective-android-apps-to-download-youtube-videos-for-2024/"><u>[Updated] The Most Effective Android Apps to Download YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/breakdown-of-essential-features-in-movie-maker-for-windows-8/"><u>Breakdown of Essential Features in Movie Maker for Windows 8</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-top-6-chatgpt-utilities-interact-with-your-files-doc-or-pdf/"><u>Discover the Top 6 ChatGPT Utilities: Interact with Your Files, Doc or PDF</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-the-hottest-content-on-facebook-lately/"><u>Find the Hottest Content on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-limit-who-can-see-your-facebook-posts-with-a-restricted-list/"><u>How to Limit Who Can See Your Facebook Posts With a Restricted List</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-or-plateauing-at-facebook/"><u>Maximizing Impact or Plateauing at Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/pandemic-misguidance-12-prominent-personalities/"><u>Pandemic Misguidance: 12 Prominent Personalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/process-to-notify-about-young-user-on-fb/"><u>Process to Notify About Young User on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-the-limits-of-visual-content-with-fbs-3d-photo-feature/"><u>Pushing the Limits of Visual Content with FB's 3D Photo Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-web-browsing-with-fewer-targeted-promos/"><u>Simplify Your Web Browsing with Fewer Targeted Promos</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo V30 Pro | Dr.fone</u></a></li>
 </ul></div>
 

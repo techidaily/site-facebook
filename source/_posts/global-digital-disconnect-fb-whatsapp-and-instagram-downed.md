@@ -1,7 +1,7 @@
 ---
 title: "Global Digital Disconnect: FB, WhatsApp, & Instagram Downed"
-date: 2024-10-15T01:06:31.933Z
-updated: 2024-10-20T18:42:36.774Z
+date: 2024-12-05T22:52:17.480Z
+updated: 2024-12-12T23:10:11.375Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -39,10 +43,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -62,10 +63,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -89,18 +87,17 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-snap-away-the-best-cams-for-novice-photographers/"><u>[New] Snap Away The Best Cams for Novice Photographers</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-youtubes-privacy-controls-for-video-accessibility/"><u>2024 Approved Navigating YouTube's Privacy Controls for Video Accessibility</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-secrets-of-effective-iptv-broadcasting-capture/"><u>2024 Approved Secrets of Effective IPTV Broadcasting Capture</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/amd-radeon-driver-update-download-and-installation-tips-for-windows/"><u>AMD Radeon Driver Update: Download and Installation Tips for Windows 지원</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-clear-guidelines-for-your-facebook-community/"><u>Crafting Clear Guidelines for Your Facebook Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-currency-with-creativity-the-influence-of-reels-on-monetary-gain/"><u>Creating Currency with Creativity: The Influence of Reels on Monetary Gain</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/degrees-matter-rotating-videos-for-social-glory-for-2024/"><u>Degrees Matter Rotating Videos for Social Glory for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/easy-tutorial-broadcasting-your-ps5-gaming-experience-online/"><u>Easy Tutorial: Broadcasting Your PS5 Gaming Experience Online</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhancing-gaming-experience-mastering-steams-space/"><u>Enhancing Gaming Experience: Mastering Steam's Space</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-how-to-create-amazing-mosaic-photo-collage/"><u>In 2024, How to Create Amazing Mosaic Photo Collage</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/next-gen-gaming-escapades-top-5-psvr-titles-for-the-future/"><u>Next-Gen Gaming Escapades Top 5 PSVR Titles for the Future</u></a></li>
-<li><a href="https://facebook.techidaily.com/smartwatch-pioneers-could-facebook-lead-with-two-detachable-cameras/"><u>Smartwatch Pioneers: Could Facebook Lead with Two Detachable Cameras?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-advanced-strategies-for-saving-vr-gameplay-moments/"><u>[New] In 2024, Advanced Strategies for Saving VR Gameplay Moments</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-art-of-video-blending-using-modes-mastery-for-2024/"><u>[New] The Art of Video Blending Using Modes Mastery for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-ballot-battlegrounds-prime-election-strategy-games/"><u>[Updated] In 2024, Ballot Battlegrounds Prime Election Strategy Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-social-media-twitters-guiding-principles-adapted-by-facebook/"><u>Harnessing Social Media: Twitter's Guiding Principles Adapted by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-my-information-including-phone-no-been-exposed-online/"><u>Has My Information, Including Phone No., Been Exposed Online?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-2020-iphone-se-stack-up-smart-buying-tips-for-tech-enthusiasts/"><u>How Does the 2020 iPhone SE Stack Up? Smart Buying Tips for Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-optimize-messenger-kids-with-its-sleep-mode-feature/"><u>How to Optimize Messenger Kids with Its Sleep Mode Feature</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-apple-iphone-13-mini-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfersync-notes-from-apple-iphone-14-pro-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer/Sync Notes from Apple iPhone 14 Pro to iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-ambiance-a-guide-to-user-removal-on-facebook/"><u>Securing Your Page's Ambiance: A Guide to User Removal on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/status-sovereignty-verified-vs-blue-who-rules-the-realm/"><u>Status Sovereignty: Verified Vs. Blue – Who Rules the Realm?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-reviews-of-the-j5-tactical-prov1-the-ultimate-in-durable-slimline-lighting-solutions/"><u>Top Reviews of the J5 Tactical ProV1 - The Ultimate in Durable, Slimline Lighting Solutions</u></a></li>
 </ul></div>
 

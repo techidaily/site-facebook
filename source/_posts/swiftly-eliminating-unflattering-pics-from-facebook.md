@@ -1,7 +1,7 @@
 ---
 title: Swiftly Eliminating Unflattering Pics From Facebook
-date: 2024-08-28T03:12:46.544Z
-updated: 2024-08-29T03:12:46.544Z
+date: 2024-12-10T22:54:10.225Z
+updated: 2024-12-13T00:00:00.286Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
  Read on to know about the top online tools that can help you remove your awkward social media posts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1. BrandYourself
 
 ![A visual showing the homepage of BrandYourself](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-BrandYourself.jpeg)
@@ -29,9 +33,17 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
  Its image recognition technology can also identify images containing offensive gestures and whatnot. Apart from flagging the previous posts, it also alerts you if any damaging content appears online from your profiles.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2. Scrubber
 
 ![A visual for Scrubber's home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Scrubber.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The tool empowers you with its features to find out all the embarrassing posts, comments, and pictures you have published on your[social media accounts](https://www.makeuseof.com/free-social-media-management-apps/) . Moreover, it can detect the fake news shared on your profiles and save you from awkwardness.
 
@@ -39,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
  While it doesn’t remove any content by itself, it provides a report flagging content containing profanity, innuendo, and mention of drugs or alcohol.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## 3. Redact
 
 ![An image of the website homepage of Redact](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Redact.jpeg)
@@ -55,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
  You can wipe out everything by deletion. Or, you may customize the items through keyword, content category, or sentiment. It also offers the preview mode that you can use to double-check before deletion.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. TweetDelete
 
 ![An image representing the TweetDelete homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-TweetDelete.jpeg)
@@ -67,12 +77,13 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
  For free, it lets you delete the previous 3,200 likes. Moreover, it can also delete tweets containing attachments.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Facebook's Manage Posts Feature
 
 ![Image showing the Manage Posts section on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Facebook.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Manage Activity feature on Facebook is a great way to clean up your profile by archiving or deleting posts in bulk. It lets you revisit, edit, and delete any post or comment you posted since joining the platform. To delete an old post on Facebook, follow these steps:
 
@@ -90,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
 ![An image showing how to delete posts on Twitter](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Twitter.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Using the delete feature on Twitter, you can manually delete unwanted tweets. Follow these simple steps to remove old tweets that you don't want in your profile anymore.
 
 1. Go to your Twitter profile and browse through your posts.
@@ -101,9 +116,6 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
  If you want to start afresh with your current username, create another account with a temporary username. Then, switch the username and delete your old account.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Manage Shared Content in LinkedIn
 
  LinkedIn is the platform for professional connections and[personal branding](https://www.makeuseof.com/personal-branding-tips/) . So, you should be extra careful about what you post or share here. To manually check and delete any offensive post you may have shared earlier, follow these steps one by one:
@@ -116,18 +128,6 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 6. Select the**Delete post** option.
 7. Click on**Delete** again to confirm your action.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8. Social Erase
 
 ![An image of the home page of Social Erase](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Social-Erase.jpeg)
@@ -138,23 +138,17 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
 
  For this extension to perform, the default language of your Facebook and Twitter profile should be English.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Fix Your Social Media Profiles
 
  Active social media users tend to post and share various things online, and some of those might be unprofessional. With the tools, extensions, and features mentioned here, you can remove such posts and make your social media profile look more professional.
 
  You may also want to use robust tools for scheduling posts on your social accounts, which will help you build your presence without needing to spend too much time online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +157,20 @@ thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-elite-web-based-recording-tools/"><u>[New] In 2024, Elite Web-Based Recording Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-samsungs-photography-toolkit/"><u>[Updated] Exploring Samsung's Photography Toolkit</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-streamline-your-media-experience-add-subtitles-in-windows-media-player/"><u>2024 Approved Streamline Your Media Experience Add Subtitles in Windows Media Player</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-your-content-reach-on-social-medias-largest-platform/"><u>Amplifying Your Content Reach on Social Media's Largest Platform</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-realme-narzo-n55-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Realme Narzo N55 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-playful-teasing-on-social-media-wisely/"><u>Navigating Playful Teasing on Social Media Wisely</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-the-guide-to-learning-all-the-details-about-voice-cloning/"><u>New The Guide to Learning All the Details About Voice Cloning</u></a></li>
+<li><a href="https://facebook.techidaily.com/seek-out-fbs-freshly-streamed-videos/"><u>Seek Out FB’s Freshly Streamed Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streamline-your-media-convert-fb-videos-to-mp4-hd1080p-for-free-for-2024/"><u>Streamline Your Media - Convert FB Videos to MP4 HD/1080P for Free for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/superior-mkv-reader-laptoptablet-edition/"><u>Superior MKV Reader (Laptop/Tablet Edition)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-dark-side-of-ai-evaluating-the-threat-of-cyber-attacks-using-tools-like-chatgpt-on-bankingpersonal-computers/"><u>The Dark Side of AI: Evaluating the Threat of Cyber Attacks Using Tools Like ChatGPT on Banking/Personal Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-maintains-full-usability-despite-non-acceptance-of-policies/"><u>WhatsApp Maintains Full Usability Despite Non-Acceptance of Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-allows-per-user-more-than-one-profile-an-analysis-of-benefits/"><u>Why Facebook Allows Per User, More Than One Profile: An Analysis of Benefits</u></a></li>
+</ul></div>
 

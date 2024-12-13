@@ -1,7 +1,7 @@
 ---
 title: Unlocking a Safer Social Media Experience with Facebook’s Streamlined Privacy Control
-date: 2024-11-20T09:15:05.889Z
-updated: 2024-11-27T12:08:17.629Z
+date: 2024-12-05T22:59:11.035Z
+updated: 2024-12-12T16:48:30.112Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Access the New Facebook Privacy Center
@@ -38,20 +38,20 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
@@ -73,7 +73,7 @@ Here's how:
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
@@ -82,10 +82,6 @@ Here's how:
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
  You can also learn more about how to clean up your profile, and how to respond to unknown friend requests and followers by clicking on the appropriate option.
@@ -93,6 +89,10 @@ Here's how:
  To return to the main menu and explore other privacy settings, simply click on**Privacy Center home** , go to your preferred category and click**Read more** .
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why You Should Use Facebook's Privacy Center
 
@@ -127,19 +127,22 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-8-truly-effective-video-marketing-strategies/"><u>[Updated] 2024 Approved Exploring 8 Truly Effective Video Marketing Strategies</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-ultimate-4-facebook-film-compiler/"><u>[Updated] 2024 Approved Ultimate 4 Facebook Film Compiler</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-channels-templates-at-no-charge/"><u>[Updated] Elevate Your Channels - Templates at No Charge!</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-from-concept-to-reel-an-extensive-guide-to-video-editing-with-vivacut-2024/"><u>[Updated] From Concept to Reel An Extensive Guide to Video Editing with VivaCut 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-nokia-c22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/easy-steps-for-installing-and-operating-symantec-endpoint-backup-and-recovery-suite/"><u>Easy Steps for Installing & Operating Symantec Endpoint Backup & Recovery Suite</u></a></li>
-<li><a href="https://facebook.techidaily.com/ending-fb-surveillance-using-off-facebook-workflow/"><u>Ending FB Surveillance - Using Off-Facebook Workflow</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-innovative-subscription-concept-outshines-tech-industry-standards/"><u>Facebook’s Innovative Subscription Concept Outshines Tech Industry Standards</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-music-and-networks-facebooks-boombox-project-with-spotify/"><u>Future of Music & Networks: Facebook's Boombox Project with Spotify</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-sudden-disconnection-from-facespace/"><u>Overcoming Sudden Disconnection From Facespace</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-the-hp-omen-obelisk-superior-gaming-experience-at-unbeatable-prices/"><u>Review of the HP OMEN Obelisk: Superior Gaming Experience at Unbeatable Prices</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-visual-impact-crafting-fb-backgrounds/"><u>Social Media Visual Impact: Crafting Fb Backgrounds</u></a></li>
-<li><a href="https://fox-info.techidaily.com/the-art-of-describing-your-podcast-with-flair-for-2024/"><u>The Art of Describing Your Podcast with Flair for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/top-screencast-software-on-the-market-bandicam-vs-camtasia/"><u>Top Screencast Software on the Market Bandicam Vs. Camtasia</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/13676214-new-in-2024-boost-channels-to-partner-status-in-under-90-days-start-now/"><u>[New] In 2024, Boost Channels to Partner Status in Under 90 Days, Start Now!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-critical-essentials-top-10-terraria-upgrades/"><u>[New] In 2024, Critical Essentials Top 10 Terraria Upgrades</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-soundwaves-compreeved-websites-for-skype-audio-for-2024/"><u>[New] The Soundwaves Compreeved Websites for Skype Audio for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-prosperity-startups-the-13-least-experience-demanding-reddit-techniques/"><u>[Updated] Prosperity Startups The 13 Least Experience-Demanding Reddit Techniques</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-communication-mastery-for-impactful-interviews/"><u>2024 Approved Communication Mastery For Impactful Interviews</u></a></li>
+<li><a href="https://win-online.techidaily.com/efficient-solutions-to-resolve-scanner-issues-a-guide-by-yl-software/"><u>Efficient Solutions to Resolve Scanner Issues: A Guide by YL Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-powerful-path-to-flawless-photo-edits-mastering-background-eraser-use/"><u>In 2024, The Powerful Path to Flawless Photo Edits Mastering Background Eraser Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-our-social-space-choices/"><u>Protecting Our Social Space Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-time-quest-navigating-a-no-facebook-life/"><u>Quiet Time Quest: Navigating a No-Facebook Life</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-8-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 8 Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-detox-the-journey-begins/"><u>Social Media Detox: The Journey Begins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-perilous-path-of-proliferating-online-identities/"><u>The Perilous Path of Proliferating Online Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-rules-behind-facebooks-whitelist/"><u>Understanding the Rules Behind Facebook's Whitelist</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-this-years-biggest-tech-faux-pas/"><u>Unpacking This Year's Biggest Tech Faux Pas</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-process-for-securityfacebookmailcom-as-a-safe-fb-account/"><u>Validation Process for @security@facebookmail.com as a Safe FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-social-networking-take-a-naptime/"><u>Why Did Social Networking Take a Naptime?</u></a></li>
 </ul></div>
 

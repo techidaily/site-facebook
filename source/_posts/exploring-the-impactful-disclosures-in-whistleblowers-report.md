@@ -1,7 +1,7 @@
 ---
 title: Exploring The Impactful Disclosures in Whistleblower's Report
-date: 2024-08-28T03:13:16.892Z
-updated: 2024-08-29T03:13:16.892Z
+date: 2024-12-10T19:15:59.592Z
+updated: 2024-12-12T23:20:52.781Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,19 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7 Key Revelations From the Facebook Papers
 
@@ -43,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -59,8 +64,17 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-changing-your-online-profile-password/"><u>A Step-by-Step Guide to Changing Your Online Profile Password</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boost-your-efficiency-quotient-with-these-4-advanced-chatgpt-tactics/"><u>Boost Your Efficiency Quotient with These 4 Advanced ChatGPT Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-operation-principles-behind-photodna/"><u>Discovering the Operation Principles Behind PhotoDNA</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-embracing-100-clean-renewable-energy/"><u>FB Embracing 100% Clean, Renewable Energy</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-get-the-latest-amd-vega-cu-drivers-on-windows-easy-steps/"><u>How to Get the Latest AMD Vega Cu Drivers on Windows - Easy Steps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-jovial-jingles-a-compilation-of-easy-download-links/"><u>In 2024, Jovial Jingles A Compilation of Easy Download Links</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-machine-intelligence-with-openai/"><u>Mastering Machine Intelligence with OpenAI</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-7-plus-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 7 Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insight-into-vk-russias-social-network-explained/"><u>The Insight Into VK: Russia's Social Network Explained</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/tips-to-restore-functionality-in-frozen-obs-screen-for-2024/"><u>Tips to Restore Functionality in Frozen OBS Screen for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

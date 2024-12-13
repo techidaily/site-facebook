@@ -1,7 +1,7 @@
 ---
 title: Essential Tips for Overcoming Top 11 Facebook Glitches
-date: 2024-08-28T03:07:39.303Z
-updated: 2024-08-29T03:07:39.303Z
+date: 2024-12-10T19:28:21.520Z
+updated: 2024-12-12T21:47:09.807Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,17 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 
 ![Facebook Profile and Tagging settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-profile-and-tagging-2023.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### If Facebook Tagging Isn't Working
 
  If it seems like Facebook tagging isn't working, meaning that typing @ followed by someone's name doesn't function, the reason is likely that your friend disabled this option on their account. Try tagging someone else and see if that works. If you still have problems, refer to sections #10 and #11 below for tips on troubleshooting deeper Facebook errors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Mute Excessive Posters on Facebook
 
@@ -49,6 +57,10 @@ We all know someone who posts all the time on Facebook:
  To[unfollow someone on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) , visit their profile page. On the right side below their cover photo, you should see a box that says**Friends** . Click that, then select**Unfollow** .
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
@@ -68,6 +80,10 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Manage Favorites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Manage-Favorites.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Opt Out of Targeted Ads on Facebook
 
  Facebook makes most of its money from advertising. Thus, the platform spends a lot of time trying to serve you the most relevant ads in the hopes you'll interact with them. By default,[Facebook tracks you everywhere you go](https://www.makeuseof.com/tag/facebook-tracking-stop/) and uses your browsing habits to influence what ads you see. You can opt out of these personalized ads and see more general ones based on your public characteristics.
@@ -76,9 +92,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Meta Account Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/meta-account-ad-settings.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
  Here, you'll see a few categories. Choose**No** under**Activity information from ad partners** and Facebook won't use your activity on other sites to show ads on Facebook.
 
  Open the**Categories used to reach you** and you can prevent Facebook from using information like your employer, education, and relationship status to show ads. Pick**Other Categories** at the bottom to see what Facebook thinks you're interested in; choose**Remove** for any topics you don't want to influence ads.
@@ -87,9 +100,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Advertising List Info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Advertising-List-Info.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Setting**Social interactions** to**Only Me** prevents Facebook from using pages that you like to show ads to your friends.
 
  Finally, if you disable the slider in**Ads shown off of Meta** , websites that use Meta's ad services can't use your profile to affect the ads you see outside of Facebook.
@@ -106,18 +116,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Change Audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Change-Audience.png)
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  To keep someone from seeing your posts all the time, you can[add them to your**Restricted** list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) . People on this list won't see anything you post unless it's set to**Public** or you tag them in it. To add someone to this list, visit their page, select the**Friends** button, and then click**Edit Friend List** . Scroll down and click the**Restricted** list.
 
  In this panel, you can also add that person to the**Close Friends** group. This list also provides an easy way to share posts exclusively with your most trusted friends, and is an option in the audience selector.
@@ -132,21 +130,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Block Annoying App Invites
 
  Facebook features hundreds of games, nearly all of them designed to waste your time and//or take your money. If you're sick of friends pleading for extra lives in Facebook games, you can[block all Facebook invites and requests](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) by game or by person.
@@ -158,8 +141,9 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Change the Facebook Interface to Your Liking
 
  You can't change many interface elements of Facebook through the default options. If you want to take your Facebook customization to the next level, you'll need to install[a Facebook-transforming browser extension](https://www.makeuseof.com/tag/15-extensions-transform-facebook-experience/) .
@@ -171,8 +155,9 @@ We all know someone who posts all the time on Facebook:
 ![Social Fixer Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Social-Fixer-Menu.png)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Social Fixer offers too many options to cover here, but the highlights include:
 
 * Automatically enable**Most Recent** view in your News Feed (**General** tab).
@@ -184,17 +169,14 @@ We all know someone who posts all the time on Facebook:
 
  Dig into the Social Fixer options and you'll find many more ways to change the most annoying parts of Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Solutions for Common Facebook Errors
 
  To wrap up, let's go over some tips for common Facebook errors you might run into.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 9\. You Forgot Your Facebook Password
 
  Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on[recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And[if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
@@ -220,22 +202,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  When you get messages like this, make sure you've done basic Facebook troubleshooting too. Refresh the page, try logging out and back in, and make sure you don't have a network issue, as described above. If you're comfortable with it, try asking a mutual friend if they have the same problem. This can confirm your suspicions that you've been blocked or otherwise restricted.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Fix Facebook Problems Easily
 
  We've shared fixes for some of the most common Facebook problems and errors. By flipping the right settings or using powerful extensions, you can make Facebook a more pleasant experience for yourself.
 
  There are lots of other aspects of Facebook to master, so make sure you know how to put its various elements to use.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -244,4 +224,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-customize-your-screenscape-google-meets-dynamic-background-switch/"><u>[New] 2024 Approved Customize Your Screenscape Google Meet's Dynamic Background Switch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-htcs-masterstroke-in-immersive-technology-a-deep-dive-into-vive/"><u>[Updated] In 2024, HTC's Masterstroke in Immersive Technology - A Deep Dive Into Vive</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-silencing-sound-obs-audio-solution/"><u>2024 Approved Silencing Sound OBS Audio Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-different-day-without-daily-updates-on-fb/"><u>A Different Day Without Daily Updates on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/alleged-shutdown-due-to-ethical-commerce-representation/"><u>Alleged Shutdown Due to Ethical Commerce Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/breakthrough-findings-from-whistleblowers-fb-data/"><u>Breakthrough Findings From Whistleblower's FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-of-private-social-networks/"><u>Cracking the Code of Private Social Networks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quashing-games-recommendations-on-win11-systems/"><u>Quashing Games Recommendations on Win11 Systems</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-guide-to-linksys-wrt3200acm-why-its-a-prime-contender-amongst-best-open-source-routers/"><u>The Ultimate Guide to Linksys WRT3200ACM - Why It's a Prime Contender Amongst Best Open-Source Routers</u></a></li>
+</ul></div>
 

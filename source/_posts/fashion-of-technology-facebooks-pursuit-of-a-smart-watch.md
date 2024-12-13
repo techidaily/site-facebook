@@ -1,7 +1,7 @@
 ---
 title: "Fashion of Technology: Facebook’s Pursuit of a Smart Watch"
-date: 2024-11-29T20:28:52.974Z
-updated: 2024-12-06T20:22:05.077Z
+date: 2024-12-09T23:22:05.199Z
+updated: 2024-12-12T18:44:29.924Z
 tags:
   - facebook
 categories:
@@ -28,15 +28,15 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
 ![smartwatch-and-hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-and-hand.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
 ### A Dual-Camera System
 
  The Facebook smartwatch will likely have two cameras. The front camera allows users to make video calls. While the other camera, on the back, can be detached from the steel frame and used for capturing images and videos. The rear 1080p camera with autofocus allows you to capture high-quality images.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Integration with Facebook Apps
 
@@ -44,25 +44,25 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### LTE Connectivity
 
  Facebook wants its watch to work without the need of pairing it with any smartphone. To that end, Facebook is partnering up with US-based wireless service providers to provide LTE connectivity to its new smartwatch. That partnership means that you’d be able to buy the watch from a wireless carrier's store.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fitness Tracking
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
  Rumors also suggest that the watch allows integration with apps and devices from fitness companies like Peloton. As the device will have LTE connectivity, you would be able to leave your phone behind when working out or jogging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price, Launch Date, and News
 
@@ -74,16 +74,12 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the[AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Competition and Concerns
 
 ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
@@ -91,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
  One of the key reasons Apple watches have done so well is their privacy protection policies. Wearables collect and store your personal and health information, and this is where privacy greatly matters. Considering Facebook's record of user data handling, it’s interesting to see if Facebook can convince people to buy its new smartwatch.
 
  Related:[Should You Trust Facebook With Oculus Quest 2 Privacy?](https://www.makeuseof.com/should-you-trust-facebook-with-oculus-quest-2-privacy/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Is Getting More Into the Hardware Race
 
@@ -113,21 +113,22 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-effortlessly-edit-images-using-snapseed-tips/"><u>[New] 2024 Approved Effortlessly Edit Images Using Snapseed Tips</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ontinuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[New] Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unveiling-the-lone-user-review-of-future-printer-world/"><u>2024 Approved Unveiling the Lone User Review of Future Printer World</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-live-broadcasting-demystified/"><u>2024 Approved YouTube Live Broadcasting Demystified</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/capturing-every-angle-not-just-a-single-plane-for-2024/"><u>Capturing Every Angle, Not Just a Single Plane for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/le-chronicles-recording-7-amusing-video-adventures-for-2024/"><u>Chortle Chronicles Recording 7 Amusing Video Adventures for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-excess-enhancing-your-feed-focus/"><u>Cut the Excess: Enhancing Your Feed Focus</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-era-chronicle-facebooks-2004-beginnings-to-meta-future/"><u>Digital Era Chronicle: Facebook’s 2004 Beginnings to Meta Future</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-in-depth-app-examination-azs-recording-and-alternatives/"><u>In 2024, In-Depth App Examination - AZ's Recording & Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
-<li><a href="https://win11.techidaily.com/masking-wi-fi-presence-on-windows-systems/"><u>Masking Wi-Fi Presence on Windows Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-standards-right-to-suspend-trump-with-time-capsule/"><u>Social Networking Standards: Right to Suspend Trump, With Time Capsule</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-on-telegram-from-facebook-outage-a-study/"><u>The Impact on Telegram From Facebook Outage: A Study</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-iphone-data-recovery-solutions-protect-your-memories-now/"><u>Ultimate iPhone Data Recovery Solutions - Protect Your Memories Now</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-perfecting-motion-capture-a-guide-to-gopro-time-lapse-photos/"><u>[Updated] 2024 Approved Perfecting Motion Capture A Guide to GoPro Time Lapse Photos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-time-saving-strategies-mastering-video-playback-speed/"><u>2024 Approved Time-Saving Strategies Mastering Video Playback Speed</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-realme-gt-3-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Realme GT 3 Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-secure-communication-incorrances-of-2fa-in-mail-applications/"><u>Embracing Secure Communication: Incorrances of 2FA in Mail Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-an-audio-hub-for-podcasts-live-audio-rooms-and-more/"><u>Facebook Launches an Audio Hub for Podcasts, Live Audio Rooms, and More</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-enhanced-control-over-oculus-go-the-what-and-why-for-users/"><u>Facebook's Enhanced Control Over Oculus Go: The What and Why for Users</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-6-devices-entirely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 6 Devices Entirely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-contrast-rich-interface-on-facebook-app/"><u>Guide to Contrast-Rich Interface on Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-decide-what-to-allow/"><u>How Does Facebook Decide What to Allow?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-xiaomi-civi-3-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Xiaomi Civi 3 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-identity-shift-on-social-networks-via-photo-change/"><u>Mastery of Identity Shift on Social Networks via Photo Change</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-your-silent-pc-issue-fixing-the-sound-glitch-in-windows-11/"><u>Solve Your Silent PC Issue: Fixing the Sound Glitch in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-social-media-posts-effectively/"><u>Timing Your Social Media Posts Effectively</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-4-exceptional-artificial-intelligence-stories/"><u>Unveiling 4 Exceptional Artificial Intelligence Stories</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-transform-your-video-footage-shape-size-and-more/"><u>Updated In 2024, Transform Your Video Footage Shape, Size, and More</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-vivo-y100t-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Vivo Y100t Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-delays-implementation-of-updated-privacy-agreement/"><u>WhatsApp Delays Implementation of Updated Privacy Agreement</u></a></li>
 </ul></div>
 

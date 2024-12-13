@@ -1,7 +1,7 @@
 ---
 title: Guiding Principles for Neutral Social Media Pages
-date: 2024-10-14T22:28:55.028Z
-updated: 2024-10-20T16:42:43.186Z
+date: 2024-12-07T21:56:29.078Z
+updated: 2024-12-12T19:41:27.876Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook to Remove Sensitive Information
 
  Facebook gathers plenty of data from users and has extensive profile fields that allow users to link to family members, show their job history, and flag major life milestones. However, the social media site has attracted controversy in the past for how advertisers were able to use more sensitive data about users to target ads.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
  But the notice has also started appearing to more users, including MUO staff. Depending on what sensitive information you have on your profile, the notice may differ. However, it confirms that the information will be removed starting 1 December 2022\. Fields that will be removed include**Address** ,**Political Views** ,**Religious Views** , and**Interested In** .
 
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
 
@@ -45,16 +53,7 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -76,17 +75,24 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-premium-net-repositories-ringtones-collection-hub/"><u>2024 Approved Premium Net Repositories Ringtones Collection Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/concealing-comments-securing-your-social-media-content/"><u>Concealing Comments: Securing Your Social Media Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-why-freedom-from-social-is-more-liberating-than-you-think/"><u>Discover Why Freedom From Social Is More Liberating Than You Think</u></a></li>
-<li><a href="https://facebook.techidaily.com/establishing-a-legal-tone-setting-boundaries-on-fb-platforms/"><u>Establishing a Legal Tone: Setting Boundaries on FB Platforms</u></a></li>
-<li><a href="https://games-able.techidaily.com/evaluating-playstation-plus-its-cost-and-perks/"><u>Evaluating PlayStation Plus: Its Cost and Perks</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-in-depth-look-at-cybercam-capturer/"><u>In 2024, In-Depth Look at CyberCam Capturer</u></a></li>
-<li><a href="https://video-capture.techidaily.com/joint-recording-of-webcam-and-desktop-display/"><u>Joint Recording of Webcam and Desktop Display</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-windows-11-moving-vintage-games-into-picture-storage/"><u>Navigating Windows 11: Moving Vintage Games Into Picture Storage</u></a></li>
-<li><a href="https://android-frp.techidaily.com/sniffing-success-fun-for-you-and-your-pet/"><u>Sniffing Success: Fun For You and Your Pet</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-case-for-users-creating-several-personal-profiles-in-a-facebook-snapshot/"><u>The Case for Users Creating Several Personal Profiles in a Facebook Snapshot</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-steps-resolve-your-wi-fi-connection-issues-quickly/"><u>Troubleshooting Steps: Resolve Your Wi-Fi Connection Issues Quickly</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/uncovering-the-secrets-of-windows-iscsi-initiator-accessibility/"><u>Uncovering the Secrets of Windows iSCSI Initiator Accessibility</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-strategies-for-sustainable-income-via-product-based-videos/"><u>[New] Strategies for Sustainable Income via Product-Based Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-overcoming-low-light-footage-issues-on-your-iphone/"><u>2024 Approved Overcoming Low-Light Footage Issues on Your iPhone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-honor-magic-6-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Honor Magic 6</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/efficient-tiktok-twitter-crossposting-guide-for-2024/"><u>Efficient TikTok-Twitter Crossposting Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-secrecy-in-fb-messaging-system/"><u>Evaluating Secrecy in Fb Messaging System</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-falsehoods-facebook-issues-heavier-penalties/"><u>Fighting Falsehoods, Facebook Issues Heavier Penalties</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-15-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-iphone-14-pro-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and iPhone 14 Pro without Apple Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-deceptive-duplicate-account-practices/"><u>Identifying Deceptive Duplicate Account Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-reasons-for-multiple-personal-profiles-being-allowed-on-one-facebook-account/"><u>Investigating the Reasons for Multiple Personal Profiles Being Allowed on One Facebook Account</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/los-mas-eficientes-convertidores-h265-para-mac-lo-ultimo-en-seo-de-2023/"><u>Los Más Eficientes Convertidores H.265 Para Mac: Lo Último en SEO De 2023</u></a></li>
+<li><a href="https://fox-info.techidaily.com/navigating-youtubes-photo-publishing-for-2024/"><u>Navigating YouTube's Photo Publishing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-gear-on-facebook-intro-to-ray-ban-stories-and-their-price-tag/"><u>New Gear on Facebook: Intro to Ray-Ban Stories and Their Price Tag</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-10-unveiled-beginners-guide-to-messaging-prowess/"><u>Room 10 Unveiled: Beginner’s Guide to Messaging Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls.</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-commendations-on-social-media-hidden-likes-strategy/"><u>Silent Commendations on Social Media: Hidden Likes Strategy</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/troubleshooting-audio-issues-how-a-faulty-sound-card-could-be-the-culprit-tips-by-yl-software-experts/"><u>Troubleshooting Audio Issues: How a Faulty Sound Card Could Be the Culprit - Tips by YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-enigma-of-fbs-secretive-users/"><u>Unraveling the Enigma of Fb's Secretive Users</u></a></li>
 </ul></div>
 

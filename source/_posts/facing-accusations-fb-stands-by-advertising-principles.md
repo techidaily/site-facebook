@@ -1,7 +1,7 @@
 ---
 title: Facing Accusations, FB Stands by Advertising Principles
-date: 2024-11-21T05:34:36.982Z
-updated: 2024-11-26T19:52:26.873Z
+date: 2024-12-11T21:32:50.558Z
+updated: 2024-12-12T19:35:23.651Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Signal Sees Its Facebook Ad Account Disabled
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Responds to Signal's Move
@@ -53,7 +53,7 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Signal's Ads You’ll Never See on Instagram
@@ -65,7 +65,7 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -93,17 +93,24 @@ Facebook responded with the following statement to the media:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-setting-the-price-for-higher-youtube-engagement/"><u>[New] Setting the Price for Higher YouTube Engagement</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-syncing-sound-with-visuals-on-facebook-essential-guide/"><u>[Updated] 2024 Approved Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-smart-pick-android-apps-for-large-video-meetings-for-2024/"><u>[Updated] Smart Pick Android Apps for Large Video Meetings for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/dramatic-lighting-in-hdr-portraits-techniques-and-tips-for-2024/"><u>Dramatic Lighting in HDR Portraits Techniques and Tips for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-sharing-experience-move-fb-content-to-top-3-apps-with-ease/"><u>Enhancing Sharing Experience: Move Fb Content to Top 3 Apps with Ease</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-lava-blaze-curve-5g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Lava Blaze Curve 5G Data? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/is-the-budget-friendly-mobvoi-ticwatch-e2-worth-your-money-a-comprehensive-review/"><u>Is the Budget-Friendly Mobvoi TicWatch E2 Worth Your Money? A Comprehensive Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/proper-method-to-disconnect-spotify-on-facebook/"><u>Proper Method to Disconnect Spotify on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-facebook-hoaxes-detect-14-standard-deceptions/"><u>Stop Facebook Hoaxes: Detect 14 Standard Deceptions</u></a></li>
-<li><a href="https://windows11.techidaily.com/unraveling-windows-network-confusion-code-0x800704b3/"><u>Unraveling Windows' Network Confusion - Code: 0X800704B3</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-did-sheryl-sandberg-do-at-facebook/"><u>What Did Sheryl Sandberg Do at Facebook?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-convert-your-instagram-followers-into-earnings/"><u>[New] 2024 Approved How to Convert Your Instagram Followers Into Earnings</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-from-novice-to-pro-mastering-lenovos-capture-capabilities-for-2024/"><u>[New] From Novice to Pro Mastering Lenovo's Capture Capabilities for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-hardware-hurdles-whats-necessary-for-big-sur-in-2024/"><u>[Updated] Hardware Hurdles What's Necessary for Big Sur, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-best-buys-detailed-analysis-of-top-6-hdmi-monitors/"><u>2024 Approved Best Buys Detailed Analysis of Top 6 HDMI Monitors</u></a></li>
+<li><a href="https://facebook.techidaily.com/f8-conference-to-unveil-facebook-trump-policy/"><u>F8 Conference to Unveil Facebook Trump Policy</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/important-warning-the-hidden-dangers-of-online-mkvwebm-converters-find-out-before-you-convert/"><u>Important Warning: The Hidden Dangers of Online MKV/WebM Converters - Find Out Before You Convert!</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-14-pro-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 14 Pro with iTunes | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-zte-axon-40-lite-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From ZTE Axon 40 Lite To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-palestinian-hackers-disrupt-facebooks-star-system/"><u>Pro-Palestinian Hackers Disrupt Facebook's Star System</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-personal-data-signs-of-fb-security-issues/"><u>Protecting Personal Data: Signs of FB Security Issues</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211341292-9798869330390-sacred-sexuality/"><u>Sacred Sexuality | Free Book</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/secrets-of-fbx-game-recorder-unveiled/"><u>Secrets of FBX Game Recorder Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-hd-media-effective-facebook-mobile-sharing/"><u>Streamline HD Media: Effective Facebook Mobile Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-charge-of-your-data-exposure-on-facebook-with-the-new-privacy-interface/"><u>Take Charge of Your Data Exposure on Facebook With the New Privacy Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-safeguard-decoding-9-stealthy-hack-signals/"><u>The Social Safeguard: Decoding 9 Stealthy Hack Signals</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-30-essential-smarts-for-online-communication-mastery/"><u>Top 30 Essential SMARTs for Online Communication Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-social-media-figures-spreading-covid-fables/"><u>Top Social Media Figures Spreading COVID Fables</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-photodnas-methodology-for-image-verification/"><u>Unpacking PhotoDNA's Methodology for Image Verification</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/yl-computings-ford-f-250-background-images-and-decals/"><u>YL Computing's Ford F-250 Background Images & Decals</u></a></li>
 </ul></div>
 

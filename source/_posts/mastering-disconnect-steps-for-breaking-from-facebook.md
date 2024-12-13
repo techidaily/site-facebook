@@ -1,7 +1,7 @@
 ---
 title: "Mastering Disconnect: Steps for Breaking From Facebook"
-date: 2024-08-28T03:09:26.639Z
-updated: 2024-08-29T03:09:26.639Z
+date: 2024-12-10T21:48:33.669Z
+updated: 2024-12-12T18:33:05.456Z
 tags:
   - facebook
 categories:
@@ -31,11 +31,19 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
  In addition, the following things happen when you deactivate your Facebook account...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### No Visibility
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
  Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### No Notifications
 
@@ -44,8 +52,9 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
  You can even opt out of or adjust receiving email notifications for a deactivated account. This gives you time to relax and relieves the stress of opening the app every now and then.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Adjusted Messages and Comments
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
@@ -56,35 +65,28 @@ thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed9
 
  Taking time off from Facebook seems like an effective stress reliever, right? But you should follow the proper steps. Here is how you can deactivate your Facebook account through the mobile app and desktop:
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Via Mobile
 
  If you are using a mobile, follow this method to deactivate your Facebook account.
 
 ![Go to Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Go-to-Settings-and-Privacy.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![Personal and account information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-and-account-information.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Deactivation and deletion of Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Deactivate your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-your-Facebook-account.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Reason for deactivating Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Open Facebook on your mobile browser.
@@ -104,9 +106,6 @@ Close
 
 **Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Via Desktop
 
  To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
@@ -116,6 +115,11 @@ Close
 3. Click**Settings & Privacy** to open a new menu and select**Settings** .  
 ![Facebook Settings and Privacy desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Settings-and-Privacy-desktop.jpg)
 4. From the menu on your left, navigate to**Privacy** and click**Your Facebook Information** . This section contains all the settings to delete the account or download your information.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Personal Account Information of Facebook on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-Account-Information-of-Facebook-on-desktop.jpg)
 5. Scroll down to**Deactivation and Deletion** and press**View** .
 
@@ -125,13 +129,14 @@ Close
 3. Choose a reason why you want to deactivate your account. Facebook also offers the option to**Transfer Your Information** and**Reason for Leaving** .  
 ![Reason for deactivating Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account-desktop.jpg)
 4. Scroll down and check to**Opt out of receiving future emails from Facebook** to block notifications.
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 5. Select**Deactivate** , and you’ll be logged out of Facebook.  
 ![Choose to deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Choose-to-deactivate-account.jpg)
 
  You can use a similar method to deactivate Facebook using a browser on a mobile phone or a Chromebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Reactivate Your Facebook Account
 
@@ -149,14 +154,11 @@ Close
 
  There is no limit to how many times you deactivate your account. Simply set your desired account reactivation time, or come back whenever you want.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +167,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-flawless-photo-management-on-iphone-size-adjustment-basics-for-2024/"><u>[New] Flawless Photo Management on iPhone Size Adjustment Basics for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-quickcapture-miniapp-windows-10-version/"><u>[New] QuickCapture MiniApp - Windows 10 Version</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-bring-playlists-down-to-youtube-the-5-best-conversion-resources-for-2024/"><u>[Updated] Bring Playlists Down to YouTube The 5 Best Conversion Resources for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premier-presentation-planner-prodigy/"><u>[Updated] Premier Presentation Planner Prodigy</u></a></li>
+<li><a href="https://facebook.techidaily.com/10000-fb-groups-face-potential-amazon-litigation/"><u>10,000 FB Groups Face Potential Amazon Litigation</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-journey-into-the-world-of-facebooks-emoji-communication/"><u>A Compreenasional Journey Into the World of Facebook's Emoji Communication</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/auditory-anchors-exploring-the-art-of-sound-blending/"><u>Auditory Anchors Exploring the Art of Sound Blending</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-current-platforms-exploring-the-impact-and-meaning-of-facebooks-metaverse/"><u>Beyond Current Platforms: Exploring the Impact and Meaning of Facebook’s Metaverse</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-samsung-galaxy-a25-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-conversation-clutter-in-facebook/"><u>Clearing Up Conversation Clutter in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-covid-through-snapchat-tweet-and-facebook-campaigns/"><u>Curbing COVID Through Snapchat, Tweet, and Facebook Campaigns</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fix-lost-discdvdcd-drive-sense/"><u>Fix: Lost Disc/DVD/CD Drive Sense</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-tecno-spark-20-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Tecno Spark 20? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152051646-outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now!</u></a></li>
+</ul></div>
 

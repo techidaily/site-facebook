@@ -1,7 +1,7 @@
 ---
 title: "New Era of Competition: The Role of U.S. Antitrust in Regulating Big Tech"
-date: 2024-08-28T03:07:04.800Z
-updated: 2024-08-29T03:07:04.800Z
+date: 2024-12-11T00:03:27.366Z
+updated: 2024-12-12T17:42:27.243Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 
  Marketplace owners, Amazon being one very clear example, will no longer be allowed to promote their own products over others using their platform. Other concerns, such as the eradication of nascent competition by winner-take-all acquisition, are also on the table for discussion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
@@ -29,20 +33,22 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
  Those intimately involved with the platform's operation will no longer be able to use their behind-the-scenes edge to their own gain. Practices that prevent smaller brands from gaining traction will also be targeted under this section.
@@ -56,8 +62,9 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -70,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -93,16 +97,10 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -115,20 +113,21 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,20 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-excellent-extra-storage-for-sony-a7s-ii/"><u>[New] Excellent Extra Storage for Sony A7S II</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/constructing-home-made-vr-headgear-with-google-cards/"><u>Constructing Home-Made VR Headgear with Google Cards</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-privacy-concerns-expressed-in-60-minutes-report/"><u>Decoding Privacy Concerns Expressed in 60 Minutes Report</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-online-purchase-dissatisfaction-fb-refunds/"><u>Demystifying Online Purchase Dissatisfaction - FB Refunds</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-vk-understanding-russias-virtual-sphere/"><u>Demystifying VK: Understanding Russia's Virtual Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deception-detectors-for-high-tech-hoaxes/"><u>Digital Deception Detectors for High-Tech Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/disneyplus-reveals-how-user-behavior-fuels-free-content-accessibility/"><u>Disney+ Reveals How User Behavior Fuels Free Content Accessibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-update-for-facebook-messenger-when-expected/"><u>E2EE Update for Facebook Messenger – When Expected?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elons-next-move-unraveling-gpt-secrets/"><u>Elon's Next Move: Unraveling GPT Secrets</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-venture-beyond-final-cut-pro-x-10-impressive-video-editing-software-alternatives/"><u>New 2024 Approved Venture Beyond Final Cut Pro X 10 Impressive Video Editing Software Alternatives</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211308756-9798869294616-the-moral-journey/"><u>The Moral Journey | Free Book</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-and-correcting-a-bios-whea-error-on-your-pc/"><u>Troubleshooting and Correcting a BIOS 'WHEA' Error on Your PC</u></a></li>
+</ul></div>
 

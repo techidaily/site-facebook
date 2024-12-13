@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2024-11-21T05:53:33.826Z
-updated: 2024-11-27T09:12:12.013Z
+date: 2024-12-09T23:03:07.740Z
+updated: 2024-12-12T21:47:08.926Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
 
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
@@ -47,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -55,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -79,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  Amazon says it took down more than 200 million suspected fake reviews in 2020 alone. Amazon has also reported more than 10,000 fake review groups to Meta since 2020\. Meta has taken down more than half.
 
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
 
@@ -101,16 +101,22 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-craft-the-perfect-twitch-livestream-experience-5-must-try-methods/"><u>[New] In 2024, Craft the Perfect Twitch Livestream Experience 5 Must-Try Methods</u></a></li>
-<li><a href="https://win-blog.techidaily.com/bypassing-trouble-effective-ways-to-tackle-swtor-initialization-problems/"><u>Bypassing Trouble: Effective Ways to Tackle SWTOR Initialization Problems</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-well-be-points-without-facebooks-presence/"><u>Enhancing Your Well-Be Points Without Facebook's Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/fencing-leagues-withdraw-online-presence/"><u>Fencing Leagues Withdraw Online Presence</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-11-pro-max-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 11 Pro Max without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-oneplus-nord-ce-3-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to OnePlus Nord CE 3 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-selective-focus-topiphoto-blurrers-revealed/"><u>In 2024, Selective Focus Topiphoto Blurrers Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-labyrinth-of-meta-social-control-center/"><u>Navigating the Labyrinth of Meta Social Control Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-your-entire-facebook-experience/"><u>Navigating Through Your Entire Facebook Experience</u></a></li>
-<li><a href="https://win11.techidaily.com/quickly-overcoming-common-issues-with-closed-captions-on-win11/"><u>Quickly Overcoming Common Issues with Closed Captions on Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-evolution-continues/"><u>Social Media's Evolution Continues</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-creating-a-memorable-and-unique-moniker-for-your-filmora-content/"><u>[New] 2024 Approved Creating a Memorable and Unique Moniker for Your Filmora Content</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-prime-windows-11-photo-inspector/"><u>[New] In 2024, Prime Windows 11 Photo Inspector</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-speaking-and-listening-to-create-better-decks/"><u>[New] In 2024, Speaking and Listening to Create Better Decks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-essential-tutorial-for-adding-videos-to-youtube-plays/"><u>[Updated] 2024 Approved The Essential Tutorial for Adding Videos to YouTube Plays</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95689326-9781440513992-erotic-astrology/"><u>Erotic Astrology | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-exit-strategy-for-unforeseen-account-termination/"><u>Facebook Exit Strategy for Unforeseen Account Termination</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-invisible-contributions-facebook-groups-guide/"><u>Facilitating Invisible Contributions: Facebook Groups Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-oppo-a38-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Oppo A38? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-xiaomi-redmi-12-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Xiaomi Redmi 12 Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-fb-photo-description-tips/"><u>Instructional Guide: FB Photo Description Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-key-elements-of-fb-cover-pics/"><u>Maximizing Engagement: Key Elements of FB Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-timeline-shifted-full-encryption-pushed-to-2023/"><u>Meta's Timeline Shifted: Full Encryption Pushed to 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-sight-concealing-posts-with-archive-function/"><u>Privacy in Sight: Concealing Posts with Archive Function</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-pillar-why-facebook-is-indispensable/"><u>Social Media's Pillar: Why Facebook Is Indispensable</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/step-by-step-tutorial-how-to-clean-up-and-disable-preinstalled-software-in-windows-11/"><u>Step-by-Step Tutorial: How to Clean Up and Disable Preinstalled Software in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-investors-in-the-social-platform/"><u>Today's Investors in the Social Platform</u></a></li>
 </ul></div>
 

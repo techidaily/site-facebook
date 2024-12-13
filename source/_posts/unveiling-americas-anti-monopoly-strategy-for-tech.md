@@ -1,7 +1,7 @@
 ---
 title: Unveiling America's Anti-Monopoly Strategy for Tech
-date: 2024-08-28T03:12:53.726Z
-updated: 2024-08-29T03:12:53.726Z
+date: 2024-12-08T18:47:47.511Z
+updated: 2024-12-12T18:10:59.074Z
 tags:
   - facebook
 categories:
@@ -25,18 +25,26 @@ thumbnail: https://thmb.techidaily.com/fe5fb2202d31ead27c9d026582d857fbe91d9882c
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
@@ -53,9 +61,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -69,8 +74,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -81,9 +87,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -95,15 +98,13 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -122,14 +123,11 @@ Finally, we come to the economic backing to make it all happen.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +136,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>[New] 2024 Approved Create Harmonious Hits A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-artisans-guide-to-backdrop-free-image-perfection-with-photopea/"><u>[New] In 2024, The Artisan's Guide to Backdrop-Free Image Perfection with Photopea</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-copycatting-charisma-making-ingenious-parodies/"><u>[Updated] 2024 Approved Copycatting Charisma Making Ingenious Parodies</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-extreme-capture-duo-gopro-hero5-black-versus-hero4-silver-edition/"><u>[Updated] 2024 Approved Extreme Capture Duo GoPro Hero5 Black Versus Hero4 Silver Edition</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-the-ultimate-tutorial-on-how-to-openedit-srt-on-mac/"><u>[Updated] The Ultimate Tutorial on How to Open/Edit SRT on Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-samsung-galaxy-a15-4g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Samsung Galaxy A15 4G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/capture-attention-incorporating-borders-to-insta-videos-for-2024/"><u>Capture Attention Incorporating Borders to Insta-Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-speedy-streams-the-noobs-snapchat-guide/"><u>In 2024, Unlocking Speedy Streams The Noob’s Snapchat Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-identity-new-space-modify-your-fb-profile-url/"><u>New Identity, New Space: Modify Your FB Profile URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-lively-interactions-preventing-comments-on-your-page/"><u>Stop Lively Interactions: Preventing Comments on Your Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://review-topics.techidaily.com/urgent-update-acemagic-mini-pc-manufacturer-discovers-spyware-in-pre-setup-systems-on-first-shipment-only/"><u>Urgent Update: AceMagic Mini PC Manufacturer Discovers Spyware in Pre-Setup Systems on First Shipment Only</u></a></li>
+</ul></div>
 

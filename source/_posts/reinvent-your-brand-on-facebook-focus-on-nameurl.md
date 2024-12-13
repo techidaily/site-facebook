@@ -1,7 +1,7 @@
 ---
 title: "Reinvent Your Brand on Facebook: Focus on Name/URL"
-date: 2024-08-28T03:07:38.130Z
-updated: 2024-08-29T03:07:38.130Z
+date: 2024-12-11T18:49:32.842Z
+updated: 2024-12-12T20:27:39.084Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9
 
  Whatever the reason, this article will teach you how to change your Facebook page's username so that people can find and interact with you more easily on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Is Your Facebook Page Username Different From Your Display Name?
 
 [Every Facebook page that you create](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) is allowed to have a display name and a username. Your display name is the name that other Facebook users can see when they click on your page. Meanwhile, the username is your page's unique handle.
@@ -31,6 +35,10 @@ Here’s how your page’s username looks:
 
  If you’ve rebranded or changed names, you can also update your page username to reflect this change. Read on to find out how to change your page’s username.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Your Facebook Page’s Username
 
  Facebook doesn’t support changing usernames on its mobile app, so we’ll use its web version for this tutorial. After signing in on your browser, navigate to the page whose username you want to change. Then, scroll down the left sidebar and click**Settings** .
@@ -41,29 +49,35 @@ Here’s how your page’s username looks:
 
 ![facebook page settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-page-settings.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you've completed the steps above, enter your preferred username in the**Username** field.
 
 ![change facebook username](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/change-facebook-username.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you've entered your username, click on any blank space on the page to apply changes. Facebook will instantly update your page’s username and changes its URL from**facebook.com/OldUsername** to**facebook.com/NewUsername** .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## You’ve Changed Your Facebook Page’s Username: Now What?
 
  What you do after changing your page’s username depends on how you’ve been using it. If you’d earlier added links to it on your website or elsewhere online, you’ll need to replace the old links with the new one that bears your new username.
 
  If it’s a new page or one you’ve not used so much, then you’re good. Or better still, you can look into other ways of further customizing the page.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,4 +86,17 @@ Here’s how your page’s username looks:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-direct-video-delivery-facebook-to-whatsapp-connection/"><u>[New] 2024 Approved Direct Video Delivery Facebook to WhatsApp Connection</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-pioneering-televised-facebook-interactions-via-live-streams/"><u>2024 Approved Pioneering Televised Facebook Interactions via Live Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-times-social-media-giants-forgot-about-users/"><u>5 Times Social Media Giants Forgot About Users</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-samsung-galaxy-a23-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Samsung Galaxy A23 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-high-status-with-meta-purchase/"><u>Advance to High-Status with Meta Purchase</u></a></li>
+<li><a href="https://facebook.techidaily.com/affordable-tactics-for-perfectly-timed-social-media-posts-on-fb/"><u>Affordable Tactics for Perfectly Timed Social Media Posts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/battening-down-the-hatches-how-stablecoins-navigate-market-swings/"><u>Battening Down the Hatches: How Stablecoins Navigate Market Swings</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/decoding-oled-displays-principles-and-operation-explained/"><u>Decoding OLED Displays: Principles & Operation Explained</u></a></li>
+<li><a href="https://extra-support.techidaily.com/power-up-with-these-20-top-songs-that-elevate-your-exercise-routine-for-2024/"><u>Power-Up with These 20 Top Songs that Elevate Your Exercise Routine for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unleashing-potential-next-level-traits-for-gpt-5/"><u>Unleashing Potential: Next Level Traits for GPT-5</u></a></li>
+</ul></div>
 

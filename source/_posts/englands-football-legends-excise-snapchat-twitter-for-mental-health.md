@@ -1,7 +1,7 @@
 ---
 title: England's Football Legends Excise Snapchat, Twitter for Mental Health
-date: 2024-08-28T03:07:56.968Z
-updated: 2024-08-29T03:07:56.968Z
+date: 2024-12-11T23:53:57.432Z
+updated: 2024-12-12T20:40:27.055Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/06e4228770e6068ed6a3887b57608ffc3ec670ddf
  The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Top English Soccer Teams Take a Social Media Stand
 
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/06e4228770e6068ed6a3887b57608ffc3ec670ddf
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -61,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/06e4228770e6068ed6a3887b57608ffc3ec670ddf
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,8 +82,23 @@ thumbnail: https://thmb.techidaily.com/06e4228770e6068ed6a3887b57608ffc3ec670ddf
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-amplify-your-voice-expert-insights-on-podcast-editing-in-garageband/"><u>[New] Amplify Your Voice Expert Insights on Podcast Editing in GarageBand</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-infiltrate-a-tiktok-livestream-with-precision-for-2024/"><u>[New] Infiltrate a TikTok Livestream With Precision for 2024</u></a></li>
+<li><a href="https://win-trending.techidaily.com/cobian-backup/"><u>「Cobian Backupのネットワークドライブアクセス問題：その真相を解明する」</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-fbx-for-gamers-expert-tips-on-recording-playthroughs/"><u>2024 Approved FBX for Gamers Expert Tips on Recording Playthroughs</u></a></li>
+<li><a href="https://facebook.techidaily.com/advent-of-more-crypto-posts-on-fb-and-insta/"><u>Advent of More Crypto Posts on FB & Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplify-earnings-discover-5-winning-strategies-for-ig-and-fb-businesses/"><u>Amplify Earnings: Discover 5 Winning Strategies for IG & FB Businesses</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/apple-tv-4k-3rd-generation-review/"><u>Apple TV 4K (3Rd Generation) Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-in-trouble-government-intervention-explained/"><u>Big Tech in Trouble? Government Intervention Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosted-connectivity-through-strategic-channels-use/"><u>Boosted Connectivity Through Strategic Channels Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-meta-and-its-mighty-global-ai-supercomputer/"><u>Breaking Barriers: Meta and Its Mighty Global AI Supercomputer</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-memorable-virtual-biography-on-fb/"><u>Building a Memorable Virtual Biography on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/customize-your-facebook-exposure-strategies-for-a-personalized-list/"><u>Customize Your Facebook Exposure: Strategies for a Personalized List</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722041735766-is-there-a-chatgpt-app-for-iphones-and-ipads-learn-more-here/"><u>Is There a ChatGPT App for iPhones and iPads? Learn More Here</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ultimate-guide-to-blending-multiple-mp4-clips-into-one-top-7-software-recommendations/"><u>Ultimate Guide to Blending Multiple MP4 Clips Into One - Top 7 Software Recommendations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/vlog-anxieties-unmasked-how-to-combat-them-for-2024/"><u>Vlog Anxieties Unmasked How to Combat Them for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/why-now-is-the-ideal-moment-for-starting-your-own-blu-ray-library/"><u>Why Now Is the Ideal Moment for Starting Your Own Blu-Ray Library</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

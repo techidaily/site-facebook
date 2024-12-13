@@ -1,7 +1,7 @@
 ---
 title: New Methods for Logging Into Facebook Without Codes
-date: 2024-11-24T08:18:28.271Z
-updated: 2024-11-27T15:23:33.211Z
+date: 2024-12-10T17:58:00.429Z
+updated: 2024-12-12T16:21:16.800Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/84aaf27f955a6ba5c37b777f8ab3f4dc75b3cebc1
 
  By enabling Facebook's two-factor authentication, you've added an extra layer of security, which can[protect your Facebook account from getting hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Where Can You Find a Facebook Confirmation Code?
 
 You can obtain a Facebook login code in three different ways:
@@ -50,6 +46,10 @@ You can obtain a Facebook login code in three different ways:
 
  When you've set up your phone to be the key to your Facebook account, losing or breaking it could be a problem. Here's what you can do in the event that you lose access to Code Generator or your third-party authentication tool.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Let Facebook Text You a Confirmation Code
 
  Do you still have access to the mobile phone number you included under two-factor authentication? Maybe your provider could send you a new SIM with the same number. In that case, let Facebook text you a confirmation code.
@@ -60,17 +60,21 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Two-Factor Authentication Required screen upon trying to log in.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Required.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Use a Saved Recovery Code
 
  After setting up two-factor authentication, you had the chance to save a set of recovery codes as a backup. Maybe you printed the code, took a screenshot, or wrote it down and stored it in a safe location.
 
 ![Facebook recovery codes remaining.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Codes-Remaining.jpg)
 
- If you haven't saved recovery codes, be sure to do it as soon as you regain access to your account. Should you ever again lose access to your authentication tool, you can use one of these codes to log into Facebook from a new device or location.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ If you haven't saved recovery codes, be sure to do it as soon as you regain access to your account. Should you ever again lose access to your authentication tool, you can use one of these codes to log into Facebook from a new device or location.
 
 ### 3\. Approve the Login From an Authorized Device
 
@@ -82,6 +86,10 @@ You can obtain a Facebook login code in three different ways:
 
  Try to access Facebook from a browser or app you've used previously. Maybe you're still logged in on an old laptop, your work computer, or your tablet. When you find a device where you can still access Facebook, you should see a notification asking you to approve the new login.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Confirm Your Identity
 
  Is none of this working? Submit a request to Facebook. In the menu that pops up after you select**Need another way to authenticate** (see option 1), select**Get More Help** , and let Facebook walk you through the steps to recover your account.
@@ -89,23 +97,19 @@ You can obtain a Facebook login code in three different ways:
 ![Facebook Two-Factor Authentication Code Issues](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Ways-to-Authenticate-Login.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You'll have to enter an email address and upload a copy of your ID, which can be a passport, driver's license, national ID card, or other official documents. Once you have provided the requested information, Facebook will email you with further steps for account recovery.
 
 ![Confirm your identity using an email address or ID.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Confirm-Your-Identity.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can also access the above recovery route through any browser, on desktop or mobile. Go to[m.facebook.com](http://m.facebook.com) and log into your account using your mobile number, email, or username and password. When prompted for the login code, click **Having trouble? > I don't have my phone > Continue** .
 
 ![Facebook Can't Get Your Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Cant-Get-Your-Code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In the next screen, Facebook will tell you to log in from a known browser. If that isn't an option, click**Contact us** . Like above, you'll have to provide an email address, ideally one that was linked to your account, and upload your ID and a message to Facebook.
@@ -113,10 +117,6 @@ You can obtain a Facebook login code in three different ways:
 ![Facebook Recovery Confirm Identity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-recovery-confirm-identity.jpg)
 
  Did you manage to log back into Facebook? Remember to save recovery codes, set up a new authentication app, and update your other recovery options.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Back on Facebook, But Lost Your Mobile Device?
 
@@ -151,17 +151,24 @@ You can obtain a Facebook login code in three different ways:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enhancing-watchability-adding-time-stamps-to-youtube-videos/"><u>[Updated] In 2024, Enhancing Watchability Adding Time Stamps to YouTube Videos</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/cambiar-videoclips-de-mp4-a-audios-wav-en-internet-gratis-manteniendo-alta-calidad-sin-compromisos/"><u>Cambiar Videoclips De MP4 a Audios WAV en Internet Gratis Manteniendo Alta Calidad Sin Compromisos</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-old-labels-to-new-beginnings-your-complete-guide-to-facebook-name-modification/"><u>From Old Labels to New Beginnings: Your Complete Guide to Facebook Name Modification</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-photographic-purity-and-proficiency-in-chromatic-control/"><u>In 2024, Photographic Purity and Proficiency in Chromatic Control</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-hidden-landscape-of-digital-interactions/"><u>Navigating the Hidden Landscape of Digital Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-social-media-experience-a-dive-into-facebooks-upgraded-privacy-hub/"><u>Optimize Your Social Media Experience: A Dive Into Facebook’s Upgraded Privacy Hub</u></a></li>
-<li><a href="https://discover-community.techidaily.com/strategies-simples-pour-une-mise-a-jour-sure-de-windows-cuisine-sans-perdre-vos-fichiers/"><u>Stratégies Simples Pour Une Mise À Jour Sûre De Windows Cuisine Sans Perdre Vos Fichiers.</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/transcode-m4v-a-mpeg-en-ligne-gratuit-avec-movavi-video/"><u>Transcode M4V À MPEG en Ligne Gratuit Avec Movavi - Vidéo</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-on-dark-theme-in-facebook-settings/"><u>Turn On Dark Theme in Facebook Settings</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-fixes-for-cities-skylines-game-crashes-a-comprehensive-tips-list/"><u>Ultimate Fixes for Cities: Skylines Game Crashes - A Comprehensive Tips List</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-dread-in-the-facebook-virtual-world/"><u>Understanding Dread in the Facebook Virtual World</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtubes-chief-revenue-generator-for-2024/"><u>YouTube’s Chief Revenue Generator for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-gamers-blueprint-techniques-to-record-virtual-realms/"><u>[New] In 2024, The Gamer's Blueprint Techniques to Record Virtual Realms</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-discover-top-6-short-video-download-sites-free/"><u>[Updated] 2024 Approved Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-superb-phone-video-and-photo-capturing-with-best-apps-list/"><u>2024 Approved Superb Phone Video & Photo Capturing with Best Apps List</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-repair-mouse-freeze-problems-on-computers/"><u>How to Troubleshoot and Repair Mouse Freeze Problems on Computers</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-online-networking-the-efficacy-of-hashtags-in-fb-marketplace/"><u>Insights Into Online Networking: The Efficacy of Hashtags in FB Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-yourself-10-free-apps-for-social-savvy/"><u>Invest in Yourself: 10 FREE Apps for Social Savvy</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-linked-up-channels-top-5-social-platforms-for-firms/"><u>Leading Linked-Up Channels: Top 5 Social Platforms for Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-account-protection-in-case-of-loss/"><u>Mastering Account Protection in Case of Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-hidden-meanings-on-fb-chat/"><u>Mastering the Art of Hidden Meanings on FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/meet-the-new-portable-version-of-facebooks-portal/"><u>Meet the New Portable Version of Facebook's Portal</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/nintendo-showdown-a-comparison-of-switch-lite-and-oled-models/"><u>Nintendo Showdown: A Comparison of Switch Lite and OLED Models</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-inside-facebooks-fortification-mechanisms-and-activate-them/"><u>Step Inside Facebook’s Fortification Mechanisms and Activate Them</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210644825-9780349431758-tapping-in/"><u>Tapping In | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-face-of-todays-facebook-empire/"><u>The Face of Today's Facebook Empire</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-the-transformation-of-facebook-into-meta/"><u>Timeline: The Transformation of Facebook Into Meta</u></a></li>
+<li><a href="https://games-able.techidaily.com/unraveling-display-driver-startup-problems-in-microsofts-latest-os/"><u>Unraveling Display Driver Startup Problems in Microsoft's Latest OS</u></a></li>
+<li><a href="https://techidaily.com/update-hardware-drivers-with-device-manager-on-windows-7-by-drivereasy-guide/"><u>Update hardware drivers with Device Manager on Windows 7</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/zdnet-explores-the-mechanics-of-spatial-computing-what-you-need-to-know-and-how-it-operates/"><u>ZDNet Explores the Mechanics of Spatial Computing: What You Need to Know and How It Operates</u></a></li>
 </ul></div>
 

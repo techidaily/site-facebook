@@ -1,7 +1,7 @@
 ---
 title: "Quick Tip: Recent FB Video Discovery"
-date: 2024-08-28T03:13:21.984Z
-updated: 2024-08-29T03:13:21.984Z
+date: 2024-12-07T16:36:30.560Z
+updated: 2024-12-12T19:25:45.450Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/99e083d06891d6b9709e3f748eff8a9d6ada1ef30
  We've all been there; you are watching an interesting video on Facebook and then all of a sudden, you accidentally refresh, and the video is lost before you have a chance to share or save it. Well, thankfully, Facebook lets you see and manage your watch history.
 
  In this article, we'll see how to find recently watched videos on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on the Web
 
@@ -38,7 +42,15 @@ That's it. Here you will find all the recently watched videos.
 
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -52,33 +64,20 @@ That's it. Here you will find all the recently watched videos.
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
 1. Launch the Facebook app on your iOS or Android device and log in to your account.
@@ -90,20 +89,18 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 Close
 
 1. Open the Activity log window on your Android or iOS device.
@@ -115,14 +112,11 @@ Close
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +125,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-full-spectrum-analysis-the-complete-logitech-4k-webcam-review/"><u>[New] 2024 Approved Full Spectrum Analysis The Complete Logitech 4K Webcam Review</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-a-guide-to-vimeo-video-host-and-share-site/"><u>[New] A Guide to Vimeo Video Host & Share Site</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-checklist-for-finding-film-specialists/"><u>[New] The Ultimate Checklist for Finding Film Specialists</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-nokia-130-music-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Nokia 130 Music Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-channels-growth-strategies-for-effective-trailers/"><u>Boosting Channels' Growth Strategies for Effective Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-content-facebooks-new-framework/"><u>Comedic Content: Facebook's New Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-posts-what-counts-as-satire-facebook/"><u>Comedic Posts: What Counts as Satire? - Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-m-audio-fast-track-driver-installation-files-for-windows-users-win-10-7-8-and-81/"><u>Latest M-Audio Fast Track Driver Installation Files for Windows Users (Win 10, 7, 8 & 8.1)</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-chat-apps-beyond-facebooks-messages/"><u>Mastering Chat Apps: Beyond Facebook's Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/safety-vs-entertainment-balancing-risks-with-quizzes/"><u>Safety Vs. Entertainment: Balancing Risks with Quizzes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/sharpening-zoom-visuals-immediate-upgrades-for-2024/"><u>Sharpening Zoom Visuals Immediate Upgrades for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-behind-facebooks-fading-user-numbers/"><u>The Truth Behind Facebook's Fading User Numbers</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/why-the-tp-link-archer-c9-is-a-top-choice-for-budget-friendly-routers-reviewed/"><u>Why the TP-LInk Archer C9 Is a Top Choice for Budget-Friendly Routers – Reviewed</u></a></li>
+</ul></div>
 

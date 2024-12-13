@@ -1,7 +1,7 @@
 ---
 title: Troubleshooting Stuck FB Notification Bars
-date: 2024-12-01T19:40:15.281Z
-updated: 2024-12-06T17:36:57.807Z
+date: 2024-12-05T21:20:10.871Z
+updated: 2024-12-12T17:21:14.835Z
 tags:
   - facebook
 categories:
@@ -56,15 +56,15 @@ Close
 
 ![iPhone Do Not Disturb mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-Do-Not-Disturb-mode.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  On Android, swipe down your screen from the top and tap to disable**Flight / Airplane** ,**Focus** , and**Do Not Disturb** modes. You'll know they are enabled if colored.
 
 ![Flight mode turned off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/flight-mode-turned-off.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Do Not Disturb and Focus mode turned off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/do-not-disturb-and-focus-mode-turned-off.jpg)
 
@@ -82,11 +82,11 @@ Close
 
 ![Facebook notifications in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Faacebook-notifications-in-iPhone-settings.JPG)
 
-![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
 
 Close
 
@@ -102,17 +102,13 @@ For an Android device, follow these steps:
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Turn on Show notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/turn-on-show-notifications-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Check Notifications Settings on Facebook
 
@@ -128,6 +124,10 @@ On your iOS device, follow these steps:
 ![Facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-menu.JPG)
 
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-settings.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook-settings-privacy-section-ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-settings-privacy-section-ios.jpg)
 
@@ -146,18 +146,18 @@ On Android, follow these steps to enable Facebook notifications:
 ![Facebook menu on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/01-facebook-menu-page-with-settings-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
 
 ![Push notifications enabled on Facebook's Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/04-push-notifications-facebook-android.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -174,7 +174,7 @@ Close
 All Facebook notifications should appear on your phone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Clear the Facebook App Cache
@@ -192,7 +192,7 @@ To clear your Facebook cache on your iOS device:
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![iPhone storage check](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-storage-check.JPG)
@@ -200,7 +200,7 @@ To clear your Facebook cache on your iOS device:
 ![Offload Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Offload-Facebook-app.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -249,10 +249,6 @@ Close
 
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
 
 Close
@@ -262,6 +258,10 @@ Close
 ## 9\. Reinstall Facebook on Your Smartphone
 
  If nothing seems to work, try reinstalling the app. Delete Facebook from your phone. When you reinstall Facebook, the fresh start may resolve the problem of notifications not loading.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fix Your Facebook Notifications With Simple Steps
 
@@ -286,19 +286,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-top-15-snapchat-post-tips-for-max-impact/"><u>[New] Top 15 Snapchat Post Tips for Max Impact</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-ultimate-fix-guide-getting-your-fb-story-on-air/"><u>2024 Approved The Ultimate Fix Guide Getting Your Fb Story On Air</u></a></li>
-<li><a href="https://apple-account.techidaily.com/can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-xs-without-the-previous-owner-by-drfone-ios/"><u>Can I Remove the Apple Watch Activation Lock By Apple iPhone XS without the Previous Owner?</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-fixes-for-graphics-drivers-glitches-a-step-by-nstep-guide/"><u>Easy Fixes for Graphics Drivers Glitches: A Step-by-nStep Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-logging-you-out-randomly-7-ways-to-fix-it/"><u>Facebook Logging You Out Randomly? 7 Ways to Fix It</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/finding-solutions-for-non-responsive-windows-service-management-suite/"><u>Finding Solutions for Non-Responsive Windows Service Management Suite</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-achieving-gentle-volume-alteration-using-fl-studio/"><u>In 2024, Achieving Gentle Volume Alteration Using FL Studio</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/sony-vegas-audio-editor-a-step-by-step-tutorial-for-professionals/"><u>Sony Vegas Audio Editor A Step-by-Step Tutorial for Professionals</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-economy-of-eyeing-us-from-afar/"><u>The Economy of Eyeing Us From Afar</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-online-communities-tailored-for-seniors/"><u>Top 5 Online Communities Tailored for Seniors</u></a></li>
-<li><a href="https://windows11.techidaily.com/unlocking-winning-strategies-in-old-chessboard-manager/"><u>Unlocking Winning Strategies in Old Chessboard Manager</u></a></li>
-<li><a href="https://facebook.techidaily.com/unplug-from-political-spam-transform-your-feed/"><u>Unplug From Political Spam: Transform Your Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/will-removing-facial-identification-risk-facebook-users-security/"><u>Will Removing Facial Identification Risk Facebook Users' Security?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-optimizing-googles-automatic-speech-recognition-features-for-2024/"><u>[New] Optimizing Google's Automatic Speech Recognition Features for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-the-most-innovative-and-easy-to-use-mobile-photo-layers-top-10/"><u>[New] The Most Innovative & Easy-to-Use Mobile Photo Layers (Top 10)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-video-magic-with-imovie-directed-to-youtube/"><u>[Updated] 2024 Approved Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-magix-vpxs-innovative-editing-capabilities/"><u>[Updated] Exploring Magix VPX's Innovative Editing Capabilities</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-video-creation-journey-from-adobe-premiere-to-youtube/"><u>[Updated] Video Creation Journey From Adobe Premiere to YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-a-step-by-step-approach-to-infusing-conversations-with-gifs-on-snapchat/"><u>2024 Approved A Step-by-Step Approach to Infusing Conversations with GIFs on Snapchat</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ins-and-outs-of-earning-from-youtube/"><u>2024 Approved The Ins and Outs of Earning From YouTube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-visibility-choosing-a-strong-fb-photo/"><u>Maximizing Visibility: Choosing a Strong Fb Photo</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-the-entry-point-not-available-error-in-fortnite-a-comprehensive-guide/"><u>Resolving the 'Entry Point Not Available' Error in Fortnite: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-popular-facebook-hurdles-strategies-to-resolve-them/"><u>Tackling Popular Facebook Hurdles: Strategies to Resolve Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-sleuths-guide-to-unmasking-digital-dissemblers/"><u>The Social Sleuth's Guide to Unmasking Digital Dissemblers</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-friends-suggestion-on-facebook/"><u>Turn Off Friends Suggestion on Facebook</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Privacy Tactics to Dial Back Fb Chats
-date: 2024-08-28T03:09:48.348Z
-updated: 2024-08-29T03:09:48.348Z
+date: 2024-12-11T18:39:14.862Z
+updated: 2024-12-12T20:53:07.759Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/1323edf73cef5ddeb6760a28b46d407c0ed89a315
 
 ![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-post-audience.jpg)
 
 Close
@@ -43,18 +47,12 @@ Close
 
  If you have a business and are trying to get customers through Facebook, we recommend[creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Limit People Who Can Search You
 
 ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
 
 ![How people find and contact you](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/How-people-find-and-contact-you.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  Not everyone needs to know about your personal Facebook profile. Fortunately, this app encourages users to maintain utmost security by limiting the number of people who can search their accounts.
@@ -78,13 +76,9 @@ Close
  This feature updates your conversations whenever a contact changes their device, reinstalls Messenger, or resets their phone.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Block Messages or Restrict Someone
 
  Is someone irritating to the extent that you don't want them to message you anymore? If so, consider blocking their messages. This feature enables users to only block their messages on Messenger rather than the person itself.
@@ -93,17 +87,14 @@ Close
 
 ![Restrict Block or Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Restrict-Block-or-Report.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
  Blocking someone’s messages means they will still be added to your Facebook account, and you can communicate with them through comments, but they won’t be able to text you on Messenger.
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Unfriend or Block a Facebook Account
 
 ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
@@ -113,8 +104,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
 ![Block user on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Block-user-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  We saved the most extreme measure for the last. If no other privacy option seems to be doing it for you, it’s probably time to get rid of that contact once and for all.
@@ -129,6 +121,10 @@ Close
 
  You can also[report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Make Facebook a Safe Space for Yourself
 
  Facebook is one of the most widely used applications of all time. Some people like to have some personal space and avoid unwanted messages.
@@ -137,14 +133,11 @@ Close
 
  Multiple safety options make it possible to create a safe space for yourself and your contacts. We recommend reporting any harmful or abusive activity that violates your safety and Facebook policies before blocking that contact.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +146,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-leap-forward-in-exposure-management-and-composition/"><u>[Updated] 2024 Approved A Leap Forward in Exposure Management and Composition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-top-8-instagram-story-filters/"><u>[Updated] In 2024, Top 8 Instagram Story Filters</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-budget-friendly-tools-your-social-network-guide/"><u>Best Budget-Friendly Tools: Your Social Network Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-facebooks-platform-clarity-with-its-open-center/"><u>Comprehensive Guide to Facebook's Platform Clarity with Its Open Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-content-flow-disabling-social-media-feeds/"><u>Control Content Flow: Disabling Social Media Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-threats-to-social-sites/"><u>Cybersecurity Threats to Social Sites</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhance-conversations-with-custom-whatsapp-ringtones/"><u>Enhance Conversations with Custom WhatsApp Ringtones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/essential-info-for-tweeting-videos-aspect-ratios-required-for-2024/"><u>Essential Info for Tweeting Videos Aspect Ratios Required for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-changes-in-watch-dogs-a-comprehensive-review-of-legions-unique-locale/"><u>Exploring the Changes in Watch Dogs - A Comprehensive Review of Legion's Unique Locale</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-xiaomi-redmi-a2plus-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from Xiaomi Redmi A2+ to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153057153-impending-ruling-trumps-ban-under-scrutiny-at-fb-oversight-panel/"><u>Impending Ruling: Trump's Ban Under Scrutiny at FB Oversight Panel</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-top-10-affectionate-emulators-for-android-and-3ds/"><u>In 2024, Top 10 Affectionate Emulators for Android and 3DS</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-secrets-of-openai-a-full-overview/"><u>Mastering the Secrets of OpenAI: A Full Overview</u></a></li>
+<li><a href="https://review-topics.techidaily.com/realme-gt-5-240w-tutorial-bypass-lock-screen-security-password-pin-fingerprint-pattern-by-drfone-android-unlock-android-unlock/"><u>Realme GT 5 (240W) Tutorial - Bypass Lock Screen,Security Password Pin,Fingerprint,Pattern</u></a></li>
+</ul></div>
 

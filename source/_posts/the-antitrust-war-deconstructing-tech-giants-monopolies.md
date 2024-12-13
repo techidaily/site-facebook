@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2024-11-23T12:12:51.522Z
-updated: 2024-11-26T18:52:37.146Z
+date: 2024-12-05T20:22:23.405Z
+updated: 2024-12-12T18:17:59.642Z
 tags:
   - facebook
 categories:
@@ -22,11 +22,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
 
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Big Tech’s Beginnings
 
@@ -56,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
  A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
@@ -80,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
@@ -91,16 +91,12 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -109,10 +105,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  An[investigation from The Intercept](https://theintercept.com/2021/02/27/india-climate-activists-twitter-google-facebook/) suggests Big Tech companies aided the Indian government in targeting climate activists and curbing information access. People argue inaction in regulating Big Tech could limit expression and content distribution while putting citizens at risk.
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
 
@@ -128,11 +120,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
 
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -157,17 +157,24 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-delicate-decrease-techniques-for-fl-studio-audio-levels/"><u>[New] 2024 Approved Delicate Decrease Techniques for FL Studio Audio Levels</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-transform-your-videos-with-simple-inshot-techniques/"><u>[Updated] Transform Your Videos with Simple Inshot Techniques</u></a></li>
-<li><a href="https://program-issues.techidaily.com/bypassing-the-problem-mass-effect-legendary-edition-not-loading-correctly/"><u>Bypassing the Problem: Mass Effect Legendary Edition Not Loading Correctly?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/defeating-the-problem-ensuring-your-iphone-works-with-itunes-in-windows-11/"><u>Defeating the Problem: Ensuring Your iPhone Works with iTunes in Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/experience-metas-endorsed-us-networking/"><u>Experience Meta's Endorsed US Networking</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bringing-down-the-time-barrier-for-fastening-fb-video-content/"><u>In 2024, Bringing Down the Time Barrier for Fastening FB Video Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-multiple-languages-for-social-media-impact/"><u>Leveraging Multiple Languages for Social Media Impact</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/making-movies-magical-the-use-of-youtube-music-in-videos/"><u>Making Movies Magical The Use of YouTube Music in Videos</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-metadata-the-power-of-accurate-video-tags-for-2024/"><u>Mastering Metadata The Power of Accurate Video Tags for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-evolution-the-top-4-changes-in-social-communication-networks/"><u>Online Evolution: The Top 4 Changes in Social Communication Networks</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/professional-insights-microsoft-surface-pro-8-evaluation-a-comprehensive-business-analysis/"><u>Professional Insights: Microsoft Surface Pro 8 Evaluation - A Comprehensive Business Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-nft-influencers/"><u>The Rise of NFT Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/share-less-live-more-how-instagram-advocates-for-social-media-rest/"><u>'Share Less, Live More': How Instagram Advocates for Social Media Rest</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-cultivating-commitment-gentle-subscription-strategies-for-2024/"><u>[Updated] Cultivating Commitment Gentle Subscription Strategies for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-instagram-photography-guide-for-crafting-perfect-covers-for-2024/"><u>[Updated] The Ultimate Instagram Photography Guide for Crafting Perfect Covers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-understanding-theta-s-complete-technical-review/"><u>2024 Approved Understanding Theta S Complete Technical Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-facebook-group-interactions-via-channels/"><u>Enhancing Facebook Group Interactions via Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/foreseeing-tough-times-ahead-for-fb/"><u>Foreseeing Tough Times Ahead for FB</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-motorola-moto-g-5g-2023-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Motorola Moto G 5G (2023) Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-eject-spotify-from-linked-facebook-profile/"><u>How to Eject Spotify From Linked Facebook Profile</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-xbox-integrating-multiple-social-networks-easily/"><u>Mastering Xbox: Integrating Multiple Social Networks Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-arcade-in-your-inbox-facebooks-ar-for-messenger/"><u>New Arcade in Your Inbox: Facebook's AR for Messenger</u></a></li>
+<li><a href="https://article-helps.techidaily.com/pinnacle-artist-studio-overview/"><u>Pinnacle Artist Studio Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-10-decoded-effortless-engagement-tips-and-tricks/"><u>Room 10 Decoded: Effortless Engagement Tips & Tricks</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-windows-10-setup-issues-overcoming-initialization-problems-with-ease/"><u>Solving Windows 10 Setup Issues: Overcoming Initialization Problems with Ease</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/synching-visuals-and-audio-step-by-step-process/"><u>Synching Visuals and Audio Step-by-Step Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-sixest-dividing-opinionated-innovators/"><u>Tech's Sixest Dividing Opinionated Innovators</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-path-to-a-perfect-life-integrating-chatgpt-techniques/"><u>The Path to a Perfect Life: Integrating ChatGPT Techniques</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ts-to-avi-conversion-techniques-best-practices-for-high-quality-results/"><u>TS to AVI Conversion Techniques - Best Practices for High-Quality Results</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-innovations-the-most-critical-tech-stories-missed-by-many/"><u>Unseen Innovations: The Most Critical Tech Stories Missed by Many</u></a></li>
 </ul></div>
 

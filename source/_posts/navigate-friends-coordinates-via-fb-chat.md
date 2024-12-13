@@ -1,7 +1,7 @@
 ---
 title: Navigate Friend's Coordinates via FB Chat
-date: 2024-10-13T18:48:52.814Z
-updated: 2024-10-20T17:19:22.999Z
+date: 2024-12-10T20:22:11.388Z
+updated: 2024-12-12T16:57:02.626Z
 tags:
   - facebook
 categories:
@@ -38,11 +38,23 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
 
 ![Contact Open in Messenger With Whom Location Is Going to Be Shared](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/1-Contact-Open-in-Messenger-WIth-Whom-Location-Is-Going-to-Be-Shared.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Location Sharing Direction Icon In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/2-Location-Sharing-Direction-Icon-In-Facebook-Messenger.jpg)
 
 ![Permitting Facebook to Access Location in Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/3-Permitting-Facebook-to-Access-Location-in-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Live Location Shared In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/4-Live-Location-Shared-In-Facebook-Messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -51,10 +63,7 @@ Close
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Share a Pinned Location in Facebook Messenger
@@ -73,32 +82,15 @@ Follow these simple instructions to send a pinned location:
 
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Share Live Location or Pin It Through Facebook Messenger
 
@@ -121,14 +113,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-the-pros-and-cons-of-samsung-photo-editor/"><u>[New] Unveiling the Pros & Cons of Samsung PHOTO EDITOR</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-is-youtubes-monetization-routine/"><u>[Updated] Is YouTube’s Monetization Routine?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-drivers-for-your-hp-g2-thunderbolt-portable-charger-120-w230-w/"><u>Download Drivers for Your HP G2 Thunderbolt Portable Charger (120 W/230 W)</u></a></li>
-<li><a href="https://facebook.techidaily.com/engaging-entirety-group-post-acknowledgement-tactics/"><u>Engaging Entirety: Group Post Acknowledgement Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/fusing-frequencies-with-friends-what-could-this-mean-for-fb-and-spotify/"><u>Fusing Frequencies with Friends: What Could This Mean for FB & SPOTIFY?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On OnePlus Ace 3 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-engagement-tactics-via-facebook-stories-polls/"><u>Innovative Engagement Tactics via Facebook Stories Polls</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-social-media-landscape-mindfully/"><u>Navigating the Social Media Landscape Mindfully</u></a></li>
-<li><a href="https://win-top.techidaily.com/techniques-pour-recuperer-les-fichiers-perdus-de-visual-studio-code-non-enregistres-dans-la-corbeille-systeme/"><u>Techniques Pour Récupérer Les Fichiers Perdus De Visual Studio Code Non Enregistrés Dans La Corbeille Système</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-capture-kings-warzone/"><u>[New] In 2024, Capture Kings Warzone</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-motorola-moto-g04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-11-to-other-iphone-14-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 11 to other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-become-a-gif-artist-basic-steps/"><u>In 2024, Become a GIF Artist Basic Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-beyond-the-screen-facebooks-potential-physical-ventures/"><u>Marketing Beyond the Screen: Facebook's Potential Physical Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-glitches-and-hurdles-with-ease/"><u>Navigating FaceBook Glitches & Hurdles with Ease</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-mirari-kids-alarm-clock-your-childs-perfect-awakening-companion/"><u>Review of Mirari Kids' Alarm Clock - Your Child's Perfect Awakening Companion</u></a></li>
+<li><a href="https://facebook.techidaily.com/rooted-for-progress-what-the-unlock-of-oculus-go-means-for-enthusiasts/"><u>Rooted for Progress: What the Unlock of Oculus Go Means for Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-account-what-to-do-when-fbs-verification-fails/"><u>Securing Your Account: What to Do When FB's Verification Fails</u></a></li>
+<li><a href="https://win-dash.techidaily.com/simple-tricks-for-easy-downloading-and-installing-of-surface-book-2-drivers/"><u>Simple Tricks for Easy Downloading & Installing of Surface Book 2 Drivers</u></a></li>
 </ul></div>
 

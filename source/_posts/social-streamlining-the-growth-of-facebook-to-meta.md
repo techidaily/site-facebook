@@ -1,7 +1,7 @@
 ---
 title: "Social Streamlining: The Growth of Facebook to Meta"
-date: 2024-08-28T03:10:31.426Z
-updated: 2024-08-29T03:10:31.426Z
+date: 2024-12-05T19:04:39.135Z
+updated: 2024-12-12T23:33:21.791Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
@@ -42,15 +46,13 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2010–2012: Facebook Goes Public
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
@@ -61,9 +63,6 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
  Soon after the IPO, investors accused Facebook of misleading them about its true state while revealing the truth to only a few handpicked clients. This resulted in over 40 lawsuits and a $35 million settlement.
@@ -73,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
@@ -89,9 +89,6 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
@@ -106,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
@@ -119,22 +120,20 @@ What comes next? Massive layoffs.
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is in a Rough Place, But When Is It Not?
 
  Despite the rebranding and a new vision, Meta is not free from its past. It continues to face countless difficulties in the form of technical, legal, ethical, and social issues.
 
  But operating in challenging environments is not new for the company, and it's likely to continue recovering and growing regardless of its controversies and plunging into new territories. Only time will tell how fast it is actually able to do that, though.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +142,20 @@ What comes next? Massive layoffs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/approved-aural-clarity-unleashed-secrets-to-high-quality-audio/"><u>2024 Approved Aural Clarity Unleashed Secrets to High-Quality Audio</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-motorola-moto-g-stylus-2023-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Motorola Moto G Stylus (2023) Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-for-trump-on-meta-platforms/"><u>A New Chapter for Trump on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/advocates-push-for-better-scam-ad-detection-systems-in-social-networks/"><u>Advocates Push for Better Scam Ad Detection Systems in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-group-wide-emoticon-tags-everyone/"><u>Block Group-Wide Emoticon Tags (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-and-customize-facebook-feed-reimagined/"><u>Control & Customize – Facebook FEED Reimagined</u></a></li>
+<li><a href="https://win-forum.techidaily.com/harnessing-engagement-on-popular-networks-facebook-twitter-instagram-and-youtube-insights/"><u>Harnessing Engagement on Popular Networks: Facebook, Twitter, Instagram, and YouTube Insights</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-htc-u23-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your HTC U23 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-get-your-jabra-wireless-headset-working-again-a-step-by-step-guide/"><u>How to Get Your Jabra Wireless Headset Working Again: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-iphone-x-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T iPhone X with 3 Methods</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Spoofing Life360 How to Do it on Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329434-9798869305169-the-art-of-erotic-magic/"><u>The Art of Erotic Magic | Free Book</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/understanding-the-role-and-benefits-of-placeholder-memory-chips-for-personal-computing-enthusiasts/"><u>Understanding the Role and Benefits of Placeholder Memory Chips for Personal Computing Enthusiasts</u></a></li>
+</ul></div>
 

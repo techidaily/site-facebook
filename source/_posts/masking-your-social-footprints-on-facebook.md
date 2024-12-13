@@ -1,7 +1,7 @@
 ---
 title: Masking Your Social Footprints on Facebook
-date: 2024-08-28T03:10:41.103Z
-updated: 2024-08-29T03:10:41.103Z
+date: 2024-12-07T19:41:52.078Z
+updated: 2024-12-12T16:51:27.044Z
 tags:
   - facebook
 categories:
@@ -43,14 +43,12 @@ Follow the steps below to archive a post on Facebook.
 
 ![screen showing facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![screen showing move to archive on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-move-to-archive-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
 1. Launch the Facebook app on your device.
@@ -67,17 +65,23 @@ Here's how you can archive multiple posts at once:
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screen showing navigation to activity log on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-activity-log-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
 
 1. Navigate to your profile.
@@ -97,8 +101,9 @@ Here's how to restore archived posts on Facebook:
 ![screen showing navigation to archive page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-archive-page-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screen showing how to restore archived post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-restore-archived-post-on-Facebook.jpg)
 
 Close
@@ -111,23 +116,17 @@ Close
 
  The process is very similar on the web version of Facebook—just look out for the ellipsis and corresponding action.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Keep Your Memories Away From Prying Eyes
 
  If you want to hide old posts on Facebook but at the same time don't want to delete them, go ahead and archive them.
 
  The archived posts will only be accessible through your Archive page, and others can't see them. You can always restore an archived post anytime in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +135,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-stunning-slideshow-for-social-sharing-for-2024/"><u>[New] Stunning Slideshow for Social Sharing for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-exploring-vidmas-screen-recording-functionality/"><u>2024 Approved Exploring Vidma’s Screen Recording Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-work-with-leisure-through-facebooks-timed-notifications/"><u>Balancing Work with Leisure Through Facebook's Timed Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-digital-avatar-for-facebook/"><u>Building Your Digital Avatar for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153547452-commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs.</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/create-like-never-before-utilizing-free-dall-e-3-via-microsoft-bing/"><u>Create Like Never Before: Utilizing Free DALL-E 3 via Microsoft Bing</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722971861124-download-and-update-your-d-link-drivers-on-windows-solved/"><u>Download & Update Your D-Link Drivers on Windows: Solved!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-message-0x80071ac3-uncovering-solutions-for-a-dirty-disk-volume-issue/"><u>Error Message 0X80071AC3: Uncovering Solutions for a Dirty Disk Volume Issue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/masterclass-for-viral-talent/"><u>Masterclass for Viral Talent</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152505087-taking-privacy-to-the-next-level-facebooks-messenger-and-instagram-now-have-encrypted-conversations/"><u>Taking Privacy to the Next Level: Facebook's Messenger and Instagram Now Have Encrypted Conversations</u></a></li>
+</ul></div>
 

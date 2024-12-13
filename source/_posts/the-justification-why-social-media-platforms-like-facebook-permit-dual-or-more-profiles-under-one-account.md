@@ -1,7 +1,7 @@
 ---
 title: "The Justification: Why Social Media Platforms Like Facebook Permit Dual or More Profiles Under One Account"
-date: 2024-08-28T03:08:01.835Z
-updated: 2024-08-29T03:08:01.835Z
+date: 2024-12-11T23:35:15.480Z
+updated: 2024-12-12T21:21:10.318Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/185bd2e3ee5add750b89a3f134c1fcf3132bd9314
 
  Yet social media allows everyone to see what you are saying or doing with your friends, unless you take steps to restrict your account. In order to address this, Meta is testing a feature that will allow users to maintain up to five separate profiles under the same Facebook account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Coming Soon: One Facebook Account, 5 Profiles
 
 ![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta prohibits users from having more than one Facebook account. However, the company is testing a way for users to have more than one profile connected to their account, as first reported by[Bloomberg](https://www.bloomberg.com/news/articles/2022-07-14/meta-to-start-letting-facebook-users-have-up-to-five-profiles) .
 
@@ -34,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/185bd2e3ee5add750b89a3f134c1fcf3132bd9314
  However, the main profile will continue to be under your real name. Certain Facebook features, such as[Facebook Dating](https://www.makeuseof.com/what-is-facebook-dating/) and the ability to create a page, will only be available to the main profile.
 
  Your overall account will also remain subject to Facebook's disciplinary procedures should any of the profiles violate Facebook's rules.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Now Allowing Multiple Profiles?
 
@@ -48,22 +60,20 @@ thumbnail: https://thmb.techidaily.com/185bd2e3ee5add750b89a3f134c1fcf3132bd9314
  Multiple profiles may help Facebook to stop[bleeding young users](https://www.makeuseof.com/why-facebook-is-losing-users/) to rivals like TikTok, who don't necessarily want their parents, relatives, strangers, or co-workers to see everything they are doing online with their friends.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Boost to Privacy
 
  This new feature, when fully rolled out, should help users experience Facebook more discreetly, which should be a boost to online privacy.
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,4 +82,24 @@ thumbnail: https://thmb.techidaily.com/185bd2e3ee5add750b89a3f134c1fcf3132bd9314
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-list-of-top-tier-cameras/"><u>[Updated] In 2024, The Ultimate List of Top-Tier Cameras</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-record-your-mac-view-in-minutes-in-2024/"><u>[Updated] Record Your Mac View in Minutes, In 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-guide-perfect-your-youtube-video-looping-game/"><u>2024 Approved How-To Guide Perfect Your YouTube Video Looping Game</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-quickcapture-stopping-and-saving-screen-moments/"><u>2024 Approved QuickCapture Stopping & Saving Screen Moments</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-public-friend-access-to-profile/"><u>Adjusting Public Friend Access to Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-system-for-unsolicited-pcemail-activity/"><u>Alert System for Unsolicited PC/Email Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-and-facebook-charting-two-unrelated-futures/"><u>Apple and Facebook: Charting Two Unrelated Futures</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-online-presence-with-privacy-a-pre-deletion-guide/"><u>Balancing Online Presence with Privacy: A Pre-Deletion Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-gain-foothold-with-instagram-and-facebook-ad-integrations/"><u>Brands Gain Foothold with Instagram and Facebook Ad Integrations</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-shareholders-of-facebook/"><u>Current Shareholders of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybernetic-cautionary-tales-decode-these-9-indicators-of-a-social-snatch/"><u>Cybernetic Cautionary Tales: Decode These 9 Indicators of a Social Snatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-defenders-guide-skip-three-snooping-apps/"><u>Data Defender's Guide: Skip Three Snooping Apps</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exclusive-guide-to-the-ultimate-magsafe-wallet-selection-testing-and-insights-from-industry-leaders-zdnet/"><u>Exclusive Guide to the Ultimate MagSafe Wallet Selection - Testing & Insights From Industry Leaders | ZDNet</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723125150766-get-ready-for-the-k1c-creality-shares-exciting-launch-date-price-tag-and-full-technical-specifications/"><u>Get Ready for the K1C: Creality Shares Exciting Launch Date, Price Tag & Full Technical Specifications</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Honor 90 Lite? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-se-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone SE Properly | Dr.fone</u></a></li>
+</ul></div>
 

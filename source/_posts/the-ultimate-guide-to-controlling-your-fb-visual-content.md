@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Guide to Controlling Your Fb Visual Content
-date: 2024-08-28T03:07:23.798Z
-updated: 2024-08-29T03:07:23.798Z
+date: 2024-12-05T17:41:04.121Z
+updated: 2024-12-12T18:54:06.060Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,13 @@ thumbnail: https://thmb.techidaily.com/238e2de8d5663845563adee13d68f244664dc4975
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Inline Privacy Controls
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
  When you upload a new picture to Facebook, you can use the same privacy controls as you do for regular text posts. In the upper left-hand corner of the new post box, you'll see a dropdown menu. This menu controls who can see the post.
@@ -64,12 +61,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -80,9 +74,6 @@ No advertising on the website.
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
@@ -97,6 +88,10 @@ No advertising on the website.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -110,21 +105,17 @@ No advertising on the website.
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
@@ -133,14 +124,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +137,24 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-dynamic-timelines-constructing-animated-narratives-in-movie-maker/"><u>[New] In 2024, Dynamic Timelines Constructing Animated Narratives in Movie Maker</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-effortless-view-growth-uncovering-the-best-video-tips-and-hacks/"><u>[Updated] 2024 Approved Effortless View Growth Uncovering the Best Video Tips and Hacks</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-joining-the-world-of-live-broadcasts-a-roku-primer/"><u>[Updated] In 2024, Joining the World of Live Broadcasts A Roku Primer</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-pro-tips-for-utilizing-green-screen-effects-professionally-for-2024/"><u>[Updated] Pro Tips for Utilizing Green Screen Effects Professionally for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-tips-to-avoid-phishing-scams-on-facebook/"><u>8 Tips to Avoid Phishing Scams on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-ultimate-tools-for-perfectly-timed-posts/"><u>9 Ultimate Tools for Perfectly Timed Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-private-portfolio-tailoring-fb-image-settings/"><u>A Private Portfolio: Tailoring FB Image Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-whisper-walls-strong-in-fb-messenger/"><u>Are Whisper Walls Strong in FB Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/artists-guide-seizing-the-opportunity-in-fbs-new-payment-system/"><u>Artists' Guide: Seizing the Opportunity in FB’s New Payment System</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-path-for-artists-to-monetize-their-songs-via-fb/"><u>Charting a Path for Artists to Monetize Their Songs via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-real-connections-disconnect-from-fb/"><u>Cultivate Real Connections, Disconnect From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-off-virtual-vines-a-guide-to-permanent-disconnection/"><u>Cutting Off Virtual Vines: A Guide to Permanent Disconnection</u></a></li>
+<li><a href="https://windows11.techidaily.com/fast-forwarding-copy-and-paste-custom-hotkeys-for-text-snaps-in-win11/"><u>Fast-Forwarding Copy & Paste: Custom Hotkeys for Text Snaps in Win11</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maximize-your-horizon-zero-dawn-adventure-with-optimal-fps-enhancement-techniques/"><u>Maximize Your Horizon Zero Dawn Adventure with Optimal FPS Enhancement Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-m4a-ogv/"><u>Movavi 電影編碼轉換器 - 免費線上更改 M4A 成 OGV格式</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ta-sygkrismata-glwttothpeioy-ston-eyxhs/"><u>Τα Συγκρίσματα Γλωττοτηπειού Στον Ευχής</u></a></li>
+</ul></div>
 

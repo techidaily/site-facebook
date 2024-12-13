@@ -1,7 +1,7 @@
 ---
 title: What Is a Facebook Cloning Scam?
-date: 2024-11-21T17:49:27.823Z
-updated: 2024-11-27T14:29:03.484Z
+date: 2024-12-08T20:34:58.162Z
+updated: 2024-12-12T17:17:47.592Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Facebook Account Cloning Scam?
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  The more they trick into adding them, the more legit their accounts will look like.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Do Scammers Clone Accounts?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Cloning vs. Facebook Hacking
@@ -67,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Unlike hacking, cloning simply means copying your account, then pretending to be you without gaining access to your real account.
 
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Has Been Cloned
 
@@ -83,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Protect Yourself From Facebook Account Cloning
@@ -95,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Only add people you know and trust on Facebook. Always double-check if accounts are legit before approving a connection request.
 
  Also, set your friends list to private so scammers can’t target them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Is Public
 
@@ -137,20 +137,14 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-strategies-for-chronicling-lol-showdowns/"><u>[New] Top Strategies for Chronicling LOL Showdowns</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-exclusive-choice-of-cost-free-chat-apps-plus-desktop-viewing/"><u>[Updated] 2024 Approved Exclusive Choice of Cost-Free Chat Apps + Desktop Viewing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-insiders-handbook-to-whatsapp-hidden-features/"><u>[Updated] 2024 Approved The Insider's Handbook to WhatsApp Hidden Features</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-3-unconventional-tactics-for-subscriber-growth-for-2024/"><u>[Updated] 3 Unconventional Tactics for Subscriber Growth for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-wants-10000-workers-to-build-the-metaverse-could-you-be-one-of-them/"><u>Facebook Wants 10,000 Workers to Build the Metaverse: Could You Be One of Them?</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-memory-purgatory-how-to-uninvite-acquaintances/"><u>FB's Memory Purgatory: How to Uninvite Acquaintances</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-y78plus-t1-edition-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Y78+ (T1) Edition.</u></a></li>
-<li><a href="https://techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-apple-iphone-12-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-fix-the-apple-iphone-se-2020-gps-not-working-issue-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix the Apple iPhone SE (2020) GPS not Working Issue | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-use-of-facebooks-daily-alert-for-rest-breaks/"><u>Strategic Use of Facebook's Daily Alert for Rest Breaks</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/the-ultimate-guide-to-gopro-quik-and-its-pc-counterparts-for-2024/"><u>The Ultimate Guide to GoPro Quik and Its PC Counterparts for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-pattern-4-signs-that-point-to-lesser-usage-on-fb/"><u>Understanding the Pattern: 4 Signs That Point to Lesser Usage on FB</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlocking-extra-convenience-with-your-electric-vehicle-hov-lane-use-and-preferred-parking-options/"><u>Unlocking Extra Convenience with Your Electric Vehicle: HOV Lane Use and Preferred Parking Options</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ocusing-attention-with-eye-catching-intros-in-imovie/"><u>[New] Focusing Attention with Eye-Catching Intros in iMovie</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-artistic-additions-free-designs-for-youtube-crafting/"><u>[Updated] 2024 Approved Artistic Additions Free Designs for YouTube Crafting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-elevate-ig-stories-with-seamless-audio-integration/"><u>[Updated] In 2024, Elevate IG Stories With Seamless Audio Integration</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-innovating-character-size-in-tiktok-a-visual-guide/"><u>2024 Approved Innovating Character Size in TikTok A Visual Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-login-attempt-success-rate-on-facebook-code-fix/"><u>Enhancing Login Attempt Success Rate on Facebook (Code Fix)</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustle-your-guide-to-evasion-strategies/"><u>High-Tech Hustle: Your Guide to Evasion Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/implementing-instagram-story-opinion-polls-effectively/"><u>Implementing Instagram Story Opinion Polls Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-photodna-process-for-identifying-forged-images/"><u>Insight Into PhotoDNA: Process for Identifying Forged Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ethics-enforcement-properly-ban-trump-but-for-how-long/"><u>Online Ethics Enforcement: Properly Ban Trump, But for How Long?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2024-12-03T22:58:14.717Z
-updated: 2024-12-06T23:25:32.030Z
+date: 2024-12-10T18:51:36.993Z
+updated: 2024-12-12T19:44:56.942Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India's New IT Rules Threaten User Privacy
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
@@ -99,24 +99,21 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-techniques-for-blurring-and-excising-picture-borders/"><u>[New] Techniques for Blurring and Excising Picture Borders</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-exploring-previous-images-3-inverse-search-methods-on-social-media/"><u>[Updated] 2024 Approved Exploring Previous Images 3 Inverse Search Methods on Social Media</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-efficient-fortnite-imagery-design-quickly/"><u>[Updated] Efficient Fortnite Imagery Design Quickly</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-essential-directory-of-public-domain-gaming-melodies/"><u>[Updated] In 2024, Essential Directory of Public Domain Gaming Melodies</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-free-methods-to-schedule-facebook-updates/"><u>5 Free Methods to Schedule Facebook Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-intractability-of-social-media-feeds/"><u>Dissecting the Intractability of Social Media Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminate-yourself-from-facebook-shared-pics/"><u>Eliminate Yourself From Facebook Shared Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/exiting-the-browser-without-using-fb-app/"><u>Exiting the Browser Without Using FB App</u></a></li>
-<li><a href="https://fox-that.techidaily.com/face-id-not-working-or-unavailable-on-your-iphone-here-are-14-fixes-to-try/"><u>Face ID Not Working or Unavailable on Your iPhone? Here Are 14 Fixes to Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-new-front-in-the-war-against-misinformation/"><u>FB's New Front in the War Against Misinformation</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-facebook-today-memories/"><u>Harnessing the Power of Facebook Today Memories</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-iphone-14-plus-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen iPhone 14 Plus In Different Conditionsin</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-masterful-descriptions-for-youtube-success/"><u>In 2024, Masterful Descriptions for YouTube Success</u></a></li>
-<li><a href="https://win-dash.techidaily.com/iphones-androids/"><u>IPhones, Androidsで着信音に使えるダウンロード楽曲の変更方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-visuals-for-an-attention-grabbing-timeline-experience/"><u>Leveraging Visuals for an Attention-Grabbing Timeline Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/react-quickly-regain-authority-over-compromised-facebook-account/"><u>React Quickly: Regain Authority Over Compromised Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-social-media-renewing-your-facebook-password/"><u>Secure Your Social Media - Renewing Your Facebook Password</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/tomtoms-next-gen-adventure-cameras-the-bandit-review-for-2024/"><u>TomTom’s Next-Gen Adventure Cameras The Bandit Review for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-a54-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy A54 5G Location | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-crafting-the-rhythm-adding-beats-and-melodies-to-your-fb-vids/"><u>[New] 2024 Approved Crafting the Rhythm Adding Beats and Melodies to Your FB Vids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-snapshare-success-the-videoviral-story/"><u>[New] 2024 Approved SnapShare Success The #VideoViral Story</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlock-video-clarity-adding-captions-on-youtube/"><u>[New] Unlock Video Clarity Adding Captions on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-iphone-time-travel-mastering-prolonged-photo-captures/"><u>2024 Approved IPhone Time Travel Mastering Prolonged Photo Captures</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ultimate-guide-for-transforming-youtube-videos-into-animated-gifs/"><u>2024 Approved The Ultimate Guide for Transforming YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-verification-protocols/"><u>Decoding Facebook's Verification Protocols</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-an-impactful-social-media-narrative/"><u>Designing an Impactful Social Media Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dominance-claiming-the-top-tier-title-meta-gold-or-twitters-bronze/"><u>Digital Dominance: Claiming the Top Tier Title – Meta-Gold or Twitter's Bronze?</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-fbs-security-on-lost-phones-in-minutes/"><u>Disabling FB's Security on Lost Phones in Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-shared-passions-via-chatting-game-surveys/"><u>Discovering Shared Passions via Chatting Game Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-selection-of-your-facebook-promotions/"><u>Dissecting the Selection of Your Facebook Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-career-with-facebooks-business-tools/"><u>Elevate Your Career with Facebook's Business Tools</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/mobile-media-mastery-best-mp4-to-mp3-converter-apps/"><u>Mobile Media Mastery Best MP4 to MP3 Converter Apps</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-the-failed-to-load-steamuidll-problem-in-steam-game-launcher/"><u>Overcoming the 'Failed to Load steamui.dll' Problem in Steam Game Launcher</u></a></li>
+<li><a href="https://win11.techidaily.com/resurrecting-editability-in-win-folders-with-ease/"><u>Resurrecting Editability in Win Folders with Ease</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/unseen-snaps-and-hushed-user-signal-to-check-for-blocks-for-2024/"><u>Unseen Snaps and Hushed User Signal to Check for Blocks for 2024</u></a></li>
 </ul></div>
 

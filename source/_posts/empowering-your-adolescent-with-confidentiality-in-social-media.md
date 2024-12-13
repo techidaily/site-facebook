@@ -1,7 +1,7 @@
 ---
 title: Empowering Your Adolescent with Confidentiality in Social Media
-date: 2024-10-13T17:09:43.457Z
-updated: 2024-10-21T00:01:03.923Z
+date: 2024-12-07T23:54:44.350Z
+updated: 2024-12-12T19:36:18.379Z
 tags:
   - facebook
 categories:
@@ -33,24 +33,18 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -84,24 +78,18 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -111,6 +99,10 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -133,22 +125,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-enlightening-the-path-to-professional-photo-videos-with-pixiz/"><u>[New] 2024 Approved Enlightening the Path to Professional Photo Videos with Pixiz</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-quintessential-storytelling-transforming-film-art/"><u>[Updated] Quintessential Storytelling Transforming Film Art</u></a></li>
-<li><a href="https://facebook.techidaily.com/collective-charisma-cultivating-a-thriving-online-band/"><u>Collective Charisma: Cultivating a Thriving Online Band</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-conquest-raising-the-bar-for-your-fb-group/"><u>Community Conquest: Raising the Bar for Your Fb Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/designing-a-digital-lifestyle-with-controlled-internet-use/"><u>Designing a Digital Lifestyle with Controlled Internet Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/dial-down-mobile-browsing-capabilities-fb/"><u>Dial Down Mobile Browsing Capabilities: FB</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-15-premier-free-bootable-security-software-for-your-systems-safety/"><u>Discover the 15 Premier Free Bootable Security Software for Your System's Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/enriched-by-online-interaction-top-7-social-gains-for-society/"><u>Enriched By Online Interaction: Top 7 Social Gains for Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/finding-the-sign-up-date-that-marked-my-facebook-experience/"><u>Finding The Sign-Up Date That Marked My Facebook Experience</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-google-pixel-7a-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Google Pixel 7a to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-how-to-preserve-and-access-your-favorite-discord-livestreams-easily/"><u>In 2024, How to Preserve and Access Your Favorite Discord Livestreams Easily</u></a></li>
-<li><a href="https://article-tips.techidaily.com/master-the-art-of-iphone-image-rotation-effortless-methods-for-2024/"><u>Master the Art of iPhone Image Rotation - Effortless Methods for 2024</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/1726030645903-pc/"><u>PC で文章の音声再生と録音の手順</u></a></li>
-<li><a href="https://facebook.techidaily.com/preemptive-strike-against-potential-digital-intruders-on-fb/"><u>Preemptive Strike Against Potential Digital Intruders on FB</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-start-guide-to-windows-11-apps/"><u>Quick Start Guide to Windows 11 Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/tethered-to-trust-a-dive-into-cryptocurrency-stability-coins/"><u>Tethered to Trust: A Dive Into Cryptocurrency Stability Coins</u></a></li>
-<li><a href="https://win-forum.techidaily.com/transforme-sus-archivos-flv-en-canciones-mp3-sin-costo-adicional-guia-de-movavi/"><u>Transforme Sus Archivos FLV en Canciones MP3 Sin Costo Adicional: Guía De Movavi</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-facebook-messenger-video-downloaders/"><u>[New] In 2024, Facebook Messenger Video Downloaders</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-automating-your-channels-youtube-subscription-link/"><u>[Updated] 2024 Approved Automating Your Channel's YouTube Subscription Link</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-videocapture-analysis-hub/"><u>[Updated] In 2024, VideoCapture Analysis Hub</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-motorola-edge-40-pro-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Motorola Edge 40 Pro Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/get-your-favorite-easter-designs-freebie-wallpapers-with-adorable-bunnies-and-colorful-eggs-for-all-platforms/"><u>Get Your Favorite Easter Designs: Freebie Wallpapers with Adorable Bunnies & Colorful Eggs for All Platforms</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-androids-compendium-for-synchronized-and-curved-videography/"><u>In 2024, Android's Compendium for Synchronized & Curved Videography</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-epson-wf-7710-drivers-on-various-windows-versions-download-guide-and-links/"><u>Install Epson WF-7710 Drivers on Various Windows Versions: Download Guide & Links</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mac-users-guide-to-legally-saving-disney-movie-discs-with-drm-for-personal-use/"><u>Mac Users' Guide to Legally Saving Disney Movie Discs with DRM for Personal Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-smm-strategies-via-ripl/"><u>Maximizing Impact: SMM Strategies via Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-fb-and-insta-chats-pending-until-2022-approval/"><u>Privacy in FB and Insta Chats Pending Until 2022 Approval</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-to-avoiding-facebook-tagged-photo-spots/"><u>Secrets to Avoiding Facebook Tagged Photo Spots</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-on-your-preferred-snapchatinstatiktok/"><u>Spotlight on Your Preferred Snapchat/Insta/TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-5-free-facebook-update-scheduling-techniques/"><u>Strategic Planning: 5 Free Facebook Update Scheduling Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/together-for-tomorrow-facebook-backs-rust-initiative/"><u>Together for Tomorrow: Facebook Backs Rust Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-online-communities-are-fading-away-to-social-networks/"><u>Why Online Communities Are Fading Away to Social Networks</u></a></li>
 </ul></div>
 

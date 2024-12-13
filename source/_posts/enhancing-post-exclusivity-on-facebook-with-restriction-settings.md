@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-12-02T18:51:14.691Z
-updated: 2024-12-06T16:33:39.832Z
+date: 2024-12-05T17:01:57.361Z
+updated: 2024-12-12T16:47:55.599Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Restricted List on Facebook?
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -57,13 +57,13 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -87,20 +87,20 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-go-live-in-style-a-detailed-guide-to-youtubes-full-sphere-videos/"><u>[Updated] 2024 Approved Go Live in Style A Detailed Guide to YouTube's Full-Sphere Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-how-to-stream-a-pre-recorded-video-live-on-facebook/"><u>[Updated] 2024 Approved How to Stream A Pre-Recorded Video Live on Facebook?</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-electorate-enthrallment-best-politic-based-game-reviews/"><u>2024 Approved Electorate Enthrallment Best Politic-Based Game Reviews</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-effective-money-making-tactics-on-social-platforms/"><u>5 Effective Money-Making Tactics on Social Platforms</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-oppo-reno-11-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-guide-to-understanding-netflix-as-a-digital-entertainment-hub/"><u>Comprehensive Guide to Understanding Netflix as a Digital Entertainment Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/deny-hidden-network-proposals-on-social-site/"><u>Deny Hidden Network Proposals on Social Site</u></a></li>
-<li><a href="https://facebook.techidaily.com/engaging-potential-candidates-tips-on-posting-jobs-on-facebook/"><u>Engaging Potential Candidates: Tips on Posting Jobs on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-threads-is-shutting-down-in-december-heres-why/"><u>Instagram Threads Is Shutting Down in December: Here's Why</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1726228164844-movavi-202/"><u>Movavi视频编辑器 202</u></a></li>
-<li><a href="https://extra-support.techidaily.com/navigating-the-process-of-avi-to-gif-conversion-using-filmora-software-for-2024/"><u>Navigating the Process of AVI-to-GIF Conversion Using Filmora Software for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-secret-keepers-playbook-private-photos-on-fb/"><u>The Secret Keeper’s Playbook: Private Photos on FB</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-ultimate-guide-to-premium-hardware-by-tom-in-depth-analysis-and-comparisons/"><u>The Ultimate Guide to Premium Hardware by Tom - In-Depth Analysis & Comparisons</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-new-facebook-structure-revelations/"><u>Understanding New Facebook Structure Revelations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-immersive-entertainment-showdown-google-cardboard-and-samsung-gear/"><u>[New] Immersive Entertainment Showdown Google Cardboard & Samsung Gear</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-adding-apple-music-a-guide-to-enhanced-videos/"><u>[New] In 2024, Adding Apple Music A Guide to Enhanced Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-zoom-skype-integration-secrets-to-ultimate-video-conferencing-for-2024/"><u>[Updated] ZOOM-Skype Integration Secrets to Ultimate Video Conferencing for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-boost-your-creative-output-mastering-template-centric-video-making-for-tiktok/"><u>2024 Approved Boost Your Creative Output Mastering Template-Centric Video Making for TikTok</u></a></li>
+<li><a href="https://win-data.techidaily.com/comment-resetter-son-ordinateur-sous-windows-11-en-quatre-etapes-simples/"><u>Comment Resetter Son Ordinateur Sous Windows 11 en Quatre Étapes Simples</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-honor-magic-6-lite-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-v2-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic V2 To Phone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-xiaomi-13-ultra-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Xiaomi 13 Ultra to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-personal-information-change-facebooks-birth-details/"><u>Revamping Personal Information: Change Facebook's Birth Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-clarity-in-contempt-for-global-connectivity-websites/"><u>Seeking Clarity in Contempt for Global Connectivity Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/slimmer-apps-the-speedy-alternatives-to-large-titles/"><u>Slimmer Apps: The Speedy Alternatives to Large Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-enable-facebooks-protective-features/"><u>Step-by-Step Guide to Enable Facebook's Protective Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/touch-and-tap-are-they-boosting-user-engagement-on-facebook/"><u>Touch & Tap: Are They Boosting User Engagement on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-art-and-tech-meta-drops-trial-launch/"><u>Transforming Art and Tech: Meta Drops' Trial Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-previously-shared-stories-on-facebook/"><u>Unlocking Your Previously Shared Stories on Facebook</u></a></li>
 </ul></div>
 

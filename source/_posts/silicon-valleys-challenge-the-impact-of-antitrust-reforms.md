@@ -1,7 +1,7 @@
 ---
 title: "Silicon Valley's Challenge: The Impact of Antitrust Reforms"
-date: 2024-08-28T03:08:22.174Z
-updated: 2024-08-29T03:08:22.174Z
+date: 2024-12-07T18:14:30.966Z
+updated: 2024-12-12T20:51:07.024Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
  Marketplace owners, Amazon being one very clear example, will no longer be allowed to promote their own products over others using their platform. Other concerns, such as the eradication of nascent competition by winner-take-all acquisition, are also on the table for discussion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
@@ -37,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
  Those intimately involved with the platform's operation will no longer be able to use their behind-the-scenes edge to their own gain. Practices that prevent smaller brands from gaining traction will also be targeted under this section.
@@ -53,9 +57,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -68,6 +69,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -78,9 +83,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -92,20 +94,13 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -119,22 +114,20 @@ Finally, we come to the economic backing to make it all happen.
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +136,24 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-converting-tweeted-videos-into-playable-mp3-tracks/"><u>[Updated] 2024 Approved Converting Tweeted Videos Into Playable MP3 Tracks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-drive-more-watch-time-not-churn-discover-the-top-6-techniques-on-youtube/"><u>[Updated] In 2024, Drive More Watch Time, Not Churn Discover the Top 6 Techniques on YouTube</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-simplifying-subtitle-addition-in-multilingual-vimeo-video-platforms-for-2024/"><u>[Updated] Simplifying Subtitle Addition in Multilingual Vimeo Video Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-transformative-beauty-tutorials-for-everyone/"><u>[Updated] Transformative Beauty Tutorials for Everyone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-prodigious-portfolio-creation-best-free-mac-software/"><u>2024 Approved Prodigious Portfolio Creation Best FREE Mac Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-anarchy-multiple-social-platforms-offline/"><u>App Anarchy: Multiple Social Platforms OFFLINE</u></a></li>
+<li><a href="https://facebook.techidaily.com/artists-gear-up-instagram-rolls-out-more-money-making-methods/"><u>Artists, Gear Up! Instagram Rolls Out More Money-Making Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-consequences-before-you-unfollow-everyone/"><u>Assessing Consequences Before You Unfollow Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-a-new-perspective-on-fb-numbers/"><u>Beyond Likes and Shares - A New Perspective on FB Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-barriers-to-facebooks-sealed-content/"><u>Bypassing Barriers to Facebook's Sealed Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tips-to-enhance-security-with-2fa-in-popular-e-mail-services/"><u>Comprehensive Tips to Enhance Security with 2FA in Popular E-Mail Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-gaining-ground-expect-more-platform-ads/"><u>Cryptos Gaining Ground: Expect More Platform Ads</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-samsung-galaxy-a25-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Samsung Galaxy A25 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/journey-to-the-core-of-instagram-finding-all-about-free-filters/"><u>Journey to the Core of Instagram Finding All About Free Filters</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/soundtracking-dreams-an-overview-of-magix-fx-for-2024/"><u>Soundtracking Dreams An Overview of Magix FX for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145204607-unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily.</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/yac561-yamahaaturbosound-ii-sound-module-based-on-the-ymf794fymu3x-dsp-plus-midi-synthesader-plus-codec-and-256-mb-of-spiram-for-sample-storage-instead-of-r120/"><u>YAC561 - Yamaha'aturboSound II Sound Module Based on the YMF794F/YMU^3X (DSP + MIDI Synthesader + Codec) and 256 MB of SPIRAM for Sample Storage Instead of ROM. It Also Includes a Second Audio Input Connector</u></a></li>
+</ul></div>
 

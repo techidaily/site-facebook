@@ -1,7 +1,7 @@
 ---
 title: Facebook Symbol Meanings, Explained (and How to Use Them Properly)
-date: 2024-11-24T07:53:30.832Z
-updated: 2024-11-26T16:33:37.157Z
+date: 2024-12-06T19:49:31.558Z
+updated: 2024-12-12T19:04:26.618Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Social Facebook Symbols
@@ -42,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
 
  To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Create Post Symbols
 
  Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
@@ -58,9 +54,17 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
 
 ![Facebook Icons When Creating a Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-icons-when-creating-a-post.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Hitting**More** shows the rest of the options that you have when creating a post on Facebook. This includes GIFs and raising money on the website. On mobile, you also get icons for music, the camera, and your post's background color.
 
 ![More Tools for Creating a Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/more-tools-for-creating-a-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  On the**Create post** window, you're also able to add emojis with the convenient**Emoji** icon nearby. The**Feeling/activity** button offers even more ways to share your emotions.
 
@@ -81,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
 ![Symbols for Post Audience Facebook Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/symbols-for-post-audience-facebook-options.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What do these Facebook symbols mean?
@@ -100,7 +104,7 @@ What do these Facebook symbols mean?
  All-in-all, creating a Facebook post comes with a great many symbols and tools, but the above are the most essential.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Icons When Managing Facebook Posts
@@ -125,19 +129,23 @@ What do these Facebook symbols mean?
 
  Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Navigation Symbols
 
  There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Menu Icons
 
  On the right side of this toolbar, you'll notice three buttons. The first pulls out a menu where you can find friends, search local events, create posts, stories, pages, or ads, and do a host of other things.
 
 ![Menu Icons on Facebook Web App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/menu-icons-on-facebook-web-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The second is a shortcut to Facebook Messenger, where you can get in touch with your friends via direct message and group chat. You can customize your Messenger settings here, too.
 
@@ -163,10 +171,6 @@ What do these Facebook symbols mean?
 
 ![Icons on Facebook's Navigation Sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/icons-on-facebook-s-navigation-sidebar.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Didn't realize you could do so much on Facebook? We're barely getting started. Hit**See More** for everything this sidebar has to offer, such as:
 
 * **Ad Centre** : Create and view your page adverts.
@@ -189,10 +193,6 @@ What do these Facebook symbols mean?
 * **Saved** : View your collection of Saved Facebook posts.
 
  Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Symbols on Facebook: Explained
 
@@ -217,24 +217,15 @@ What do these Facebook symbols mean?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-professional-footage-with-top-tier-stabilizers/"><u>[Updated] In 2024, Professional Footage with Top-Tier Stabilizers</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-stratagem-starter-kit-unboxing-business-growth/"><u>[Updated] In 2024, Stratagem Starter Kit Unboxing Business Growth</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-voice-transformation-tools-for-personal-use/"><u>[Updated] In 2024, Top Voice Transformation Tools for Personal Use</u></a></li>
-<li><a href="https://extra-information.techidaily.com/5-tools-to-make-a-gif-meme/"><u>5 Tools to Make a GIF Meme</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effortlessly-disable-driver-signing-in-windows-11-step-by-step-tutorial/"><u>Effortlessly Disable Driver Signing in Windows 11 - Step-by-Step Tutorial</u></a></li>
-<li><a href="https://media-tips.techidaily.com/essential-guide-to-windows-10-updates-and-top-features-explored/"><u>Essential Guide to Windows 10 Updates and Top Features Explored</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-offers-acer-electronics-at-bargain-prices-on-prime-day-2024/"><u>Exclusive Offers: Acer Electronics at Bargain Prices on Prime Day 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-upgrades-text-based-interaction-with-new-messaging-innovations-in-messenger-and-instagram/"><u>FB Upgrades Text-Based Interaction with New Messaging Innovations in Messenger & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/group-up-uncover-these-top-6-social-advantages/"><u>Group Up! Uncover These Top 6 Social Advantages</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-poco-c55-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Poco C55 Android SIM Unlock APK</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-rewinds-time-for-trumps-profile/"><u>Meta Rewinds Time for Trump's Profile</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/pazera-free-audio-extractor-review-2024/"><u>Pazera Free Audio Extractor Review 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/recognizing-9-flaws-that-suggest-hacked-profiles/"><u>Recognizing 9 Flaws That Suggest Hacked Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/riding-against-tides-why-facebook-may-survive/"><u>Riding Against Tides: Why Facebook May Survive</u></a></li>
-<li><a href="https://facebook.techidaily.com/soundscapes-of-socialization-facebooks-latest-features/"><u>Soundscapes of Socialization: Facebook's Latest Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-propel-engagement-in-fb-discussions/"><u>The Ultimate Guide to Propel Engagement in FB Discussions</u></a></li>
-<li><a href="https://facebook.techidaily.com/trump-files-suit-alleging-suppression-by-google-twitter/"><u>Trump Files Suit Alleging Suppression by Google, Twitter</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfollow-unfriend-actions-prior-to-facebook-deletion/"><u>Unfollow, Unfriend: Actions Prior to Facebook Deletion</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/ways-to-watch-facebook-live-on-tv-for-2024/"><u>Ways To Watch Facebook Live On TV for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-step-by-step-guide-to-youtube-sound-placement/"><u>[New] 2024 Approved Step-by-Step Guide to Youtube Sound Placement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-the-9-best-smartphone-camera-accessories-for-vloggers/"><u>[Updated] 2024 Approved The 9 Best Smartphone Camera Accessories for Vloggers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlocking-tiktok-potential-how-to-upload-from-pcmac/"><u>[Updated] In 2024, Unlocking TikTok Potential How to Upload From PC/Mac</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-adhering-to-correct-aspect-ratio-in-twitter-videos/"><u>2024 Approved Adhering to Correct Aspect Ratio in Twitter Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-tips-for-captivate-based-demos/"><u>Expert Tips for Captivate-Based Demos</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-forgotten-here-are-10-reasons-to-disconnect-and-refocus-your-life/"><u>Facebook Forgotten? Here Are 10 Reasons to Disconnect and Refocus Your Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-portal-which-model-should-you-invest-in/"><u>Facebook Portal: Which Model Should You Invest In?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/netflix-not-playing-right-19-effective-strategies-to-fix-streaming-issues-on-lg-screens/"><u>Netflix Not Playing Right? 19 Effective Strategies to Fix Streaming Issues on LG Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-and-surf-smart-identifying-9-security-alarms-online/"><u>Protect & Surf Smart - Identifying 9 Security Alarms Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-duel-is-tiktok-ending-facebooks-dominance/"><u>The Digital Duel: Is TikTok Ending Facebook’s Dominance?</u></a></li>
 </ul></div>
 

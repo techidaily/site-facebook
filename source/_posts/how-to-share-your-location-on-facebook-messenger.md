@@ -1,7 +1,7 @@
 ---
 title: How to Share Your Location on Facebook Messenger
-date: 2024-08-28T03:09:27.836Z
-updated: 2024-08-29T03:09:27.836Z
+date: 2024-12-08T21:19:53.741Z
+updated: 2024-12-12T18:11:11.583Z
 tags:
   - facebook
 categories:
@@ -35,15 +35,27 @@ thumbnail: https://thmb.techidaily.com/9105fef2820e9cb0cafb243a0fa4a6bdd2cfafcad
 
 ![Location Sharing Direction Icon In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/2-Location-Sharing-Direction-Icon-In-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Permitting Facebook to Access Location in Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/3-Permitting-Facebook-to-Access-Location-in-Facebook-Messenger.jpg)
 
 ![Live Location Shared In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/4-Live-Location-Shared-In-Facebook-Messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  By following the above steps, you will be able to send your live location to your contact. Your location will update in real-time, so the person you've shared it with can follow your progress.
 
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Share a Pinned Location in Facebook Messenger
 
@@ -59,6 +71,10 @@ Follow these simple instructions to send a pinned location:
 
 ![Location Option to Pin a Specific Location In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/5-Location-Option-to-Pin-a-Specific-Location-In-Facebook-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
@@ -68,22 +84,20 @@ Close
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Share Live Location or Pin It Through Facebook Messenger
 
  Whether you're sharing your live location or a pinned position, Facebook Messenger makes navigation easier for you and your loved ones.
 
  Besides Messenger, A few other Android apps also allow you to find your friends via GPS, such as Glympse, Family Locator, Geo Tracker, etc.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,4 +106,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-essential-steps-for-adobe-presenter-recordings/"><u>[Updated] 2024 Approved Essential Steps for Adobe Presenter Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-make-money-on-youtube-shorts-effective-practical-ways/"><u>[Updated] 2024 Approved How to Make Money on YouTube Shorts? [Effective Practical Ways]</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-best-child-safe-cameras-for-first-time-vloggers-and-puddles/"><u>[Updated] The Best Child-Safe Cameras For First-Time Vloggers & Puddles</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-fostering-unseen-dialogue-in-social-networks/"><u>A Step-by-Step Guide to Fostering Unseen Dialogue in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-fb-push-notifications-and-messages-easily/"><u>Banish FB Push Notifications and Messages Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-beats-with-networking-what-could-this-mean-for-fb-and-spotify/"><u>Blending Beats with Networking: What Could This Mean for FB & SPOTIFY?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/cyberpunk-2077-resolved-fixing-the-drop-in-frames-per-second-fps/"><u>Cyberpunk 2077 Resolved: Fixing the Drop in Frames Per Second (FPS)</u></a></li>
+<li><a href="https://win11.techidaily.com/navigate-efficiently-control-windows-post-dim-display/"><u>Navigate Efficiently: Control Windows Post-Dim Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151595091-securely-engage-with-friends-on-facebook-heres-how/"><u>Securely Engage with Friends on Facebook, Here’s How!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/step-by-step-guide-clearing-out-songs-on-your-ipad-to-gain-extra-storage/"><u>Step-by-Step Guide: Clearing Out Songs on Your iPad to Gain Extra Storage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-essential-iphone-gadgets-and-enhancements-for-optimal-use/"><u>Top Essential iPhone Gadgets and Enhancements for Optimal Use</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlocking-potential-master-dvd-burning-with-your-mac/"><u>Unlocking Potential Master DVD Burning with Your Mac</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/why-does-imovie-adjust-video-borders/"><u>Why Does iMovie Adjust Video Borders?</u></a></li>
+</ul></div>
 

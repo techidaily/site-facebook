@@ -1,7 +1,7 @@
 ---
 title: "Social Network Pursues Accuracy: New FB Misinfo Penalties"
-date: 2024-11-20T22:18:26.259Z
-updated: 2024-11-27T07:18:27.483Z
+date: 2024-12-05T16:49:53.648Z
+updated: 2024-12-12T23:55:16.488Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Makes Misinformation Less Attractive
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  This means that anyone who is friends with or follows that user will really have to dig through their News Feed in order to find that person's posts, whether they contain misinformation or not. Facebook's new penalty might be a bit extreme, but the platform clearly believes that this will put a stop to the spread of misinformation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Also Pushing New Notifications
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 ![Facebook Pages misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-misinformation-pages.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 ![Fact checker notification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fact-checker-notification.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  The notification also warns users that people "who repeatedly share false information might have their posts moved lower in News Feed so other people are less likely to see them." Users will then have the choice to either delete their post, or they can click a link to find out more about Facebook's fact-checking policies.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook's Strict Misinformation Policies Pay Off?
@@ -91,17 +91,19 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/lub-craft-how-to-download-best-dj-vids-for-2024/"><u>[New] Club Craft How to Download Best DJ Vids for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-amped-arcs-and-zigzags-in-olympic-speed/"><u>2024 Approved Amped Arcs & Zigzags in Olympic Speed</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-enhancing-video-quality-on-tiktok-via-zoom/"><u>2024 Approved Enhancing Video Quality on TikTok via Zoom</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/raw-raw/"><u>開啟RAW 格式文件的秘密：完美入門教程讓你成為懂得 RAW 文件管理的大師</u></a></li>
-<li><a href="https://facebook.techidaily.com/embarking-into-new-dimensions-understanding-and-importance-of-facebooks-metaverse/"><u>Embarking Into New Dimensions: Understanding and Importance of Facebook's Metaverse</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-troubleshoot-and-repair-the-configuration-failure-on-windows-11/"><u>How to Troubleshoot and Repair the Configuration Failure on Windows 11</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-fb-download-made-simple-free-and-convenient-options-of-23-online/"><u>In 2024, FB Download Made Simple Free & Convenient Options of '23 Online</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/mastering-youtube-standard-studio-or-beta-progress/"><u>Mastering YouTube Standard Studio or Beta Progress</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-facebook-paradox-why-do-people-reject-online-communities/"><u>The Facebook Paradox: Why Do People Reject Online Communities?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-most-heated-technological-minds-in-action/"><u>The Most Heated Technological Minds in Action</u></a></li>
-<li><a href="https://facebook.techidaily.com/twinning-trends-exploring-the-affinity-between-fb-and-insta/"><u>Twinning Trends: Exploring the Affinity Between FB & Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-process-to-ignore-member-names-on-fb-groups/"><u>Unveiling the Process to Ignore Member Names on FB Groups</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-art-of-hue-adjustment-in-post-production/"><u>[New] The Art of Hue Adjustment in Post-Production</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-the-maze-of-zoom-broadcasting-tools/"><u>[Updated] Navigating the Maze of Zoom Broadcasting Tools</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-ideal-hosts-maximizing-youtube-video-exposure/"><u>2024 Approved Ideal Hosts Maximizing YouTube Video Exposure</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pivotal-ideas-behind-digital-tale-weaving/"><u>2024 Approved Pivotal Ideas Behind Digital Tale Weaving</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-infinix-smart-8-plus-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/doom-eternal-not-starting-discover-the-ultimate-troubleshooting-guide/"><u>DOOM Eternal Not Starting? Discover the Ultimate Troubleshooting Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-revolutionizes-oculus-go-experience-with-rooting-feature/"><u>Facebook Revolutionizes Oculus Go Experience With Rooting Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/holding-out-for-final-word-from-regulatory-panel/"><u>Holding Out for Final Word From Regulatory Panel</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/modernize-your-vintage-tech-skip-windows/"><u>Modernize Your Vintage Tech, Skip Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/peek-into-your-virtual-fan-club/"><u>Peek Into Your Virtual Fan Club</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-charge-of-your-online-environment-dodge-the-unwanted-promos/"><u>Taking Charge of Your Online Environment: Dodge the Unwanted Promos</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-v29-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-users-ready-for-verified-recognition-at-meta/"><u>U.S. Users Ready for Verified Recognition at Meta</u></a></li>
 </ul></div>
 

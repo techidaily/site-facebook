@@ -1,7 +1,7 @@
 ---
 title: Losing the Social Media Connection
-date: 2024-10-16T19:23:18.852Z
-updated: 2024-10-20T21:10:35.135Z
+date: 2024-12-08T18:21:03.671Z
+updated: 2024-12-12T18:41:39.177Z
 tags:
   - facebook
 categories:
@@ -46,22 +46,12 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
 
  Otherwise, it takes 90 days for Facebook to remove information on a deleted account from its servers. Some details will still exist, but any personal identifiers will disappear. You'll become a statistic.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Does My Profile Completely Disappear if I Deactivate Facebook?
 
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
@@ -71,10 +61,7 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Do My Comments Disappear if I Deactivate Facebook?
@@ -88,6 +75,10 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
  And of course, if you choose to reactivate your Facebook account (which we'll come back to), all of those posts will revert to normal: your profile photo will reappear alongside comments. Your name will become a link again too.
 
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
 
@@ -105,13 +96,6 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
 
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Can I Still Use Messenger Without Facebook?
 
  You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
@@ -123,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
  In some cases, you'll need to reinstall Messenger after deactivation.
 
  So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can People See My Messages if I Deactivate Facebook?
 
@@ -154,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
 
  Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that[you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Should You Deactivate or Delete Facebook?
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
@@ -173,22 +165,16 @@ thumbnail: https://thmb.techidaily.com/f7564240f8faa92ac0e388d789a175a79bd1b9553
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ccelerated-learning-for-chromakey-artistry-for-2024/"><u>[New] Accelerated Learning for Chromakey Artistry for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-camera-elevation-best-tripods-for-smartphone-shots/"><u>[Updated] In 2024, Camera Elevation Best Tripods for Smartphone Shots</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-disliked-social-media-targeting-tactics/"><u>Banishing Disliked Social Media Targeting Tactics</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpts-powerful-benefits-streamlining-life-through-nine-key-features/"><u>ChatGPT's Powerful Benefits: Streamlining Life Through Nine Key Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-hashtag-science-maximizing-reach-and-interaction-on-facebook/"><u>Demystifying #Hashtag Science: Maximizing Reach and Interaction on Facebook</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-nubia-red-magic-8s-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/fortnite-purchase-recoupment-procedures-demystified/"><u>Fortnite Purchase Recoupment Procedures Demystified</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-many-users-are-fleeing-facebook/"><u>How Many Users Are Fleeing Facebook?</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/industrys-largest-uav-payload-carriers-for-2024/"><u>Industry's Largest UAV Payload Carriers for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/melodic-matchmaking-complementary-soundtracks-for-boxings/"><u>Melodic Matchmaking Complementary Soundtracks for Boxings</u></a></li>
-<li><a href="https://facebook.techidaily.com/mindful-interaction-for-effective-digital-advertising/"><u>Mindful Interaction for Effective Digital Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-online-connectivity-understanding-facebooks-metaverse-blueprint/"><u>Redefining Online Connectivity: Understanding Facebook's Metaverse Blueprint</u></a></li>
-<li><a href="https://facebook.techidaily.com/refusal-of-new-terms-doesnt-affect-whatsapps-access-levels/"><u>Refusal of New Terms Doesn’t Affect WhatsApp's Access Levels</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-majority-of-covid-myths-link-to-12-influencers/"><u>The Majority of Covid Myths Link to 12 Influencers</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-xiaomi-redmi-note-12-pro-4g-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Xiaomi Redmi Note 12 Pro 4G FRP Bypass</u></a></li>
-<li><a href="https://win-trending.techidaily.com/understanding-the-case-sensitive-feature-when-cleaning-up-repeats-with-emeditor/"><u>Understanding the Case Sensitive Feature When Cleaning Up Repeats with EmEditor</u></a></li>
-<li><a href="https://facebook.techidaily.com/warning-signs-and-actions-minor-facebook-usage/"><u>Warning Signs and Actions: Minor Facebook Usage</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-accelerating-artistic-outputs-fast-tracked-google-collage-creation/"><u>[New] 2024 Approved Accelerating Artistic Outputs Fast-Tracked Google Collage Creation</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-hands-free-tips-saving-instagram-stories-as-videos/"><u>[Updated] Hands-Free Tips Saving Instagram Stories as Videos</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/effortless-steps-how-to-transform-your-vudu-films-into-versatile-formats-like-mp4-and-mov/"><u>Effortless Steps: How to Transform Your Vudu Films Into Versatile Formats Like MP4 & MOV</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-bypass-facebooks-security-without-a-mobile/"><u>How to Bypass Facebook's Security WITHOUT a Mobile</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-apple-iphone-15-pro-max-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>How to Fix My Apple iPhone 15 Pro Max Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspection-of-fb-messaging-security-claims/"><u>Inspection of Fb Messaging Security Claims</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/realtek-microphone-malfunction-resolving-common-issues/"><u>Realtek Microphone Malfunction: Resolving Common Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/tranquil-online-presence-dissuading-commenters-on-fb/"><u>Tranquil Online Presence: Dissuading Commenters on FB</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-features-of-the-large-yet-competent-stanley-j5c09-model/"><u>Unpacking the Features of the Large yet Competent Stanley J5C09 Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-winners-best-rated-podcasts/"><u>Unveiling the Winners: Best-Rated Podcasts</u></a></li>
 </ul></div>
 

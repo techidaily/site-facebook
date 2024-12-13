@@ -1,7 +1,7 @@
 ---
 title: Keeping Your Digital Life Hidden From Unknown Viewers
-date: 2024-08-28T03:07:13.813Z
-updated: 2024-08-29T03:07:13.813Z
+date: 2024-12-06T21:18:44.260Z
+updated: 2024-12-12T22:53:13.415Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -57,9 +61,6 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Change Your Facebook Profile Discovery Settings
 
  Everyone gets the odd invite from random people, like people you went to high school with or mutual friends you don't really want to connect with. You've probably ignored a few invites for so long that you barely notice them on your Facebook account anymore. But it doesn't have to be that way.
@@ -75,11 +76,13 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Change Your Facebook Post Settings
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
@@ -94,25 +97,24 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Keep a Low Profile on Facebook
 
  In the age of influencers and growing your social media accounts is a thing, there exists a group of Facebook users who want to keep a low profile. The benefits being that it comes with less bullying and harassment and makes for an overall pleasant experience.
 
  Connecting with people you know and limiting who can find and view your profile also reduces the chances that someone will steal your photos to impersonate you online. So, for absolute peace of mind, you can stop strangers from seeing your Facebook profile.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +123,19 @@ thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-effortlesswebcamcapturewithyoucam/"><u>[New] EffortlessWebcamCaptureWithYouCam</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-find-your-dream-free-vfx-alternative-top-30-sites-explored-deeply/"><u>[New] Find Your Dream Free VFX Alternative - Top 30 Sites Explored Deeply</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-premier-popularity-prognosticator-for-video-charts-for-2024/"><u>[Updated] Premier Popularity Prognosticator for Video Charts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-the-sudden-breakdown-of-popular-platforms/"><u>A Peek Into the Sudden Breakdown of Popular Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/ad-head-carolyn-everson-quits-facebook/"><u>Ad Head Carolyn Everson Quits Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-armistice-social-media-worldwide-standstill/"><u>App Armistice: Social Media Worldwide Standstill</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-fans-interest-with-these-free-fb-update-time-strategies/"><u>Boost Fans' Interest with These Free FB Update Time Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/crypto-marketing-the-next-big-thing-on-social-networks/"><u>Crypto Marketing: The Next Big Thing on Social Networks?</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/download-art-classes-with-paintbasket-the-ultimate-free-resource/"><u>Download Art Classes with PaintBasket: The Ultimate Free Resource</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-infinix-smart-7-hd-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Infinix Smart 7 HD Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-chuckle-champions-humor-hunt-on-twitter/"><u>In 2024, Chuckle-Champions Humor Hunt on Twitter</u></a></li>
+<li><a href="https://article-files.techidaily.com/photo-motion-enhancement-via-adobe-tools-for-2024/"><u>Photo Motion Enhancement via Adobe Tools for 2024</u></a></li>
+</ul></div>
 

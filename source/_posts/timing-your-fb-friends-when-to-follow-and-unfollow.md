@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-11-30T17:23:01.507Z
-updated: 2024-12-06T22:10:51.212Z
+date: 2024-12-06T18:35:30.824Z
+updated: 2024-12-12T21:01:56.985Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does Following Mean on Facebook?
@@ -51,6 +51,10 @@ There are two reasons to use the follow feature.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Follow and Unfollow on Facebook
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
@@ -75,17 +79,9 @@ There are two reasons to use the follow feature.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -97,12 +93,16 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
@@ -123,13 +123,13 @@ This same page contains three other settings you need to be aware of:
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
@@ -162,14 +162,18 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/updated-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps/"><u>[Updated] Essential Tools for YouTube LIVE Broadcasting Reveal the 7 Key Apps</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-meizu-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Meizu Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/controversial-titans-in-technology/"><u>Controversial Titans in Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-online-groups-the-dichotomy-of-personal-and-professional/"><u>Exploring Online Groups: The Dichotomy of Personal and Professional</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-gags-and-grins-techniques-in-parody-production/"><u>In 2024, Gags and Grins Techniques in Parody Production</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-non-facebook-direct-message-apps/"><u>Mastering Non-Facebook Direct Message Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-receiving-random-friends-suggestions/"><u>Stop Receiving Random Friends Suggestions</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/streamlining-your-video-creation-ootd-on-a-mac/"><u>Streamlining Your Video Creation OOTD on a Mac</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-showdown-unpacking-the-pros-and-cons-of-nintendo-switch-lite-vs-nintendo-switch-oled/"><u>The Showdown: Unpacking the Pros & Cons of Nintendo Switch Lite Vs Nintendo Switch OLED</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-post-a-vimeo-video-on-instagram/"><u>[Updated] In 2024, How to Post a Vimeo Video on Instagram</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 to other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-13-passcode-screen-by-drfone-ios/"><u>How to Unlock Apple iPhone 13 Passcode Screen?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-utilize-the-find-my-tool-for-locating-a-lost-ios-device/"><u>How to Utilize the Find My Tool for Locating a Lost iOS Device</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-poco-f5-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Poco F5 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-media-restrictions/"><u>Navigating Through Facebook’s Media Restrictions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-youtubes-aspect-ratio-landscape-a-complete-tutorial/"><u>Navigating YouTube's Aspect Ratio Landscape A Complete Tutorial</u></a></li>
+<li><a href="https://win-webster.techidaily.com/release-notes-and-updates-navigating-the-changelog-of-aomei-backupper/"><u>Release Notes and Updates: Navigating the Changelog of AOMEI Backupper</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-your-online-persona-with-a-new-profile-picture/"><u>Revamping Your Online Persona with a New Profile Picture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tailor-your-narrative-crafting-engaging-youtube-descriptions-using-pre-set-templates/"><u>Tailor Your Narrative Crafting Engaging YouTube Descriptions Using Pre-Set Templates</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-subtextual-dialogue-in-online-communities/"><u>Understanding Subtextual Dialogue in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-trumps-digital-history/"><u>Unearthing Trump’s Digital History</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-world-awaits-6-compelling-reasons-for-facebooks-metaverse-journey/"><u>Virtual World Awaits: 6 Compelling Reasons for Facebook's Metaverse Journey</u></a></li>
 </ul></div>
 

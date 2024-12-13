@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2024-12-02T16:05:32.377Z
-updated: 2024-12-06T21:04:40.386Z
+date: 2024-12-10T23:41:46.334Z
+updated: 2024-12-12T23:06:05.799Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete Facebook Notifications
 
 ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -54,20 +54,12 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
 2. Click on the**Notifications** icon in the upper right-hand corner.
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Turn Off Facebook Notifications
 
@@ -110,25 +102,29 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -149,6 +145,10 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -173,24 +173,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-professional-capturer-snappy-windows-snap/"><u>[New] Professional Capturer Snappy Windows Snap</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-chapter-fbs-hefty-bet-of-5-million-on-authorship-and-publishing-sector/"><u>A New Chapter: FB's Hefty Bet of $5 Million on Authorship & Publishing Sector</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-amd-graphics-driver-setup-with-built-in-compatibility-sensor/"><u>Easy AMD Graphics Driver Setup with Built-In Compatibility Sensor</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-defensive-measures-explored-and-equipped/"><u>Facebook's Defensive Measures Explored & Equipped</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/from-monochrome-to-motion-the-ultimate-guide-to-making-videos-with-pixiz-for-2024/"><u>From Monochrome to Motion The Ultimate Guide to Making Videos with Pixiz for 2024</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/how-to-easily-move-pictures-from-an-iphone-to-your-mac-a-comprehensive-guide-with-10-steps/"><u>How to Easily Move Pictures From an iPhone to Your Mac - A Comprehensive Guide with 10 Steps</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-realme-11-pro-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Realme 11 Pro Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-seamless-online-media-dissemination-on-vimeo/"><u>In 2024, Seamless Online Media Dissemination on Vimeo</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-streamlining-video-production-green-screen-magic-unveiled/"><u>In 2024, Streamlining Video Production Green Screen Magic Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-seal-of-approval-is-it-worth-it/"><u>Meta's Seal of Approval - Is It Worth It?</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-fb-notifications-the-complete-process/"><u>No More FB Notifications: The Complete Process</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rejuvenate-pc-performance-with-update-1659fwu/"><u>Rejuvenate PC Performance with Update 1659FWU</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/scripting-success-gpt-in-podcast-making/"><u>Scripting Success: GPT in Podcast Making</u></a></li>
-<li><a href="https://facebook.techidaily.com/security-breaches-in-social-media-worldwide/"><u>Security Breaches in Social Media Worldwide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-platform-launches-precision-moderation-aids/"><u>Social Networking Platform Launches Precision Moderation Aids</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-vs-online-communities-the-shift-explained/"><u>Social Networks Vs. Online Communities: The Shift Explained</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-elusive-guide-to-unseen-menu-adjustments-windows-style/"><u>The Elusive Guide to Unseen Menu Adjustments, Windows Style</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-fb-pages-vs-unames-key-insights-and-tips/"><u>Understanding FB Pages vs UNAMES: Key Insights & Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-complete-guide-to-twitters-paid-reach-and-impressions/"><u>[New] In 2024, The Complete Guide to Twitter's Paid Reach and Impressions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-rhythms-with-the-magix-groove-master-suite/"><u>[New] Innovative Rhythms with the Magix Groove Master Suite</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-how-to-install-and-modify-whatsapp-alerts-on-both-platforms/"><u>[Updated] 2024 Approved How to Install & Modify WhatsApp Alerts on Both Platforms</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-enhancing-selfies-mastering-the-cartoon-effect-in-snapchat-for-2024/"><u>[Updated] Enhancing Selfies Mastering the Cartoon Effect in Snapchat for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-get-precise-audio-capturing-for-your-pc-with-x-recorder/"><u>[Updated] In 2024, Get Precise Audio Capturing for Your PC with X-Recorder</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-guide-on-lensdirects-anti-blue-light-spectacles-for-vision-correction/"><u>Comprehensive Guide on LensDirect’s Anti-Blue Light Spectacles for Vision Correction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-safety-concern-data-erasure-of-facial-recognition-records/"><u>Facebook's Safety Concern: Data Erasure of Facial Recognition Records?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-artists-can-now-gain-money-via-facebook-features/"><u>How Artists Can Now Gain Money via Facebook Features</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-apple-iphone-xs-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On Apple iPhone XS in the Best Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-collective-recognition-in-one-facebook-post/"><u>Mastering Collective Recognition in One Facebook Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-online-content-purge-techniques/"><u>Mastering Online Content Purge Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-facebook-access-post-phone-theft-steps-for-you/"><u>Restoring Facebook Access Post-Phone Theft: Steps for You</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/silence-not-solved-heres-how-to-reactivate-conexant-smartaudio-hd-sounds-on-windows-11/"><u>Silence Not Solved? Here's How to Reactivate Conexant SmartAudio HD Sounds on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-content-distribution-sharing-instagram-reels-on-facebook/"><u>Simplified Content Distribution: Sharing Instagram Reels on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-fb-security-2fa-essentials-and-usage/"><u>Unlock FB Security: 2FA Essentials and Usage</u></a></li>
 </ul></div>
 

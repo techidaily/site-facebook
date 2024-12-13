@@ -1,7 +1,7 @@
 ---
 title: Transforming Still Photographs Into Diverse Textual Manifestations - Facebook AI
-date: 2024-10-07T17:01:09.647Z
-updated: 2024-10-15T10:20:18.683Z
+date: 2024-12-05T19:49:08.879Z
+updated: 2024-12-12T17:10:07.091Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/1f78d2fb13516bc942d880b1ed451501538b368f9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is TextStyleBrush?
 
  Researchers over at Facebook have introduced their new self-supervised AI model, "TextStyleBrush" on[Newsroom](https://about.fb.com/news/2021/06/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word/) . Using just one image of a single word, it can edit and replace the text while copying the font or visual style that it was written in.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/1f78d2fb13516bc942d880b1ed451501538b368f9
  The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
 
@@ -45,10 +53,7 @@ thumbnail: https://thmb.techidaily.com/1f78d2fb13516bc942d880b1ed451501538b368f9
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Faces Aren't the Only Thing That Can Be Deepfaked
@@ -74,22 +79,20 @@ thumbnail: https://thmb.techidaily.com/1f78d2fb13516bc942d880b1ed451501538b368f9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-apex-legends-mastery-exploring-single-platform-potential-for-2024/"><u>[New] Apex Legends Mastery Exploring Single Platform Potential for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-behind-the-screen-look-examining-instagram-post-views/"><u>[New] In 2024, Behind The Screen Look Examining Instagram Post Views</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-screencapturetech-2023-highlighting-the-apeak-software-review/"><u>2024 Approved ScreenCaptureTech 2023 Highlighting the Apeak Software Review</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-testing-report-on-seatech-portable-usb-blu-ray-writer-mixed-results-reviewed/"><u>Comprehensive Testing Report on SeaTech Portable USB Blu-Ray Writer - Mixed Results Reviewed</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-your-free-copy-of-corsairs-icue-supporting-windows-1110-gamers/"><u>Download Your Free Copy of Corsair's iCUE: Supporting Windows 11/10 Gamers</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-cross-team-communication-top-8-facebook-innovations/"><u>Enhancing Cross-Team Communication: Top 8 Facebook Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-a-tale-of-modern-connectivity/"><u>Facebook: A Tale of Modern Connectivity</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-global-village-to-social-stress-with-facebook/"><u>From Global Village to Social Stress with Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/graphing-the-groups-facebooks-networked-territories/"><u>Graphing the Groups: Facebook’s Networked Territories</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-protect-yourself-from-potential-online-predators/"><u>How to Protect Yourself From Potential Online Predators</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-zero-30-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix Zero 30 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiating-seamless-social-interactions-via-facebook-portal-tv/"><u>Initiating Seamless Social Interactions via Facebook Portal TV</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/iphone-sound-distortion-repair-a-step-by-step-troubleshooting-guide/"><u>IPhone Sound Distortion Repair - A Step-by-Step Troubleshooting Guide</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-discretion-in-digital-artistry-for-2024/"><u>Mastering Discretion in Digital Artistry for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-and-instagram-to-get-smarter-with-facebooks-texting-tech-update/"><u>Messenger and Instagram to Get Smarter with Facebook's Texting Tech Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/restoring-facebook-user-login-after-code-deletion/"><u>Restoring Facebook User Login After Code Deletion</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-best-adobe-premiere-pro-extensions-free-and-essential-downloads/"><u>Updated 2024 Approved Best Adobe Premiere Pro Extensions Free and Essential Downloads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-seek-and-succeed-hunt-down-instagrams-top-thinkers-in-your-space/"><u>[New] Seek and Succeed Hunt Down Instagram's Top Thinkers in Your Space</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-excellent-ears-in-scholarly-spaces/"><u>[Updated] Excellent Ears in Scholarly Spaces</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-fixing-obs-screen-blackout-problems/"><u>2024 Approved Fixing OBS Screen Blackout Problems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-quickly-unfriend-more-than-one-person-on-snapchat/"><u>How to Quickly Unfriend More than One Person on Snapchat</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-image-impact-alt-text-strategies-for-facebook/"><u>Maximizing Image Impact: Alt-Text Strategies for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-safe-path-dodge-these-invasive-applications/"><u>Privacy-Safe Path: Dodge These Invasive Applications</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/proposed-alterations-streamlining-the-chatgpt-plugin-shop/"><u>Proposed Alterations: Streamlining the ChatGPT Plugin Shop</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-huawei-nova-y71-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Huawei Nova Y71 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-braces-for-a-cryptocurrency-commercial-surge/"><u>Social Media Braces for a Cryptocurrency Commercial Surge</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-showdown-tiktok-vs-the-giant-facebook/"><u>Social Media Showdown: TikTok Vs. The Giant, Facebook</u></a></li>
+<li><a href="https://fox-that.techidaily.com/trouble-with-ringsilent-mode-on-your-iphone-learn-easy-alternatives-to-control-the-volume/"><u>Trouble with Ring/Silent Mode on Your iPhone? Learn Easy Alternatives to Control the Volume</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-what-youve-watched-on-facebook-lately/"><u>Uncovering What You've Watched on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/unhook-spotify-from-your-fb-account-now/"><u>Unhook Spotify From Your FB Account Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-creative-wealth-the-intersection-of-meta-reels-and-remunerations/"><u>Unlocking Creative Wealth: The Intersection of Meta, Reels & Remunerations</u></a></li>
 </ul></div>
 

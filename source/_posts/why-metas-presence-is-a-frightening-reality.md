@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Presence Is a Frightening Reality
-date: 2024-11-23T10:28:24.174Z
-updated: 2024-11-26T20:35:11.890Z
+date: 2024-12-10T23:28:28.085Z
+updated: 2024-12-12T17:54:11.073Z
 tags:
   - facebook
 categories:
@@ -27,12 +27,16 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. An Entrapping Social Media Monopoly
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
@@ -52,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
  Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
@@ -68,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
  However, Meta's privacy practices are particularly problematic. Meta stands out because of the nature of data it has access to. Based on its user base, the company is the single largest non-government collector of intrusive personal information in corporate history.
@@ -81,10 +77,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ​​​​​​
 
@@ -101,12 +93,20 @@ Not convinced?
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -137,22 +137,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-futures-canvas-unveiling-6-pioneers-of-nft-artistry/"><u>[Updated] In 2024, The Future's Canvas Unveiling 6 Pioneers of NFT Artistry</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/capability-meets-durability-in-the-radpower-radcity-5plus-review-an-electric-bike-that-packs-a-punch-and-weighs-more-than-you-expect/"><u>Capability Meets Durability in the RadPower RadCity 5+ Review: An Electric Bike That Packs a Punch and Weighs More Than You Expect</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comprehensive-tutorial-how-to-edit-gif-images-with-text-on-various-platforms-including-windows-macos-mobile-devices-and-online-tools/"><u>Comprehensive Tutorial: How to Edit GIF Images with Text on Various Platforms Including Windows, macOS, Mobile Devices, and Online Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-personal-brand-through-engagement/"><u>Elevating Personal Brand Through Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-audience-peak-time-to-review/"><u>Facebook's Audience Peak: Time to Review?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/leading-the-way-in-personal-trail-tracking-drone-innovation-for-2024/"><u>Leading the Way in Personal Trail-Tracking Drone Innovation for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-mindful-choices-on-your-internet-usage-plan/"><u>Making Mindful Choices on Your Internet Usage Plan</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/navigating-the-world-of-hulu-recordings-windowsmaciosandroid-for-2024/"><u>Navigating the World of Hulu Recordings Windows/Mac/iOS/Android for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/photographic-renaissance-through-stellars-new-softwares/"><u>Photographic Renaissance Through Stellar's New Softwares</u></a></li>
-<li><a href="https://facebook.techidaily.com/pro-and-con-analysis-using-facebook-as-a-hub-for-events/"><u>Pro and Con Analysis: Using Facebook as a Hub for Events</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/solving-common-issues-a-step-by-step-guide-to-successful-windows-10-installation/"><u>Solving Common Issues: A Step-by-Step Guide to Successful Windows 10 Installation</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthening-bonds-learn-more-from-friendly-chatting-games/"><u>Strengthening Bonds: Learn More From Friendly Chatting Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-free-transformation-why-you-should-abandon-facebooks-online-world/"><u>Tech-Free Transformation: Why You Should Abandon Facebook's Online World</u></a></li>
-<li><a href="https://win-trending.techidaily.com/techniken-zur-reparatur-defekter-partitionen-in-windows-11-professionelle-tipps-und-tricks/"><u>Techniken Zur Reparatur Defekter Partitionen in Windows 11: Professionelle Tipps Und Tricks</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-poco-frp-by-drfone-android/"><u>The Updated Method to Bypass Poco FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiny-player-big-impact-spotify-on-the-go-with-facebook/"><u>Tiny Player Big Impact: Spotify on the Go with Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-digital-identity-an-in-depth-study-of-your-fb-interactions/"><u>Unmasking Digital Identity: An In-Depth Study of Your FB Interactions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-the-art-of-muting-background-sounds-in-skype/"><u>[New] 2024 Approved The Art of Muting Background Sounds in Skype</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-jump-into-action-on-tiktok-live-easy-methods-revealed/"><u>[New] Jump Into Action on TikTok Live Easy Methods Revealed</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-step-by-step-adding-captions-to-youtube-clips/"><u>[New] Step-by-Step Adding Captions to YouTube Clips</u></a></li>
+<li><a href="https://facebook.techidaily.com/endgame-irreversible-termination-of-your-facebook-account/"><u>Endgame: Irreversible Termination of Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-football-legends-excise-snapchat-twitter-for-mental-health/"><u>England's Football Legends Excise Snapchat, Twitter for Mental Health</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/erase-live-video-on-facebook-windows-android-tactics-for-2024/"><u>Erase Live Video on Facebook Windows, Android Tactics for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722976167411-get-updated-epson-wf-3640-drivers-for-windows-operating-systems-here/"><u>Get Updated Epson WF-3640 Drivers for Windows Operating Systems Here!</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-fix-geforce-experiences-unable-to-retrieve-settings-error-in-windows-11-and-11/"><u>How to Fix GeForce Experience’s “Unable to Retrieve Settings” Error in Windows 11 & 11</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-achieving-youtube-apex-with-smart-management-tools/"><u>In 2024, Achieving YouTube Apex with Smart Management Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-ripl-for-high-engagement-smm-content/"><u>Leveraging Ripl for High-Engagement SMM Content</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/maximize-your-productivity-with-the-ultimate-10-in-1-docking-solution-save-35-today-tech-insights/"><u>Maximize Your Productivity with the Ultimate 10-in-1 Docking Solution - Save 35% Today | Tech Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewing-perspectives-the-journey-away-from-fb/"><u>Renewing Perspectives: The Journey Away From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/shutting-down-integrated-facebook-navigation/"><u>Shutting Down Integrated Facebook Navigation</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-instructions-revoking-a-social-media-post/"><u>Step-by-Step Instructions: Revoking a Social Media Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-privacy-to-the-next-level-facebooks-messenger-and-instagram-now-have-encrypted-conversations/"><u>Taking Privacy to the Next Level: Facebook's Messenger and Instagram Now Have Encrypted Conversations.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-justification-why-social-media-platforms-like-facebook-permit-dual-or-more-profiles-under-one-account/"><u>The Justification: Why Social Media Platforms Like Facebook Permit Dual or More Profiles Under One Account</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-metrics-of-mastery-assessing-luminances-hdr-capabilities/"><u>The Metrics of Mastery Assessing Luminance's HDR Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pillar-of-price-understanding-stablecoin-mechanisms/"><u>The Pillar of Price: Understanding Stablecoin Mechanisms</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/you-need-to-know-about-vanishing-shorts-thumbnails-on-youtube-for-2024/"><u>What You Need to Know About Vanishing Shorts Thumbnails on YouTube for 2024</u></a></li>
 </ul></div>
 

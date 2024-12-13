@@ -1,7 +1,7 @@
 ---
 title: "Google’s Major Stories of the Year: A Review"
-date: 2024-08-28T03:07:34.471Z
-updated: 2024-08-29T03:07:34.471Z
+date: 2024-12-06T18:24:52.474Z
+updated: 2024-12-12T16:27:59.099Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
 
 ![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Some people don't mind location tracking features, while others find them highly concerning. Either way, one should always know if or when a service is tracking their location.
 
  In 2022, it was revealed that Google had been misleading users about how it tracked their location. Concerns about this stretch back to 2014, with accusations coming out in 2018\. This led to various European countries, including Greece, Norway, Sweden, Poland, Slovenia, the Czech Republic, and the Netherlands, filing complaints against Google for its alleged deceptive location-tracking information.
@@ -39,10 +43,6 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## 3\. The End of YouTube Originals
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
@@ -53,16 +53,14 @@ The ultimate burning program for all your needs!</a>
 
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. The Violation of Sonos Patents
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
  In early 2022, the US International Trade Commission ruled that Google did indeed violate a total of five Sonos patents. But in August of the same year, Google hit Sonos back with its own lawsuit, claiming that Sonos had actually violated seven of Google's patents, such as its voice assistant technology.
@@ -74,8 +72,9 @@ The ultimate burning program for all your needs!</a>
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
  This deal was reportedly proposed to consolidate the online advertising market and was formed in 2018, with suspicions arising around its possible existence back in 2020\. The CEO of Facebook, as it was then called, Mark Zuckerberg, and Google CEO Sundar Pichai allegedly formed the deal, though it was originally thought that the signature was solely provided by Facebook COO Sheryl Sandberg.
@@ -86,19 +85,21 @@ The ultimate burning program for all your needs!</a>
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. The $25B UK and Netherlands Lawsuits
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
@@ -108,14 +109,11 @@ The ultimate burning program for all your needs!</a>
 
  There's no doubt that Google has seen its fair share of trials and tribulations throughout 2022, with various lawsuits, rumors, and changes to services giving it plenty of reasons to be featured in the news. But Google is no stranger to legal disputes and criticism, so we may see more similar headlines in 2023.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +122,20 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-larger-than-life-instagram-videos-tips-to-break-the-barrier/"><u>[Updated] In 2024, Larger-than-Life Instagram Videos Tips to Break the Barrier</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quantum-hdr-phenomenon-in-digital-photography/"><u>[Updated] Quantum HDR Phenomenon in Digital Photography</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/adding-pizzazz-to-your-footage-with-moving-text/"><u>Adding Pizzazz to Your Footage with Moving Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/braving-the-storm-for-facebook-news/"><u>Braving the Storm for Facebook News</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-lost-phones-security-hurdle-in-fb-settings/"><u>Bypassing Lost Phone's Security Hurdle in FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-captivating-smm-content-using-ripl/"><u>Crafting Captivating SMM Content Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-fb-profile-a-guide-to-designing-with-your-avatar/"><u>Crafting Your FB Profile: A Guide to Designing With Your Avatar</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152886921-the-ceos-companion-goat-with-a-blockchain-twist/"><u>The CEO’s Companion: Goat with a Blockchain Twist</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-lowest-cost-ssls-and-their-capabilities/"><u>The Lowest Cost SSLs and Their Capabilities</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-setting-up-your-fire-tv-stick-with-wi-fi-mobile-tethering/"><u>Ultimate Guide: Setting Up Your Fire TV Stick with Wi-Fi Mobile Tethering</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719143829217-why-joining-forces-on-facebook-heres-the-proof/"><u>Why Joining Forces on Facebook? Here's the Proof</u></a></li>
+</ul></div>
 

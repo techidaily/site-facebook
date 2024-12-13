@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-11-25T03:05:23.703Z
-updated: 2024-11-26T19:48:37.665Z
+date: 2024-12-05T22:27:10.819Z
+updated: 2024-12-12T20:25:44.648Z
 tags:
   - facebook
 categories:
@@ -26,29 +26,33 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -63,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -77,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  How would Amazon itself have ever been invented if not for a free and open market?
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. The Ending Platform Monopolies Act
 
@@ -102,10 +110,6 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -117,10 +121,6 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,19 +143,18 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-zoom-in-on-success-screenshots-made-simple-by-ezvide-tech/"><u>[New] 2024 Approved Zoom In on Success Screenshots Made Simple by EZvide Tech</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-guidance-to-creating-a-3d-text-art-effect-in-adobe-illustrator/"><u>[New] Guidance to Creating a 3D Text Art Effect in Adobe Illustrator</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-gelato-gadgets-step-by-step-screen-capture-for-frozen-snacks/"><u>[Updated] Gelato Gadgets Step-by-Step Screen Capture for Frozen Snacks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/44cm57eo6zug44k944ov44oi44ks5rs755so44gx44gf44kt44or6zug44kr44k544k44oe44kk44k65pa55rov6kyb5bqn44cn/"><u>「編集ソフトを活用したキル集カスタマイズ方法講座」</u></a></li>
-<li><a href="https://win-blog.techidaily.com/cactus-is-a-noun-that-has-an-irregular-plural-it-changes-to-cacti/"><u>Cactus Is a Noun that Has an Irregular Plural: It Changes to Cacti</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-social-sphere-insight-into-facebooks-openness-hub/"><u>Mastering the Social Sphere: Insight Into Facebook’s Openness Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-facebook-spotting-unfamiliar-logins-quickly/"><u>Secure Facebook: Spotting Unfamiliar Logins Quickly</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-voice-of-facebook-erupts-on-60-minutes/"><u>Silent Voice of Facebook Erupts on 60 Minutes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/step-by-step-instructions-for-a-seamless-vhs-to-dvd-transfer-using-premium-conversion-tools/"><u>Step-by-Step Instructions for a Seamless VHS to DVD Transfer Using Premium Conversion Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/tactical-like-hiding-techniques-for-fb-users/"><u>Tactical Like Hiding Techniques for FB Users</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851801-9798218147051-the-grand-solar-flash/"><u>The Grand Solar Flash | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-tips-for-a-secure-social-network-experience-on-fb/"><u>Top Tips for a Secure Social Network Experience on FB</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/troubleshoot-utorrent-unresponsiveness-with-these-7-proven-techniques/"><u>Troubleshoot Utorrent Unresponsiveness with These 7 Proven Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfiltered-living-the-impact-of-quitting-social-networks/"><u>Unfiltered Living: The Impact of Quitting Social Networks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-skype-capture-methods-seamless-transition-between-oses-for-2024/"><u>[Updated] Skype Capture Methods Seamless Transition Between OSes for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/beat-the-blank-screen-blues-faster-input-in-windows-11/"><u>Beat the Blank Screen Blues: Faster Input in Windows 11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cambiar-archivos-3gpp-en-formato-wav-sin-coste-guia-de-movavi/"><u>Cambiar Archivos 3GPP en Formato WAV Sin Coste: Guía De Movavi</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95828523-9781681652924-el-despertar-de-la-conciencia/"><u>El despertar de la conciencia | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-gameplay-with-the-ultimate-asus-vg245h-gaming-monitor/"><u>Elevate Your Gameplay with The Ultimate Asus VG245H Gaming Monitor</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-facebook-job-advertising-guide/"><u>Essentials of Facebook Job Advertising Guide</u></a></li>
+<li><a href="https://win-popular.techidaily.com/how-to-tell-if-your-pc-is-getting-too-hot-expert-advice-by-yl-software/"><u>How to Tell If Your PC Is Getting Too Hot: Expert Advice by YL Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-motorola-moto-g23-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Motorola Moto G23 to iPod | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-influencers-roadmap-instagram-edition/"><u>In 2024, The Influencer's Roadmap Instagram Edition</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-there-a-clandestine-smart-connectivity-tool-in-apple-devices-find-out-about-the-undercover-smart-home-radio-in-macs-and-ipads-digital-secrets/"><u>Is There a Clandestine Smart Connectivity Tool in Apple Devices? Find Out About the Undercover 'Smart Home Radio' In Macs and iPads | Digital Secrets</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-the-ultimate-guide-to-3d-video-makers-free-paid-and-everything-in-between/"><u>New In 2024, The Ultimate Guide to 3D Video Makers Free, Paid, and Everything in Between</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-moral-dilemrances-of-disapproving-platforms/"><u>The Moral Dilemrances of Disapproving Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-scares-us-threefold-in-society/"><u>Why Meta Scares Us Threefold in Society</u></a></li>
 </ul></div>
 

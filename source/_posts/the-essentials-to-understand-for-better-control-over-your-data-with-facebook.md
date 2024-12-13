@@ -1,7 +1,7 @@
 ---
 title: The Essentials to Understand for Better Control Over Your Data with Facebook
-date: 2024-08-28T03:07:42.858Z
-updated: 2024-08-29T03:07:42.858Z
+date: 2024-12-09T20:16:10.717Z
+updated: 2024-12-12T21:03:39.941Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,24 @@ Here's how:
 
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
@@ -49,9 +62,6 @@ Here's how:
 
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
@@ -59,26 +69,15 @@ Here's how:
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
  You can also learn more about how to clean up your profile, and how to respond to unknown friend requests and followers by clicking on the appropriate option.
@@ -88,8 +87,9 @@ Here's how:
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why You Should Use Facebook's Privacy Center
 
  If you have access to the Privacy Center, it may be worth your while to spend some time familiarizing yourself with how Meta handles and processes your data across its family of apps.
@@ -102,24 +102,17 @@ Here's how:
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Protect Your Privacy
 
  Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
 
  Considering Facebook’s privacy history and its recent objections to iOS ad tracking changes, the new Privacy Center appears to be a small step in the right direction. We can only hope that it gets better.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +121,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-elevate-your-craft-the-best-premiere-pro-templates-2023/"><u>[New] Elevate Your Craft The Best Premiere Pro Templates 2023</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-competition-unveiled-twitchs-clash-with-youtube/"><u>[Updated] 2024 Approved The Competition Unveiled Twitch's Clash with YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-engagement-enhancers-trending-stories-filters/"><u>[Updated] In 2024, Engagement Enhancers Trending Stories Filters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-subtitled-out-of-a-zip-how-to-convert-files/"><u>[Updated] Subtitled Out of a Zip! How To Convert Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-social-media-planning-aids-you-cant-miss/"><u>10 Social Media Planning Aids You Can't Miss</u></a></li>
+<li><a href="https://facebook.techidaily.com/advice-addressing-kids-presence-on-social-networks/"><u>Advice: Addressing Kids' Presence on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-new-personality-on-fb-editing-name-and-handle/"><u>Become a New Personality on FB: Editing Name and Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-up-big-tech-governments-role-exposed/"><u>Breaking Up Big Tech: Government's Role Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-an-online-community-through-exciting-and-informative-video-content-on-facebook/"><u>Building an Online Community Through Exciting and Informative Video Content on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/claim-top-tier-paid-verification-from-meta/"><u>Claim Top Tier: Paid Verification From Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-clarity-mastering-online-engagement-with-facebooks-enhanced-moderation-features/"><u>Cultivate Clarity: Mastering Online Engagement with Facebook's Enhanced Moderation Features</u></a></li>
+<li><a href="https://win-forum.techidaily.com/guia-simples-para-converter-video-em-formato-mp4-para-wmv-com-o-software-movavi/"><u>Guia Simples Para Converter Video Em Formato MP4 Para WMV Com O Software Movavi</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-see-someones-location-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to See Someones Location on Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/perfect-places-to-procure-pixel-ringers-online/"><u>Perfect Places to Procure Pixel Ringers Online</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-every-detail-ai-innovations-showcased-at-apples-wwdc-event/"><u>Unveiling Every Detail: AI Innovations Showcased at Apple's WWDC Event</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-the-allure-of-dells-xps-13-a-comprehensive-review-reveals-why-its-stunning-design-is-more-than-just-skin-deep/"><u>Unveiling the Allure of Dell's XPS 13: A Comprehensive Review Reveals Why Its Stunning Design Is More Than Just Skin Deep</u></a></li>
+</ul></div>
 

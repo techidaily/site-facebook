@@ -1,7 +1,7 @@
 ---
 title: Mastery in Muting Facebook Reels
-date: 2024-08-28T03:11:54.167Z
-updated: 2024-08-29T03:11:54.167Z
+date: 2024-12-05T16:13:07.138Z
+updated: 2024-12-12T17:10:08.156Z
 tags:
   - facebook
 categories:
@@ -32,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
@@ -50,14 +51,8 @@ thumbnail: https://thmb.techidaily.com/7d9570e63947f5c327258cd4fe6b134c780b31f63
 
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### 3\. Use an Older Version of Facebook
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
@@ -69,8 +64,9 @@ Close
 ###
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Hide Content You Don't Like
 
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
@@ -78,13 +74,18 @@ Close
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  If the reason you're looking for how to get rid of Facebook Reels is that you don't like the content you're shown, you can hide it from your feed. This won't stop Reels from appearing, but it will ensure you don't see Reels you don't like.
 
  When you're shown a Reel you don't like, tap on the three dots at the bottom of the screen and select**Hide reel** . Doing this will tell Facebook that you're not interested in seeing this type of content. Therefore, Facebook is less likely to show it to you again.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Disable Auto-Playing Reels on Facebook
 
@@ -96,12 +97,17 @@ Close
 
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## These Are Your Only Good Options
 
@@ -109,22 +115,15 @@ Close
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Working Around Facebook Reels
 
  Facebook Reels are here to stay, whether or not we like them. However, we do have some control over how they auto-play and when they show up in our News Feeds. If you’re not a fan of the feature, hopefully, one of these workarounds will help make things more bearable for you until Facebook decides to give us a “hide reel” button.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-master-the-art-of-excluding-commercial-videos-from-social-media/"><u>[Updated] 2024 Approved Master the Art of Excluding Commercial Videos From Social Media</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-elevate-your-virtual-presentations-with-zoom-sharing/"><u>2024 Approved Elevate Your Virtual Presentations with Zoom Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-consumers-trust-their-smartphones-with-privacy-intact/"><u>Can Consumers Trust Their Smartphones With Privacy Intact?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/download-youtube-audio-safely-and-legally-in-3-ways-for-2024/"><u>Download Youtube Audio Safely & Legally in 3 Ways for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/exploring-the-world-of-mycams-home-based-recording-technology/"><u>Exploring the World of MyCam's Home-Based Recording Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/forget-not-your-fb-views-how-to-wipe-history/"><u>Forget Not Your FB Views: How to Wipe History</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-repairing-the-hiccup-that-prevented-your-software-from-running-smoothly-fixed/"><u>Guide to Repairing The Hiccup That Prevented Your Software From Running Smoothly [FIXED]</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-in-the-virtual-realm-8-methods-to-connect/"><u>Social Synergy in the Virtual Realm: 8 Methods to Connect</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook's New Bite Into Misinformed Sharing Actors
-date: 2024-10-17T18:47:28.047Z
-updated: 2024-10-20T20:56:22.277Z
+date: 2024-12-08T18:26:22.415Z
+updated: 2024-12-12T19:06:24.173Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Makes Misinformation Less Attractive
 
  Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
@@ -33,10 +37,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  This means that anyone who is friends with or follows that user will really have to dig through their News Feed in order to find that person's posts, whether they contain misinformation or not. Facebook's new penalty might be a bit extreme, but the platform clearly believes that this will put a stop to the spread of misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Also Pushing New Notifications
@@ -48,10 +49,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 ![Facebook Pages misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-misinformation-pages.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -61,10 +59,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 ![Fact checker notification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fact-checker-notification.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -72,10 +67,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  The notification also warns users that people "who repeatedly share false information might have their posts moved lower in News Feed so other people are less likely to see them." Users will then have the choice to either delete their post, or they can click a link to find out more about Facebook's fact-checking policies.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook's Strict Misinformation Policies Pay Off?
@@ -99,18 +91,24 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-spark-inspiration-free-premium-designs-for-video-marketers/"><u>[Updated] In 2024, Spark Inspiration Free, Premium Designs for Video Marketers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-learn-how-to-add-youtube-video-to-google-slides/"><u>2024 Approved Learn How to Add YouTube Video to Google Slides</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/abbyy-surges-past-previous-figures-with-triple-digits-in-profit-increase-marking-three-straight-years-of-success/"><u>ABBYY Surges Past Previous Figures with Triple Digits in Profit Increase, Marking Three Straight Years of Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/beware-the-copycat-con-artists-on-facebook/"><u>Beware the Copycat Con Artists on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-world-of-ray-ban-stories-through-facebook/"><u>Discovering the World of Ray-Ban Stories Through Facebook</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/elevate-content-development-with-ai-precision-discover-the-magic-of-hix-and-gpt-solutions/"><u>Elevate Content Development with AI Precision - Discover the Magic of Hix & GPT Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151494245-favorite-social-hub-share-your-choice/"><u>Favorite Social Hub: Share Your Choice!</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-poco-c55-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Poco C55 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-xiaomi-redmi-note-12r-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Xiaomi Redmi Note 12R Phones with/without a PC</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-rhythmic-revolution-top-tracks-reshaping-the-rap-scene-on-tiktok/"><u>In 2024, Rhythmic Revolution Top Tracks Reshaping the Rap Scene on TikTok</u></a></li>
-<li><a href="https://facebook.techidaily.com/intertwining-dimensions-what-is-the-metaverse/"><u>Intertwining Dimensions: What Is the Metaverse?</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-member-overlooked-the-art-of-group-recognition-in-social-media/"><u>No Member Overlooked: The Art of Group Recognition in Social Media</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-extensive-movement-review-2023/"><u>[New] Extensive Movement Review 2023</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-gratitude-freepaid-outro-template-selections/"><u>[Updated] Gratitude Free/Paid Outro Template Selections</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-hidden-glances-instagram-story-viewing-without-revealing-personal-details-pc-android-iphone/"><u>[Updated] Hidden Glances Instagram Story Viewing without Revealing Personal Details [PC, Android, iPhone]</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-art-of-perfect-video-quality-in-zoom-sessions-for-2024/"><u>[Updated] The Art of Perfect Video Quality in Zoom Sessions for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hero5-vs-yi-evaluating-cutting-edge-cameras/"><u>2024 Approved Hero5 Vs. YI Evaluating Cutting-Edge Cameras</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unveil-your-channels-potential-with-30-top-tier-free-intros/"><u>2024 Approved Unveil Your Channel's Potential with 30 Top-Tier Free Intros</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-scansnap-s1500-with-new-drivers/"><u>Elevate Scansnap S1500 with New Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-arbitral-body-and-its-decision-making-process/"><u>FB's Arbitral Body and Its Decision-Making Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaining-insight-the-power-of-friendly-polling-tactics/"><u>Gaining Insight: The Power of Friendly Polling Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-updating-your-fb-security-code/"><u>Guidelines for Updating Your FB Security Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-shield-yourself-online-7-steps-for-enhanced-fb-security/"><u>How to Shield Yourself Online: 7 Steps for Enhanced FB Security</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915430604-navigating-the-giants-of-digital-communication-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Digital Communication: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/newly-discovered-ai-technique-mimics-text-from-images/"><u>Newly Discovered AI Technique Mimics Text From Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-social-media-interface-to-dodge-disliked-promotions/"><u>Personalizing Your Social Media Interface to Dodge Disliked Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/rowing-collectives-end-social-media-use/"><u>Rowing Collectives End Social Media Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-meets-courtship-setting-up-on-facebook/"><u>Social Networking Meets Courtship: Setting Up on Facebook</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-art-of-effective-online-engagement-on-fb-for-2024/"><u>The Art of Effective Online Engagement on FB for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-behind-a-users-hidden-status-in-chat-apps/"><u>The Enigma Behind a User's Hidden Status in Chat Apps</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-bsod-traces-within-windows-108/"><u>Understanding BSOD Traces Within Windows 10/8</u></a></li>
 </ul></div>
 

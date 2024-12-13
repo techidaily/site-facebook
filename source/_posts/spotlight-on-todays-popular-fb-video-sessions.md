@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2024-11-25T21:17:57.182Z
-updated: 2024-11-26T23:48:00.930Z
+date: 2024-12-11T16:22:50.560Z
+updated: 2024-12-12T20:16:23.289Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -40,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 ![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
 4. Select the**Videos you've watched** option.  
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 That's it. Here you will find all the recently watched videos.
 
@@ -63,7 +55,7 @@ That's it. Here you will find all the recently watched videos.
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
@@ -78,10 +70,14 @@ That's it. Here you will find all the recently watched videos.
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -101,7 +97,15 @@ Close
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -109,10 +113,6 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -133,15 +133,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-boost-engagement-by-personalizing-your-twitter-videos-with-new-thumbnails/"><u>[New] 2024 Approved Boost Engagement by Personalizing Your Twitter Videos with New Thumbnails</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-transform-your-imagery-with-these-mobile-montage-leaders/"><u>[Updated] Transform Your Imagery with These Mobile Montage Leaders</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-10-premier-choices-for-no-cost-screen-recording-tools/"><u>2024 Approved 10 Premier Choices for No-Cost Screen Recording Tools</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/guia-paso-a-paso-para-recuperar-una-particion-efi-eliminada-en-windows-10-con-dos-soluciones-practicas/"><u>Guía Paso a Paso Para Recuperar Una Partición EFI Eliminada en Windows 10 Con Dos Soluciones Prácticas</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-listen-to-spotify-without-leaving-the-facebook-app/"><u>How to Listen to Spotify Without Leaving the Facebook App</u></a></li>
-<li><a href="https://facebook.techidaily.com/nbafire-up-on-both-platforms-this-year/"><u>NBAFire Up on Both Platforms This Year</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/optimizing-your-creative-process-windows-movie-maker-on-windows-8-unveiled/"><u>Optimizing Your Creative Process Windows Movie Maker on Windows 8 Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-login-process-with-whatsapps-instagram-2fa-code-support/"><u>Streamline Login Process with WhatsApp's Instagram 2FA Code Support</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-the-missing-d3dx9e933dll-issue/"><u>Troubleshooting the Missing d3dx9_e9_33.dll Issue</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-not-facebook-the-perspective-on-longevity/"><u>Why Not Facebook: The Perspective on Longevity</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-evaluating-recmeisters-innovation-in-video-capture/"><u>[New] 2024 Approved Evaluating Recmeister's Innovation in Video Capture</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-panoramic-photo-showdown-deciding-360-supremacy/"><u>[New] 2024 Approved Panoramic Photo Showdown Deciding 360 Supremacy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-make-every-moment-count-with-these-15-engaging-activities-while-listening-to-talk-shows-for-2024/"><u>[New] Make Every Moment Count with These 15 Engaging Activities While Listening to Talk Shows for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-simplified-path-to-mastery-in-using-cc-licenses-for-2024/"><u>[Updated] Simplified Path to Mastery in Using CC Licenses for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/camstudio-updates-the-2023-guide-for-screen-recording-pros/"><u>CamStudio Updates The 2023 Guide for Screen Recording Pros</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cutting-edge-top-20-zero-copyright-pubg-screenshots/"><u>Cutting-Edge Top 20 Zero-Copyright PUBG Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-private-settings-on-meta-and-facebook-quest-2/"><u>Examining Private Settings on Meta and Facebook Quest 2</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-iphone-x-secure-access-restoring-biometric-lock-for-2024/"><u>Mastering iPhone X Secure Access Restoring Biometric Lock for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-prime-fb-pics-selection/"><u>Mastering Prime FB Pics Selection</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-the-meaning-of-pfp-in-tiktok-world/"><u>Mastering the Meaning of PFP in TikTok World</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-strategy-facebook-enables-music-earnings-exchange/"><u>New Strategy: Facebook Enables Music Earnings Exchange</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-chat-with-facebooks-ar-driven-messaging-updates/"><u>Revolutionize Chat With Facebook's AR-Driven Messaging Updates</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-asus-rog-phone-7-ultimate-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Asus ROG Phone 7 Ultimate.</u></a></li>
 </ul></div>
 

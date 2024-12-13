@@ -1,7 +1,7 @@
 ---
 title: "Legitimacy Test on Facebook's Safety Mail Service: Is @Security@fb Valid?"
-date: 2024-08-28T03:07:06.546Z
-updated: 2024-08-29T03:07:06.546Z
+date: 2024-12-06T19:16:29.269Z
+updated: 2024-12-12T21:07:49.310Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ![Facebook Notification That User's Account Has Been Temporarily Locked](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-notification-that-user-s-account-has-been-temporarily-locked.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  <Security@facebookmail.com> is the email address that Facebook uses to send security-related emails to its users. If you receive an email from the email address containing the same email domain (@facebookmail), it's legit and coming from Facebook. You should follow the directions in the email.
 
 ## What Does the Email From "<Security@facebookmail.com>" Look Like?
@@ -41,13 +45,14 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Check the Email You Received From Facebook Is Legit
 
  Perform the following checks to verify that the email you received from Facebook is legitimate:
@@ -59,13 +64,15 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
  Afterward, click the**View** button next to**See recent emails from Facebook** under**Advanced** .  
 ![Clicking on View to View Recent Emails From Facebook in Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Clicking-on-View-to-View-Recent-Emails-From-Facebook-in-Facebook-Web-Client.jpg)  
  If the same email you received appears here, it's official. Otherwise, it's a scam.
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Respond to a Legit Facebook Protect Email
 
  If the email you received from Facebook requesting you to enable Facebook Protect meets all three conditions listed above, enable it for your own security. You can enable Facebook Protect by following these steps:
@@ -77,9 +84,6 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 5. Click on**Get Started** button next to**Facebook Protect** .  
 ![Enabling Facebook Protect in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Enabling-Facebook-Protect-in-Facebook-Settings-1.jpg)
 6. Then, follow the on-screen instructions to activate Facebook Protect.
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The Facebook Protect feature is only available for a limited number of Facebook users. And Facebook removes this feature from certain accounts when it feels that the account no longer meets the criteria to enjoy it. If you cannot find this option despite enabling it before, it signifies that your account no longer meets the eligibility criteria. So don't worry about it having been a scam!
 
@@ -92,8 +96,9 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
  In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What to Do if You Fall for a Fake Facebook Protect Email Scam
 
 ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
@@ -106,21 +111,15 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## "<Security@facebookmail.com>" Is Legit (but You Should Still Be Careful)
 
  Fraudsters are very good at mimicking official emails and making them appear legit. Hopefully, knowing the context of Facebook Protect email will help you distinguish fake emails from real ones. Additionally, those tips will assist you in limiting the damage if you mistakenly fall victim to such phishing emails.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +128,26 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-pioneers-in-online-mastery-meet-up/"><u>[New] Pioneers in Online Mastery Meet-Up</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-grasping-the-glossary-of-virtual-worlds/"><u>[Updated] 2024 Approved Grasping the Glossary of Virtual Worlds</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-rules-through-the-lens-of-its-new-center/"><u>Decoding Facebook's Rules Through the Lens of Its New Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-recommended-facebook-posts/"><u>Decoding Recommended Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-social-media-algorithms-impact-and-influence-of-hash-tags-on-facebooks-ecosystem/"><u>Decoding Social Media Algorithms: Impact and Influence of Hash Tags on Facebook's Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-subtle-cues-in-the-art-of-friend-requesting-on-fb/"><u>Decoding Subtle Cues in the Art of Friend Requesting on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-social-media-identity-icon/"><u>Designing Your Social Media Identity Icon</u></a></li>
+<li><a href="https://facebook.techidaily.com/despite-ban-facebook-celebrates-its-vaccine-dissenters/"><u>Despite Ban, Facebook Celebrates Its Vaccine Dissenters</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-from-facebook-android-instructions/"><u>Disconnecting From Facebook (Android) Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-matchmaking-portal-initiation-steps/"><u>Discovering Facebook's Matchmaking Portal: Initiation Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-facebook-observation-via-off-fb-workflow/"><u>Dismantling Facebook Observation via Off-FB Workflow</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722963852064-enhance-your-systems-audio-with-updated-drivers-for-windows-7-get-them-here/"><u>Enhance Your System's Audio with Updated Drivers for Windows 7 - Get Them Here!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/flawless-transcription-mastery-with-googles-ai-for-2024/"><u>Flawless Transcription Mastery with Google's AI for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-zte-blade-a73-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your ZTE Blade A73 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-quick-steps-for-effective-double-take-filming/"><u>In 2024, Essential Quick Steps for Effective Double Take Filming</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-iconic-imagery-tales-untold/"><u>In 2024, Iconic Imagery Tales Untold</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/powershot-g9-x-mark-ii-a-retro-look-meets-current-camera-technology-essentials/"><u>PowerShot G9 X Mark II: A Retro Look Meets Current Camera Technology Essentials</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/professional-mobile-photography-strategies-for-2024/"><u>Professional Mobile Photography Strategies for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/share-your-creations-from-imovie-directly-to-your-itunes-library/"><u>Share Your Creations From iMovie Directly to Your iTunes Library</u></a></li>
+</ul></div>
 

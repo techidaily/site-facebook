@@ -1,7 +1,7 @@
 ---
 title: "Streamlined Video Calls: Tips for Using Facebook Portal TV"
-date: 2024-08-28T03:09:50.763Z
-updated: 2024-08-29T03:09:50.763Z
+date: 2024-12-05T23:09:04.790Z
+updated: 2024-12-12T18:40:08.246Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,17 @@ thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a
 
  Having large images of your family, friends, and/or colleagues on the TV screen during a video call creates an illusion of proximity.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Portal TV?
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
@@ -56,15 +64,13 @@ thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a
  The Portal TV offers additional services to you based on your subscription category.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make Video Calls on the Facebook Portal TV
 
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
 ### Plugging In Your Portal TV
@@ -79,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a
 2. Don't place your Portal TV very close to a speaker or soundbar.
 3. Your Portal TV comes with Dolby Atmos sound. For effective use, it requires Dolby Atmos-encoded streaming content as well as a compatible audio system.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Mounting Your Portal TV on Top of Your TV
 
 Your Portal TV has two clips.
@@ -88,22 +98,23 @@ Your Portal TV has two clips.
 3. Simultaneously press the back clip of your Portal TV against the back of your TV frame and the front clip of your Portal TV against the front of your TV frame.
 4. Press the back clip of your Portal TV against the back of your TV for a firm grip.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Setting Up Your Remote
 
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Selecting Your Language and Connecting to Wi-Fi
 
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
 1. Navigate to**Language** and select your preferred language.
@@ -125,9 +136,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
 **To make a call** , say "Hey Portal, call (insert contact’s name)."
@@ -136,23 +144,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **To hang up a call** , say "Hey Portal, hang up."
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Building Stronger Relationships by Connecting on the Big Screen
 
  Video chatting with family and friends on the big screen can make you feel closer to them even when they are far away. You can see their faces and expressions clearly like they are standing in front of you.
 
  Indeed, Facebook's Portal TV is helping people build stronger relationships among friends, families, and/or colleagues. Even in the midst of a pandemic.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +163,19 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-acoustic-mastery-secrets-for-exceptional-audio-capture/"><u>[New] 2024 Approved Acoustic Mastery Secrets for Exceptional Audio Capture</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-discover-the-secret-art-of-crafting-podcast-narratives/"><u>[New] Discover the Secret Art of Crafting Podcast Narratives</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-unleashing-creativity-with-audacity-sound-capture-on-your-mac/"><u>[Updated] In 2024, Unleashing Creativity with Audacity Sound Capture on Your Mac</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-shades-of-genius-3-proven-tricks-for-color-correction-success/"><u>[Updated] Shades of Genius 3 Proven Tricks for Color Correction Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/activism-affects-apps-groups-seek-to-lower-social-media-stars/"><u>Activism Affects Apps: Groups Seek to Lower Social Media Stars</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-social-fallout-exiting-virtual-gatherings-wisely/"><u>Avoiding Social Fallout: Exiting Virtual Gatherings Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-facebooks-new-sonic-connectivity-feature/"><u>Breaking: Facebook's New Sonic Connectivity Feature</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-infinix-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Infinix</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-custom-viewability-in-social-media-sphere/"><u>Crafting Custom Viewability in Social Media Sphere</u></a></li>
+<li><a href="https://driver-error.techidaily.com/guide-restoring-access-to-the-disappeared-co-processor-driver-on-windows-10-solved/"><u>Guide: Restoring Access to the Disappeared Co-Processor Driver on Windows 10 [Solved]</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/insiders-look-at-streaming-content-on-social-media-platforms-for-2024/"><u>Insider's Look at Streaming Content on Social Media Platforms for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-role-of-refresh-intervals-in-ergonomic-design/"><u>The Role of Refresh Intervals in Ergonomic Design</u></a></li>
+</ul></div>
 

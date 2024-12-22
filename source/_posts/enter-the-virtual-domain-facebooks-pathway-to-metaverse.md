@@ -1,7 +1,7 @@
 ---
 title: "Enter the Virtual Domain: Facebook's Pathway to Metaverse"
-date: 2024-12-10T21:39:23.673Z
-updated: 2024-12-13T00:02:19.368Z
+date: 2024-12-18T19:23:39.410Z
+updated: 2024-12-21T16:57:43.156Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Metaverse?
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
@@ -40,14 +44,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Algorithmic Biases
@@ -71,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
@@ -86,15 +86,15 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -119,20 +119,16 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigating-youtube-metrics-with-ease/"><u>[Updated] 2024 Approved Navigating YouTube Metrics with Ease</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-firecapture-pro-for-ff/"><u>[Updated] FireCapture Pro for FF</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-influencers-secrets-top-10-video-editing-apps-for-ig-success-for-2024/"><u>[Updated] Influencers' Secrets Top 10 Video Editing Apps for IG Success for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/elevate-your-influence-mastering-instagram-engagement-for-2024/"><u>Elevate Your Influence Mastering Instagram Engagement for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-vivo-s17e-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Vivo S17e 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gratuito-e-online-converter-de-forma-simplificada-arquivos-no-formato-wma-com-o-movavi/"><u>Gratuito E Online: Converter De Forma Simplificada Arquivos No Formato WMA Com O Movavi</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-poco-x6-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Poco X6? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/y-letters-on-screen-bounce-with-ease-and-style-for-2024/"><u>Lively Letters on Screen Bounce with Ease and Style for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamp-your-profile-by-clearing-fb-watch-history/"><u>Revamp Your Profile by Clearing FB Watch History</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepping-away-from-the-world-ungrouping-on-social-media/"><u>Stepping Away From the World: Ungrouping on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegram-the-unforeseen-beneficiary-of-social-media-disruptions/"><u>Telegram: The Unforeseen Beneficiary of Social Media Disruptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-view-count-into-meaningful-engagement-with-fb-tactics/"><u>Transforming View Count Into Meaningful Engagement with FB Tactics</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-the-shortcomings-of-ai-powered-plagiarism-software/"><u>Understanding the Shortcomings of AI-Powered Plagiarism Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-the-120-minute-blade-blh4100-rtf-an-outdoor-rc-helicopter-reviewed/"><u>Unveiling the Power of the 120-Minute Blade BLH4100 RTF: An Outdoor RC Helicopter Reviewed!</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-path-to-a-neat-social-media-universe/"><u>Your Path to a Neat Social Media Universe</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-guide-to-annotate-windows-photos-video-content/"><u>[New] Step-by-Step Guide to Annotate Windows Photos Video Content</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-kinemaster-app-for-android-complete-review/"><u>[Updated] KineMaster App for Android - Complete Review</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-chromebook-soundscaping-guide-selecting-the-best-text-to-speech-apps-online/"><u>2024 Approved Chromebook Soundscaping Guide Selecting the Best Text-to-Speech Apps Online</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-xiaomi-redmi-13c-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Xiaomi Redmi 13C 5G without App | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amds-latest-zen-4-architecture-outperforms-older-zen-5-boosting-gaming-benchmarks-ryzen-7-7800x3d-beats-ryzen-9-9900x-by-up-to-23/"><u>AMD's Latest Zen 4 Architecture Outperforms Older Zen 5, Boosting Gaming Benchmarks: Ryzen 7 7800X3D Beats Ryzen 9 9900X by Up to 23%</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/discover-the-finest-alternatives-to-anydvd-effective-tools-for-legally-decrypting-and-copying-your-movies/"><u>Discover the Finest Alternatives to AnyDVD: Effective Tools for Legally Decrypting and Copying Your Movies</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-a-brand-reborn-as-the-innovative-meta-network/"><u>From 'Facebook': A Brand Reborn as the Innovative Meta Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/green-grid-facebook-now-runs-on-renewables/"><u>Green Grid: Facebook Now Runs on Renewables</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignored-yet-impactful-a-look-at-the-top-4-overlooked-tech-updates/"><u>Ignored Yet Impactful: A Look at the Top 4 Overlooked Tech Updates</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-6-by-drfone-ios/"><u>New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 6</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-facebook-account-was-hacked-4-things-to-do-immediately/"><u>Your Facebook Account Was Hacked? 4 Things to Do Immediately</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-12-08T21:18:09.023Z
-updated: 2024-12-13T00:06:11.681Z
+date: 2024-12-19T16:17:35.232Z
+updated: 2024-12-21T17:08:26.245Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,18 +79,24 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-acquire-excellent-images-at-no-cost-essential-strategies/"><u>[New] Acquire Excellent Images at No Cost Essential Strategies</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-screensnapper-showdown-for-2024/"><u>[New] ScreenSnapper Showdown for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-recorder-tips-effective-screen-and-camera-capturing-techniques-for-2024/"><u>[New] Vimeo Recorder Tips Effective Screen & Camera Capturing Techniques for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-an-anthology-of-admiration-highlighting-top-10-reddit-threads-for-2024/"><u>[Updated] An Anthology of Admiration Highlighting Top 10 Reddit Threads for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-boosting-youtube-success-mastery-with-tubebuddy-for-2024/"><u>[Updated] Boosting YouTube Success Mastery with TubeBuddy for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-digital-paintbrushes-at-your-fingertips-explore-11-color-correction-essentials/"><u>2024 Approved Digital Paintbrushes at Your Fingertips Explore 11 Color Correction Essentials</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/iently-add-youtube-playlists-to-your-website-interface/"><u>Efficiently Add YouTube Playlists to Your Website Interface</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-invites-you-to-shape-tomorrows-metaverse-awaiting-10k/"><u>Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-assertively-claim-a-purchase-correction-via-facebook/"><u>How to Assertively Claim a Purchase Correction via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-eloquence-unlocked-top-30-smart-words-and-phrases/"><u>Online Eloquence Unlocked: Top 30 SMART Words and Phrases</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/review-insights-on-the-winter-audio-player-soundbots-sb210-and-its-dependable-quality-output/"><u>Review Insights on the Winter Audio Player - Soundbot's SB210 and Its Dependable Quality Output</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-billions-for-virus-eradication-effort/"><u>Social Media's Billions for Virus Eradication Effort</u></a></li>
-<li><a href="https://facebook.techidaily.com/wnba-unleashed-on-two-social-titans-this-season/"><u>WNBA Unleashed on Two Social Titans This Season</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-everyones-guide-to-youtube-success-10-straightforward-video-tips/"><u>[New] In 2024, Everyone's Guide to YouTube Success 10 Straightforward Video Tips</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-price-tracker-for-cloud-space-services-a-detailed-review/"><u>[Updated] Price Tracker for Cloud Space Services A Detailed Review</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-uninstall-discord-server-on-all-devices-for-2024/"><u>[Updated] Uninstall Discord Server on All Devices for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-dissecting-video-ranking-algorithms-on-youtube/"><u>2024 Approved Dissecting Video Ranking Algorithms on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chatter-vs-linkedin-leaders-discussion-and-development-dissected/"><u>Facebook Chatter Vs. LinkedIn Leaders: Discussion and Development Dissected</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-community-management-features/"><u>Facebook Unveils Enhanced Community Management Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-footprint-on-our-lives-a-mixed-bag/"><u>Facebook's Footprint on Our Lives: A Mixed Bag</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-composing-engaging-podcast-thumbnails/"><u>In 2024, Composing Engaging Podcast Thumbnails</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-leading-virtual-reality-titles-for-your-smartphone/"><u>In 2024, The Leading Virtual Reality Titles for Your Smartphone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/instant-access-download-the-official-pioneer-dj-ddj-sx2-software/"><u>Instant Access: Download the Official Pioneer DJ DDJ-SX2 Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/reaching-a-plateau-in-social-media-popularity/"><u>Reaching a Plateau in Social Media Popularity</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-understanding-the-dangers-of-random-friendships/"><u>Steer Clear: Understanding the Dangers of Random Friendships</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-guide-for-igtv-video-submission-for-2024/"><u>Step-by-Step Guide for IGTV Video Submission for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-online-communities-through-refined-fb-administration/"><u>Strengthening Online Communities Through Refined FB Administration</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-11-pro-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-for-data-driven-decision-making/"><u>Top 8 CrowdFlower Tools for Data-Driven Decision Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-online-presence-seamless-fb-posts-and-notes-movement/"><u>Transform Your Online Presence: Seamless Fb Posts & Notes Movement</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-your-social-spheres-on-xbox-a-step-by-step-guide/"><u>Uniting Your Social Spheres on Xbox: A Step-by-Step Guide</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/windows-stellar-standard-file-wiping-tool-with-automated-schedule-settings/"><u>Windows Stellar Standard File Wiping Tool with Automated Schedule Settings</u></a></li>
 </ul></div>
 

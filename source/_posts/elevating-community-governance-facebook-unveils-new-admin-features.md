@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-12-08T21:41:44.641Z
-updated: 2024-12-12T16:30:29.933Z
+date: 2024-12-16T16:18:29.519Z
+updated: 2024-12-21T16:23:00.073Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Launches New Admin Tools to Moderate Groups
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -83,20 +83,22 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-a-comprehensive-tutorial-for-customizing-video-covers-on-social-media/"><u>[New] 2024 Approved A Comprehensive Tutorial for Customizing Video Covers on Social Media</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-from-sketches-to-screen-bringing-anime-filters-into-snaps/"><u>[New] 2024 Approved From Sketches to Screen Bringing Anime Filters Into Snaps</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-instagram-edits-for-professionals/"><u>[Updated] 2024 Approved A Comprehensive Guide to Instagram Edits for Professionals</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-obs-direct-stream-to-instagram/"><u>[Updated] 2024 Approved OBS Direct Stream to Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-unravel-the-mystery-of-the-overly-green-hue-in-mac-recordings-for-2024/"><u>[Updated] Unravel the Mystery of the Overly Green Hue in Mac Recordings for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-usernames-from-profile-names-on-social-networks/"><u>Deciphering Usernames From Profile Names on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/declining-interest-in-ios-data-collection-among-users/"><u>Declining Interest in iOS Data Collection Among Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-us-antitrust-reform-measures-to-curtail-dominance-of-big-tech/"><u>Decoding U.S. Antitrust Reform Measures to Curtail Dominance of Big Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-digital-interactions-via-facebooks-open-insight-center/"><u>Demystifying Digital Interactions via Facebook's Open Insight Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismantling-digital-dynasties-the-growing-antitrust-agenda/"><u>Dismantling Digital Dynasties: The Growing Antitrust Agenda</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-fascination-with-facebooks-member-count/"><u>Dissecting the Fascination with Facebook's Member Count</u></a></li>
-<li><a href="https://facebook.techidaily.com/e2ee-wait-no-more-facebook-messengers-encryption-update-date/"><u>E2EE Wait No More: Facebook Messenger's Encryption Update Date</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-how-to-transfer-photos-and-videos-from-iphone-to-iphone/"><u>In 2024, How to Transfer Photos and Videos From iPhone to iPhone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1722968286949-step-by-step-guide-downloading-and-updating-surface-book-drivers-made-easy/"><u>Step-by-Step Guide: Downloading and Updating Surface Book Drivers Made Easy!</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixed-system-random-stops-w11-solution/"><u>[FIXED] System Random Stops: W11 Solution</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/asy-start-the-definitive-guide-to-free-channel-openers-for-2024/"><u>[New] Easy Start The Definitive Guide to Free Channel Openers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-networked-video-streaming-with-vlc-for-2024/"><u>[Updated] Navigating Networked Video Streaming with VLC for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-make-your-own-youtube-opening-and-closing-graphics/"><u>2024 Approved Make Your Own YouTube Opening & Closing Graphics</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/elite-4k-laptops-for-gamers-1-ranked-list/"><u>Elite 4K Laptops for Gamers – #1 Ranked List</u></a></li>
+<li><a href="https://facebook.techidaily.com/financial-networking-fundamentals/"><u>Financial Networking Fundamentals</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-issue-how-to-resolve-mir4-errors-on-your-windows-computer/"><u>Fixing the Issue: How to Resolve Mir4 Errors on Your Windows Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-most-common-facebook-snafus-in-no-time/"><u>Fixing the Most Common Facebook Snafus in No Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-memories-the-essentials-of-photo-grouping-on-fb/"><u>Making Memories: The Essentials of Photo Grouping on FB</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-from-silence-to-symphony-a-practical-approach-to-changing-video-audio-part-1/"><u>New From Silence to Symphony A Practical Approach to Changing Video Audio (Part 1)</u></a></li>
+<li><a href="https://facebook.techidaily.com/regain-facebook-entry-the-password-reset-manual/"><u>Regain Facebook Entry: The Password Reset Manual</u></a></li>
+<li><a href="https://games-able.techidaily.com/securing-ps4-connection-on-windows-against-disconnection/"><u>Securing PS4 Connection on Windows Against Disconnection</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/snowboard-cross-triumphs-olympic-highlights/"><u>Snowboard Cross Triumphs - Olympic Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-symphony-orchestrating-photographic-collections-on-fb/"><u>Social Media Symphony: Orchestrating Photographic Collections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-semantic-powerhouse-fbs-message-symbol-interpretation-guide/"><u>The Semantic Powerhouse: FB's Message Symbol Interpretation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-move-against-facebooks-faces/"><u>Understanding Meta's Move Against Facebook's Faces</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-meta-ai-on-sites/"><u>Weighing the Advantages and Disadvantages of Meta AI on Sites</u></a></li>
 </ul></div>
 

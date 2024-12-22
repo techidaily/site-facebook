@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Extends Period for Reviewing New Privacy Policies
-date: 2024-12-10T18:18:49.485Z
-updated: 2024-12-12T16:25:17.386Z
+date: 2024-12-19T17:41:11.943Z
+updated: 2024-12-21T17:22:48.924Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
  For the past few weeks, WhatsApp has been showing a notification inside its app to provide more information about its privacy policy. It is also sending reminders if you have not accepted its new privacy policy. Eventually, if you don't accept the privacy policy, the reminder from WhatsApp will become persistent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your WhatsApp Account Functionality Will Be Limited
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 ![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once a persistent reminder is shown, the functionality of your WhatsApp account will be limited. Initially, you'll only lose access to your chat list. You can, however, still answer incoming video or voice calls. You'll also be able to read and respond to messages or call back a missed voice or video call via notifications. In an[FAQ](https://faq.whatsapp.com/general/security-and-privacy/what-happens-when-our-terms-and-privacy-policy-updates-take-effect/?lang=en) , WhatsApp says the limitations will not apply to everyone at the same time.
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
  A few weeks after your WhatsApp account's functionality is limited, you will lose the ability to receive incoming calls and messages. At this point, your WhatsApp account will basically be of no use as you won't be able to send or receive messages.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Inactive WhatsApp Accounts Are Deleted After 120 Days
@@ -81,24 +81,18 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-crafting-worldly-stories-startup-guide-for-future-travel-vloggers/"><u>[New] In 2024, Crafting Worldly Stories Startup Guide for Future Travel Vloggers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ro-tip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops-for-2024/"><u>[New] Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-instagram-unfollow-detection/"><u>[Updated] In 2024, Mastering Instagram Unfollow Detection</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-tomtom-actioncam-review-innovations-for-2024/"><u>[Updated] TomTom Actioncam Review Innovations for 2024</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/effortless-conversion-of-flv-to-avi-files-your-step-by-step-guide/"><u>Effortless Conversion of FLV to AVI Files – Your Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools</u></a></li>
-<li><a href="https://common-error.techidaily.com/get-rid-of-the-google-chrome-critical-error-scam-a-comprehensive-guide/"><u>Get Rid of the Google Chrome Critical Error Scam: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/groundbreaking-tools-aid-in-managing-digital-social-spaces/"><u>Groundbreaking Tools Aid in Managing Digital Social Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean...</u></a></li>
-<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-xiaomi-redmi-12-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Xiaomi Redmi 12 5G? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-top-notch-avchd-video-editing-software-our-2023-rankings/"><u>New In 2024, Top-Notch AVCHD Video Editing Software Our 2023 Rankings</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-digital-experience-less-customized-advertising/"><u>Optimize Digital Experience: Less Customized Advertising</u></a></li>
-<li><a href="https://facebook.techidaily.com/pro-palestinian-hackers-target-facebook-ratings-now-one-star-only/"><u>Pro-Palestinian Hackers Target Facebook Ratings - Now One Star Only</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegram-gains-momentum-when-facebook-disappears-for-hours/"><u>Telegram Gains Momentum When Facebook Disappears for Hours</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-fashion-and-function-facebook-goes-from-digital-to-tangible/"><u>The Future of Fashion & Function: Facebook Goes From Digital to Tangible</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-4-meta-resources-for-business-success/"><u>The Ultimate 4 Meta Resources for Business Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-revenue-strategies-for-fb-and-ig-success/"><u>Top 5 Revenue Strategies for FB & IG Success</u></a></li>
-<li><a href="https://driver-download.techidaily.com/update-wireless-software-or-driver-on-windows-1110/"><u>Update Wireless Software or Driver on Windows 11/10</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/zdnets-picks-for-the-ultimate-smartwatch-lineup-of-2nndie-thoroughly-tested-and-reviewed-best-of-2024/"><u>ZDNet's Picks for the Ultimate Smartwatch Lineup of 2Nndie: Thoroughly Tested and Reviewed | Best of 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-premier-equipment-for-cutting-edge-livestreams/"><u>[Updated] 2024 Approved Premier Equipment for Cutting-Edge Livestreams</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-quickscreen-recorder-plus-guided-soundtrack-companion-for-2024/"><u>[Updated] QuickScreen Recorder + Guided Soundtrack Companion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/activating-facebooks-secure-measures-a-step-by-step-guide/"><u>Activating Facebook's Secure Measures: A Step-by-Step Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/adding-funds-a-key-to-ps-store-success/"><u>Adding Funds: A Key to PS Store Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-which-facebook-portable-screen-suits-you-best/"><u>Assessing Which Facebook Portable Screen Suits You Best</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oppo-reno-9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-moto-g73-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Moto G73 5G to Outlook | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sharp-images-no-fog-protecting-gopro-quality/"><u>In 2024, Sharp Images, No Fog Protecting GoPro Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-structured-relaxation-and-recovery/"><u>Leveraging Facebook for Structured Relaxation and Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-pics-and-popularity-the-image-based-connection/"><u>Profile Pics & Popularity: The Image-Based Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-on-confirming-facebooks-online-presence/"><u>Quick Tips on Confirming Facebook’s Online Presence</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ess-youtube-editing-the-ultimate-finalcut-pro-guidebook/"><u>Seamless YouTube Editing The Ultimate FinalCut Pro Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-the-digital-space-how-facebook-will-assess-news-feeds/"><u>Tailoring the Digital Space: How Facebook Will Assess News Feeds</u></a></li>
 </ul></div>
 

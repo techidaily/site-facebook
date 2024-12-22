@@ -1,7 +1,7 @@
 ---
 title: "Shield Your Preferences: Discreetly Expressing Support Online"
-date: 2024-12-08T16:33:05.852Z
-updated: 2024-12-13T00:04:45.276Z
+date: 2024-12-16T17:48:00.243Z
+updated: 2024-12-21T19:22:18.045Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,24 +58,20 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-picsart-app-insights-comprehensive-review-and-walkthrough/"><u>[New] PicsArt App Insights Comprehensive Review and Walkthrough</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-seamless-entry-into-friends-tiktok-experiences-for-2024/"><u>[New] Seamless Entry Into Friends' TikTok Experiences for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-in-depth-app-investigation-via-az-screen-recorder/"><u>[Updated] 2024 Approved In-Depth App Investigation via AZ Screen Recorder</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-jake-pauls-youtube-success-story-all-you-need-to-know/"><u>[Updated] 2024 Approved Jake Paul's YouTube Success Story - All You Need to Know</u></a></li>
-<li><a href="https://win-able.techidaily.com/end-of-the-line-fixing-obs-latency-problems-for-perfect-livestreams-and-captures/"><u>End of the Line: Fixing OBS Latency Problems for Perfect Livestreams & Captures</u></a></li>
-<li><a href="https://facebook.techidaily.com/enforcing-stronger-security-on-your-facebook-profile/"><u>Enforcing Stronger Security on Your Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/esoteric-exchanges-facebook-friends-anonymity/"><u>Esoteric Exchanges: Facebook Friends Anonymity</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-reels-the-new-hope-for-tiktoks-market-share/"><u>Facebook and Reels: The New Hope for TikTok's Market Share</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-missteps-5-lessons-learned-from-where-users-were-let-down/"><u>Facebook's Missteps: 5 Lessons Learned From Where Users Were Let Down</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-vivo-s18e-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Vivo S18e Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 8 Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-social-preferences-private-fb-like-camouflage/"><u>Keep Your Social Preferences Private: FB Like Camouflage</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-your-likes-discreet-on-the-world-wide-web/"><u>Keeping Your Likes Discreet on the World Wide Web</u></a></li>
-<li><a href="https://facebook.techidaily.com/majority-opinion-on-tech-virtual-networking-harms-society/"><u>Majority Opinion on Tech: Virtual Networking Harms Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/soundscapes-on-facebook-expanded-audio-hub-unveiled/"><u>Soundscapes on Facebook: Expanded Audio Hub Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-frontiers-power-players-unraveling-the-mystery/"><u>The Digital Frontier's Power Players - Unraveling the Mystery</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transition-tactics-your-youtube-videos-on-instagram/"><u>Transition Tactics Your YouTube Videos on Instagram</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-best-10-free-ai-voice-generators-to-use-in-daily-life/"><u>Updated 2024 Approved Best 10 Free AI Voice Generators to Use in Daily Life</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/rs-to-earners-journey-calculating-necessary-counts/"><u>Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-dial-up-your-digital-influence-nine-simple-steps-on-instagram/"><u>[New] 2024 Approved Dial Up Your Digital Influence Nine Simple Steps on Instagram</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-mastering-twitter-videos-adhere-to-aspect-ratio-rules-for-2024/"><u>[New] Mastering Twitter Videos Adhere to Aspect Ratio Rules for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-peak-performance-in-live-recording-software/"><u>[Updated] 2024 Approved Peak Performance in Live Recording Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-complete-youtubers-guide-to-editing-in-premiere-pro/"><u>[Updated] 2024 Approved The Complete Youtuber's Guide to Editing in Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-video-profits-dailymotion-vs-youtube-insights/"><u>[Updated] Mastering Video Profits Dailymotion Vs. YouTube Insights</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-by-written-by-john-smith-phd/"><u>[Updated] Step-By Written by John Smith, PhD</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-apple-iphone-15-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On Apple iPhone 15?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-next-generation-of-mac-video-capture-software-not-bandicam/"><u>In 2024, The Next Generation of Mac Video Capture Software (Not Bandicam)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-lands-market-for-professional-advancement/"><u>Navigating the Digital Lands Market for Professional Advancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sonic-landscape-of-modern-chats-on-fb/"><u>Navigating the Sonic Landscape of Modern Chats on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-routes-through-distinct-facebook-user-sessions/"><u>Rapid Routes Through Distinct Facebook User Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-and-google-should-do-more-to-remove-scam-ads/"><u>Report: Facebook and Google Should Do More to Remove Scam Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-truth-on-platforms-during-a-global-crisis/"><u>The Battle for Truth on Platforms During a Global Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-3-issues-with-facebooks-virtual-reality/"><u>The Dark Side: 3 Issues with Facebook's Virtual Reality</u></a></li>
+<li><a href="https://fox-where.techidaily.com/1728487805552-windows-7/"><u>Windows 7の自動シャットダウン処理後のバックアップ方法</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Tactics for an Outstanding Online Presence on FB
-date: 2024-08-23T02:16:35.965Z
-updated: 2024-08-24T02:16:35.965Z
+date: 2024-12-17T17:04:53.675Z
+updated: 2024-12-21T19:36:18.760Z
 tags:
   - facebook
 categories:
@@ -51,21 +51,26 @@ thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90f
 
  You can add these links in your About section for easier access. If you haven’t already,[create a portfolio website](https://www.makeuseof.com/create-portfolio-website/) and add a link to that on your profile. You should definitely add a link to your LinkedIn profile as well, and even Instagram if that is relevant to your profession.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Post Work-Related Content
 
 ![Share work-related content on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/share-work-related-content-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  If you have been on Facebook for a while, you are likely used to posting and sharing stuff that is all over the place. This likely includes memes, comics, tweets, and random threads. While there’s nothing wrong with that, it sends the wrong message if you want to appear as a professional.
 
  Instead, posting work-related content shows that you are passionate about your industry. If you are a designer, share posts that focus on photography, design elements, and maybe even infographics. Similarly, if you are a programmer, try sharing posts from pages such as StackOverflow, FreeCodeCamp, etc.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Tweak Privacy Settings
 
 ![Tweaking privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/tweaking-privacy-settings.jpg)
@@ -76,46 +81,44 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  If you have content you only want your friends to see, you can set the audience to**Friends** from the**Audience** button when you're sharing a post.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Review Posts That You Are Tagged In
 
 ![Reviewing tags on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/review-tags-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Getting tagged in random posts can be quite annoying. What’s worse is the fact that when you are tagged in a post, it appears on your profile and everyone can see it. Luckily, Facebook added a setting that allows you to review posts you are tagged in before they show up on your profile.
 
  You can turn this on by going to **Settings & Privacy > Settings > Privacy > Profile and Tagging.** From here, make sure the setting to**Review posts you are tagged in** is enabled. Once done, every time you're tagged in a post, Facebook will ask you if you want to be tagged in this post or not. Only the posts that you approve will appear on your**timeline** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Review Old Posts
 
 ![Reviewing old posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/reviewing-old-posts-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  It’s also a good idea to review some of your old Facebook posts. People might end up skimming through your profile to see your interests, and you don’t want them to see something that will turn them away.
 
  So, go through both your recent and old posts and delete anything that might push people away. You might also want to avoid posting political stuff for good measure.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Review Your Likes and Groups
 
 ![Reviewing likes and groups on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/reviewing-likes-and-groups-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  People that visit your profile can also see what pages you like and what groups you are a part of. Incorporate the same strategy here as you would for older posts. Unfollow any pages or groups that are controversial, misleading, or problematic. You can also set pages’ visibility from privacy settings so that only you can see the pages you follow.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. Customize Profile URL
 
 ![Custom URL on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/custom-url-on-facebook.jpg)
@@ -135,14 +138,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  There’s a lot more you can do to improve your chances of finding better work. You should build a strong portfolio, connect with as many people as you can in your industry, and try to create a professional email address while you’re at it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +151,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-fotoscape-studio-comparing-paired-clients-tools-for-2024/"><u>[New] FotoScape Studio Comparing Paired Clients' Tools for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-green-frameworks-30plus-downloads-that-transform-your-videography-skills/"><u>[New] Green Frameworks 30+ Downloads That Transform Your Videography Skills</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-rethinking-recipes-squared-up-tutorials-for-youtube-and-facebook-success/"><u>[New] Rethinking Recipes Squared-Up Tutorials for YouTube and Facebook Success</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-essential-free-mcb-theme-templates-for-2024/"><u>[Updated] Essential Free MCB Theme Templates for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oppo-a78-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Oppo A78 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-visuals-using-chroma-key-effectively-for-2024/"><u>Enhancing Visuals Using Chroma Key Effectively for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/enrich-your-screen-time-integrating-facebook-live-into-roku-for-2024/"><u>Enrich Your Screen Time Integrating Facebook LIVE Into Roku for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-techniques-for-efficient-fb-link-management/"><u>Essential Techniques for Efficient FB Link Management</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-essential-steps-to-upload-tiktok-content-on-chrome-os/"><u>In 2024, Essential Steps to Upload TikTok Content on Chrome OS</u></a></li>
+<li><a href="https://article-files.techidaily.com/infusing-life-into-text-instagram-story-animations-tips/"><u>Infusing Life Into Text Instagram Story Animations Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-addingremoving-facebook-shortcuts/"><u>Quick Guide to Adding/Removing Facebook Shortcuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-unleashed-facebook-meets-instagram/"><u>Social Synergy Unleashed: Facebook Meets Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-teens-online-reflecting-on-instagram-use-with-facebooks-help/"><u>The Future of Teens Online: Reflecting on Instagram Use with Facebook's Help</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-era-after-deactivation/"><u>The Silent Era After Deactivation</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-tactics-for-keeping-your-fb-information-safe/"><u>Top Ten Tactics for Keeping Your FB Information Safe</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-door-to-metas-account-oversight-domain/"><u>Unlock the Door to Meta's Account Oversight Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-fbs-image-sharing-policies/"><u>Unraveling FB's Image Sharing Policies</u></a></li>
+</ul></div>
 

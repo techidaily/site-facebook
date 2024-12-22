@@ -1,7 +1,7 @@
 ---
 title: "The Cessation Chronicle: How to Erase Your Account for Ever"
-date: 2024-12-10T17:07:53.098Z
-updated: 2024-12-12T21:00:47.955Z
+date: 2024-12-16T16:06:02.018Z
+updated: 2024-12-21T16:21:49.741Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,12 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Once the cooling-off period passes, Facebook promises to remove all traces of your profile from its servers within 90 days. But don't worry; during the 90 days, your data is unavailable to other Facebook users.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Delete Your Facebook Account
 
  Before you remove your Facebook account forever, there are a few steps you need to take to ensure that the process runs smoothly and you don't have a burning feeling of regret later on.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Download Your Facebook Data
 
@@ -77,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 ![Apps and website section of Facebook settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/apps-and-website-section-of-facebook-settings.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can see which apps have access to your Facebook account by clicking your profile picture and going to **Settings & privacy > Settings > Apps and Websites** .
@@ -91,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Clearly, you can't post the same "I'm leaving" message day after day, so why not[change your Facebook profile picture](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to an image of your username on Instagram, Snapchat, or any other network you plan to keep using?
 
  By doing so, you won't be pestering people with spam, but they'll learn that you're planning to delete your Facebook account every time you pop up on their news feed. You can even crop your friends list back before posting your new details to prevent them from spreading too widely.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete a Facebook Account
 
@@ -106,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 6. Confirm you want to delete your account by choosing the**Delete account** toggle on the next screen.
 
 ![Deactivating or deleting your Facebook account prompt on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-or-deleting-your-facebook-account-prompt-on-facebook-web.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You will be asked to enter your password and confirm your decision. Once you do that, your account will be deleted.
 
@@ -131,19 +127,23 @@ Here's how to deactivate your Facebook account:
 
 ![Facebook account deactivation prompt in the account center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-account-deactivation-prompt-in-the-account-center.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You will be asked to confirm your decision. Once you do that, your account will be deactivated.
 
  You can toggle the option to continue using Messenger even though your Facebook account is disabled.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Reactivate a Facebook Account
 
  If you change your mind and want to return to Facebook, just head back to the social network's login page and enter your old credentials. The reactivation process takes a matter of seconds.
 
  Your account will also be reactivated if you use your Facebook credentials to log into a third-party app or service.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Delete Facebook?
 
@@ -164,17 +164,20 @@ Here's how to deactivate your Facebook account:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-filming-made-simple-steps-for-pcs-iphones-and-macbooks/"><u>[New] Filming Made Simple Steps for PCs, iPhones & MacBooks</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-optimize-game-console-audio-settings-on-sony-platforms/"><u>[New] In 2024, Optimize Game Console Audio Settings on Sony Platforms</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-iphone-15-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase iPhone 15 When Its Locked Within Seconds | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-my-selection-in-fbs-custom-ads/"><u>Decoding My Selection in FB's Custom Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-sheryls-role-in-facebooks-evolution/"><u>Decoding Sheryl's Role in Facebook's Evolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-chamber-of-messages-essential-beginner-tricks/"><u>Decoding the Chamber of Messages: Essential Beginner Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/donald-trumps-legal-standoff-with-g-f-t-over-free-speech/"><u>Donald Trump's Legal Standoff with G-F-T Over Free Speech</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-steps-to-update-birthdate-on-social-media/"><u>Easy Steps to Update Birthdate on Social Media</u></a></li>
-<li><a href="https://win-forum.techidaily.com/effective-methods-to-erase-user-profiles-from-your-pc-running-on-windows-10/"><u>Effective Methods to Erase User Profiles From Your PC Running on Windows 10</u></a></li>
-<li><a href="https://os-tips.techidaily.com/imitation-lastpass-application-found-on-apples-official-digital-marketplace/"><u>Imitation LastPass Application Found on Apple's Official Digital Marketplace</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-composers-handbook-to-instagram-and-music-rights/"><u>In 2024, The Composer's Handbook to Instagram and Music Rights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-rising-star-in-e-readers-a-thorough-review-of-the-kobo-nia-vs-kindle/"><u>The Rising Star in E-Readers: A Thorough Review of the Kobo Nia vs Kindle</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevating-visual-clarity-in-digital-facebook-broadcasts/"><u>[New] In 2024, Elevating Visual Clarity in Digital Facebook Broadcasts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-for-virtual-reality-content-android-friendly/"><u>2024 Approved The Ultimate Guide for Virtual Reality Content (Android-Friendly)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-voice-changing-methods-in-free-fire/"><u>2024 Approved Voice Changing Methods in Free Fire</u></a></li>
+<li><a href="https://techtrends.techidaily.com/anticipating-the-next-big-thing-insights-from-samsung-unpacked-2025-calendar-announcements-and-rumored-innovations/"><u>Anticipating the Next Big Thing - Insights From Samsung Unpacked 2025: Calendar, Announcements & Rumored Innovations</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-infinix-hot-40-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-ray-ban-stories-what-are-they-and-how-much-do-they-cost/"><u>Facebook Launches Ray-Ban Stories: What Are They and How Much Do They Cost?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-lockdown-unraveling-your-suspended-status/"><u>Facebook Lockdown: Unraveling Your Suspended Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/honoring-the-departed-online-facebook-profile-management-after-death/"><u>Honoring the Departed Online: Facebook Profile Management After Death</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/integrating-social-spaces-tiktok-uploads-on-facebook-for-2024/"><u>Integrating Social Spaces TikTok Uploads on Facebook for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-virtualization-enabling-hyper-v-functionality-on-windows-10-devices/"><u>Mastering Virtualization: Enabling Hyper-V Functionality on Windows 10 Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-cultivating-work-relationships-on-fb/"><u>Social Media Savvy: Cultivating Work Relationships on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-filter-bubble-bill-a-closer-look/"><u>The Filter Bubble Bill: A Closer Look</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-smart-way-to-benefit-from-facebooks-725m-class-action/"><u>The Smart Way to Benefit From Facebook's 725M Class Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-top-social-app/"><u>Unveiling the Top Social App</u></a></li>
 </ul></div>
 

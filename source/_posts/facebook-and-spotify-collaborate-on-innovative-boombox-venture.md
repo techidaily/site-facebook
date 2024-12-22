@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2024-12-05T17:39:23.251Z
-updated: 2024-12-12T22:25:48.506Z
+date: 2024-12-15T16:16:41.013Z
+updated: 2024-12-21T18:54:17.565Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Spotify Team up on Project Boombox
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -67,21 +67,18 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-critically-acclaimed-grabber-tech/"><u>[New] 2024 Approved Critically Acclaimed Grabber Tech</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-effective-strategies-for-removing-youtube-media-from-computers/"><u>[New] 2024 Approved Effective Strategies for Removing YouTube Media From Computers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-stepwise-guide-to-conducting-video-chats-on-laptop-via-whatsapp/"><u>[New] 2024 Approved Stepwise Guide to Conducting Video Chats on Laptop via WhatsApp</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unveiling-the-secrets-of-swift-youtube-subtitle-insertion/"><u>[Updated] In 2024, Unveiling the Secrets of Swift YouTube Subtitle Insertion</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-security-with-updated-login-details-in-facebook/"><u>Enhance Security with Updated Login Details in Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-waters-and-pages-with-the-durable-kobo-libra-h2c-a-full-review-on-its-features-and-usability/"><u>Exploring Waters and Pages with the Durable Kobo Libra H2C – A Full Review on Its Features & Usability</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-is-working-to-clarify-its-rules-regarding-satire/"><u>Facebook Is Working to Clarify Its Rules Regarding Satire</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-disappearance-to-recurrence-the-instagram-paradox/"><u>From Disappearance to Recurrence: The Instagram Paradox</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Realme GT 3? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/is-your-oppo-a1-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Oppo A1 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://win-updates.techidaily.com/jeden-tag-gesicherte-backups-automatisches-auslagern-auf-einen-usb-datenspeicher/"><u>Jeden Tag Gesicherte Backups: Automatisches Auslagern Auf Einen USB-Datenspeicher</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210196656-9781631064340-night-meditations/"><u>Night Meditations | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-connections-how-to-disconnect-specific-profiles/"><u>Streamlining Connections: How to Disconnect Specific Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-impactful-tech-personalities-sparking-debate/"><u>The Biggest Impactful Tech Personalities Sparking Debate</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-history-and-function-of-vpns/"><u>The History and Function of VPNs</u></a></li>
-<li><a href="https://facebook.techidaily.com/trusted-territories-are-verified-metals-or-blue-badges-superior/"><u>Trusted Territories: Are Verified Metals or Blue Badges Superior?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-4-fastest-lenovo-record-methods/"><u>[New] The 4 Fastest Lenovo Record Methods</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-audiovisual-experts-choices-the-ultimate-video-editing-gear-for-2024/"><u>[Updated] Audiovisual Experts' Choices The Ultimate Video Editing Gear for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-motorola-edgeplus-2023-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Motorola Edge+ (2023) System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-tour-of-metas-digital-command-center/"><u>A Comprehensive Tour of Meta's Digital Command Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-spotify-account-from-your-facebook-space/"><u>Disconnecting Spotify Account From Your Facebook Space</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevating-gopro-videos-with-professional-filmmaking-techniques/"><u>Elevating Gopro Videos with Professional Filmmaking Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-rising-trends-causing-a-drop-in-facebooks-user-count/"><u>Four Rising Trends Causing a Drop in Facebook's User Count</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/getting-the-most-out-of-your-money-with-the-fitbit-versa-lite-a-detailed-review/"><u>Getting the Most Out of Your Money with the Fitbit Versa Lite - A Detailed Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-poco-x5-pro-by-drfone-android/"><u>How to Show Wi-Fi Password on Poco X5 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-those-who-youve-shunned-on-facebook/"><u>Revisiting Those Who You’ve Shunned on Facebook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-realme-c53-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Realme C53 Location | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-business-potential-through-strategic-client-acquisition-on-facebook/"><u>Unlock Your Business Potential Through Strategic Client Acquisition on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unparalleled-subscriber-access-how-facebook-defeats-apples-standard-approach/"><u>Unparalleled Subscriber Access: How Facebook Defeats Apple's Standard Approach</u></a></li>
 </ul></div>
 

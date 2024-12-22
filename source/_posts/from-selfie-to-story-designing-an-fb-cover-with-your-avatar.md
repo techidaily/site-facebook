@@ -1,7 +1,7 @@
 ---
 title: "From Selfie to Story: Designing an FB Cover With Your Avatar"
-date: 2024-12-05T19:34:32.534Z
-updated: 2024-12-12T17:30:46.501Z
+date: 2024-12-14T17:03:37.605Z
+updated: 2024-12-21T18:18:30.570Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make a Facebook Avatar Cover Photo
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 ![A Facebook profile with the option of creating a cover photo with an avatar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-meta-profile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When Facebook users with a Facebook avatar navigate to their home page, they now see a**Create with avatar** button over the familiar**Edit cover photo** button in the lower right corner of their profile’s cover photo.
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 ![An auto-generated avatar Facebook cover photo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-meta-sample-cover-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can select**Set as cover photo** and be on your way. However, scrolling down reveals options to create a custom cover photo with your Facebook avatar.
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 ![Choosing a pose for a Facebook avatar cover photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-edit-meta-banner1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This setup probably looks familiar to you, as it’s arguably an under-powered clone of Snapchat’s Bitmoji avatar profile picture. Two tabs offer a selection of poses and backgrounds for your avatar.
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 ![Choosing a background for a Facebook avatar cover photo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-edit-meta-banner2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can edit your cover photo on the browser interface, but only the pose and background. If you want to edit the avatar or its clothing, you’ll have to use the Facebook app.
@@ -91,18 +91,24 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-getting-started-with-vlc-screen-recordings-for-2024/"><u>[New] Getting Started with VLC Screen Recordings for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-high-quality-hearables-leading-podcasters-on-googloud/"><u>2024 Approved High-Quality Hearables Leading Podcasters on GooGloud</u></a></li>
-<li><a href="https://fox-that.techidaily.com/airpod-connection-woes-learn-how-to-limit-pairing-with-single-apple-devices-effortlessly/"><u>AirPod Connection Woes? Learn How to Limit Pairing with Single Apple Devices Effortlessly!</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-lava-blaze-2-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Lava Blaze 2 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/efficient-mov-editing-and-recording-tutorial-for-windows-11-users/"><u>Efficient MOV Editing and Recording Tutorial for Windows 11 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-redefines-e-commerce-with-individualized-app-payment-links/"><u>Facebook Redefines E-Commerce with Individualized App Payment Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-community-boosters-building-page-polls/"><u>Facebook's Community Boosters: Building Page Polls</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mlb-the-show-21-play-issues-addressed-smoother-online-experience-awaits/"><u>MLB The Show 21 Play Issues Addressed - Smoother Online Experience Awaits</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/pro-level-color-correction-in-final-cut-pro/"><u>Pro-Level Color Correction in Final Cut Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/reconnecting-with-blocked-friends-on-fb/"><u>Reconnecting with Blocked Friends on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-administration-adding-a-masterful-admin/"><u>Step-by-Step Administration: Adding a Masterful Admin</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-instagramfacebook-with-meta-ai-integration/"><u>The Future of Instagram/Facebook with Meta AI Integration?</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-unfollow-functionality/"><u>Understanding Facebook's Unfollow Functionality</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-from-zero-to-hero-creating-an-online-gaming-empire/"><u>[New] 2024 Approved From Zero to Hero Creating an Online Gaming Empire</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-increase-your-streams-value-youtube-monetizing-techniques-worldwide/"><u>[New] In 2024, Increase Your Stream's Value YouTube Monetizing Techniques Worldwide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-quick-tips-for-capturing-online-video-conversations-for-2024/"><u>[New] Quick Tips for Capturing Online Video Conversations for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-clubs-sever-social-media-connections-amid-cyberbullying-fears/"><u>Elite Clubs Sever Social Media Connections Amid Cyberbullying Fears</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-video-calls-with-zoom-in-gmail-platform/"><u>In 2024, Unlocking Video Calls with Zoom in Gmail Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/increasing-oversight-adding-an-admin-to-your-fb-profile/"><u>Increasing Oversight: Adding an Admin to Your FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-paves-the-way-for-artists-with-enhanced-earning-features/"><u>Instagram Paves the Way for Artists with Enhanced Earning Features</u></a></li>
+<li><a href="https://win-top.techidaily.com/ipad-photo-transfer-tutorial-move-images-directly-to-an-sd-card/"><u>IPad Photo Transfer Tutorial - Move Images Directly to an SD Card</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-dimensions-online-aspect-tweaking-for-2024/"><u>Mastering Dimensions Online Aspect Tweaking for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-moderation-instruments-released-by-facebook/"><u>New Moderation Instruments Released by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-existence-completely-unplugging-from-fb/"><u>Offline Existence: Completely Unplugging From FB</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/optimal-obs-configurations-for-thrifty-computers/"><u>Optimal OBS Configurations for Thrifty Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/realm-rankings-where-does-true-status-reside-meta-gold-or-twitter-blue/"><u>Realm Rankings: Where Does True Status Reside, Meta-Gold or Twitter-Blue?</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-your-profile-alter-contact-details-step-by-step/"><u>Simplifying Your Profile: Alter Contact Details Step by Step</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721468144959-still-want-to-silence-that-noise-fix-an-iphones-broken-mute-feature-here/"><u>Still Want to Silence That Noise? Fix an iPhone's Broken Mute Feature Here!</u></a></li>
+<li><a href="https://facebook.techidaily.com/ten-tactics-to-triumph-in-text-room-territories/"><u>Ten Tactics to Triumph in Text Room Territories</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-elite-list-of-ultra-fast-m2-ssds-thorough-analysis-and-ratings-pcmag/"><u>Unveiling the Elite List of Ultra-Fast M.2 SSDs : Thorough Analysis and Ratings | PCMag</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-the-hang-up-your-headphones-message-from-instagram-matters/"><u>Why the 'Hang Up Your Headphones' Message From Instagram Matters</u></a></li>
 </ul></div>
 

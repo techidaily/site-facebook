@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-12-07T16:30:47.125Z
-updated: 2024-12-12T18:33:50.810Z
+date: 2024-12-19T17:58:09.031Z
+updated: 2024-12-21T19:37:24.546Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,18 +61,20 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-essential-guide-to-creating-popularity-with-youtube-opens-for-2024/"><u>[Updated] Essential Guide to Creating Popularity with YouTube Opens for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-perfect-color-accuracy-in-canon-imagery-with-free-and-paid-lut-combinations/"><u>2024 Approved Perfect Color Accuracy in Canon Imagery with Free & Paid LUT Combinations</u></a></li>
-<li><a href="https://games-able.techidaily.com/ideal-gameplay-list-for-versatile-streaming/"><u>Ideal Gameplay List for Versatile Streaming</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-tecno-spark-20-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Tecno Spark 20 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-compendium-for-professionals-in-vivacut-video-editing/"><u>In 2024, The Ultimate Compendium for Professionals in VivaCut Video Editing</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-info-the-one-whistleblowing-to-fbs-secret-life/"><u>Inside Info: The One Whistleblowing to FB's Secret Life</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/inside-information-sony-afeela-car-what-to-expect-from-specs-and-market-debut/"><u>Inside Information: Sony Afeela Car - What to Expect From Specs & Market Debut</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-creating-memorable-online-gatherings-on-facebook/"><u>Mastering the Art of Creating Memorable Online Gatherings on Facebook</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/modern-methods-of-mixing-media-the-latest-on-adding-sound-to-ae-projects-2023s-insights-and-tips-for-2024/"><u>Modern Methods of Mixing Media The Latest on Adding Sound to AE Projects (2023S Insights and Tips) for 2024</u></a></li>
-<li><a href="https://techidaily.com/solved-photos-disappeared-from-iphone-8-plus-suddenly-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Solved Photos Disappeared from iPhone 8 Plus Suddenly | Stellar</u></a></li>
-<li><a href="https://facebook.techidaily.com/thriving-in-digital-conversations-a-guide-to-a-prolific-facebook-clan/"><u>Thriving in Digital Conversations: A Guide to a Prolific Facebook Clan</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-chat-vibes-with-fbs-messenger-sounds/"><u>Transform Your Chat Vibes with FB's Messenger Sounds</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-find-your-niche-and-style-a-starters-guide/"><u>[New] How to Find Your Niche and Style - a Starter's Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-troubleshoot-and-eliminate-green-screen-issues-on-mac/"><u>[Updated] 2024 Approved Troubleshoot and Eliminate Green Screen Issues on Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transform-videos-with-easy-to-use-sound-effects/"><u>[Updated] Transform Videos with Easy-to-Use Sound Effects</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-chromium-connection-pixel-phone-rhythms/"><u>2024 Approved The Chromium Connection Pixel Phone Rhythms</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-itel-s23-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/comprehensive-reviews-by-tom-on-top-electronic-devices/"><u>Comprehensive Reviews by Tom on Top Electronic Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-factors-for-buying-a-facebook-smart-hub/"><u>Essential Factors for Buying a Facebook Smart Hub</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-retire-your-facebook-business-profile-without-astonishment/"><u>How to Retire Your Facebook Business Profile Without Astonishment</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-complexities-of-social-media-service-links-in-fb/"><u>Navigating the Complexities of Social Media Service Links in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-dangerous-trade-tide-scam-spotting-and-safeguarding-tips-for-facebook/"><u>Navigating the Dangerous Trade Tide – Scam Spotting & Safeguarding Tips for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-new-journey-begins-with-launch-of-go-model/"><u>Portal’s New Journey Begins with Launch of Go Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-archive-blueprint-for-facebook-history/"><u>The Ultimate Archive Blueprint for Facebook History</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unleash-your-productivity-save-big-with-the-10-in-1-docking-station-at-35-off-today-exclusive-deal-on-zdnet/"><u>Unleash Your Productivity: Save Big with the 10-in-1 Docking Station at 35% Off Today - Exclusive Deal on ZDNet!</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-on-the-horizon-facebooks-new-story-panel-features/"><u>What's on the Horizon? Facebook's New Story Panel Features?</u></a></li>
 </ul></div>
 

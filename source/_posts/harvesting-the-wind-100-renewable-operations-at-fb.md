@@ -1,7 +1,7 @@
 ---
 title: "Harvesting the Wind: 100%% Renewable Operations at FB"
-date: 2024-08-28T03:06:13.254Z
-updated: 2024-08-29T03:06:13.254Z
+date: 2024-12-16T16:39:06.475Z
+updated: 2024-12-21T19:20:03.357Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/55968897eeae10de1d5f523b1b9a82af3b28230cb
 ## Harvesting the Wind: 100% Renewable Operations at FB
 
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
@@ -35,9 +39,17 @@ thumbnail: https://thmb.techidaily.com/55968897eeae10de1d5f523b1b9a82af3b28230cb
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -49,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -65,8 +74,18 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/kyrocket-your-channels-status-on-youtube-with-these-steps-for-2024/"><u>[New] Skyrocket Your Channel's Status on YouTube with These Steps for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/1726028661905-gif/"><u>「うまく動くGIFを制御する - アニメーションスピードの最適化方法」</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/easy-guide-performing-a-full-dell-factory-reset-on-your-laptop-using-windows/"><u>Easy Guide: Performing a Full Dell Factory Reset on Your Laptop Using Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-ears-connecting-hearts-facebooks-audio-venture/"><u>Engaging Ears, Connecting Hearts: Facebook's Audio Venture</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-iphone-12-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock iPhone 12 with iTunes</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-rules-and-unspoken-guides-to-online-friending/"><u>Hidden Rules and Unspoken Guides to Online Friending</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-htc-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked HTC Phone?</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-tech-with-tom-comprehensive-gadget-analysis-and-advice/"><u>Mastering Tech with Tom: Comprehensive Gadget Analysis & Advice</u></a></li>
+<li><a href="https://facebook.techidaily.com/unexpected-disclosure-have-my-phone-details-been-shared-on-fb/"><u>Unexpected Disclosure: Have My Phone Details Been Shared on FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-humanity-under-a-new-name-meta-evolves-from-facebook/"><u>Uniting Humanity Under a New Name - Meta Evolves From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-trend-young-people-stepping-away-from-insta/"><u>Upcoming Trend: Young People Stepping Away From Insta</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->

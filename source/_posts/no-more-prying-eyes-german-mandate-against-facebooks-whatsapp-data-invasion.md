@@ -1,7 +1,7 @@
 ---
 title: "No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion"
-date: 2024-12-11T22:54:18.748Z
-updated: 2024-12-12T23:22:16.286Z
+date: 2024-12-16T19:45:17.456Z
+updated: 2024-12-21T18:24:13.552Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,24 +81,21 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://hardware-help.techidaily.com/download-update-targus-displaylink-drivers-in-windows-1087/"><u>[DOWNLOAD] Update Targus DisplayLink Drivers in Windows 10/8/7</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-dealing-with-disconnected-live-video-sessions-on-facebook/"><u>[Updated] 2024 Approved Dealing with Disconnected LIVE Video Sessions on Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-essential-guide-to-documentary-storytelling-mechanics/"><u>[Updated] 2024 Approved The Essential Guide to Documentary Storytelling Mechanics</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-essential-business-youtube-sites-you-must-follow-for-2024/"><u>[Updated] Essential Business YouTube Sites You Must Follow for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/convert-3gp-videos-to-mpeg-file-format-at-no-cost-using-moveavis-website/"><u>Convert 3GP Videos to MPEG File Format at No Cost Using Moveavi's Website</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/efficient-methods-to-master-your-phone-memos/"><u>Efficient Methods to Master Your Phone Memos</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-list-of-regrets-a-compilation-of-5-major-mishaps-to-its-community/"><u>Facebook’s List of Regrets: A Compilation of 5 Major Mishaps to Its Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-new-dimension-reasons-for-apprehension/"><u>Facebook's New Dimension – Reasons for Apprehension</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-worlds-at-our-fingertips-discovering-the-reality-of-metaverse-on-facebook/"><u>Future Worlds at Our Fingertips: Discovering The Reality of Metaverse on Facebook</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/innovative-techniques-for-backward-video-editing-in-snapchat-apps/"><u>Innovative Techniques for Backward Video Editing in Snapchat Apps</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/instantly-stream-youtube-content-on-facebook-auto-play-guide-for-2024/"><u>Instantly Stream YouTube Content on Facebook Auto-Play Guide for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/on-the-go-living-portal-gets-a-portable-makeover/"><u>On-the-Go Living: Portal Gets a Portable Makeover</u></a></li>
-<li><a href="https://win11.techidaily.com/solutions-for-slashing-dropbox-cpu-load-on-windows-devices/"><u>Solutions for Slashing Dropbox CPU Load on Windows Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/sovereign-suing-social-giants-trump-vs-google-facebook/"><u>Sovereign Suing Social Giants: Trump Vs. Google, Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-guide-to-user-exclusion-for-businesses-on-facebook/"><u>The Essential Guide to User Exclusion for Businesses on Facebook</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ower-of-first-impressions-crafting-impactful-youtube-images-for-2024/"><u>The Power of First Impressions Crafting Impactful YouTube Images for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-advanced-account-protection-with-fb-mtgc/"><u>Unlock Advanced Account Protection with FB MTGC</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-the-hidden-dangers-in-social-quiz-platforms/"><u>Unmasking the Hidden Dangers in Social Quiz Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/writers-world-expanded-with-facebooks-5-million-for-new-digital-platform-venture/"><u>Writers' World Expanded with Facebook's $5 Million for New Digital Platform Venture</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-skewed-imagery-texts/"><u>[New] Mastering Skewed Imagery Texts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-using-look-up-tables-luts-in-photoshop/"><u>[New] The Ultimate Guide to Using Look-Up Tables (LUTs) in Photoshop</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-cost-effective-sky-gadgets-frugal-flight-devices-ranking/"><u>[Updated] 2024 Approved Cost-Effective Sky Gadgets Frugal Flight Devices Ranking</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-quintessential-scriptwriting-throughout-the-film-landscape/"><u>[Updated] In 2024, Quintessential Scriptwriting Throughout the Film Landscape</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-pro-video-setup-utilizing-your-logitech-webcam/"><u>[Updated] Pro Video Setup Utilizing Your Logitech Webcam</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-daily-use-to-extraordinary-experiences-phones-into-vr/"><u>2024 Approved From Daily Use to Extraordinary Experiences Phones Into VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-metaverse-3-pivotal-questions-for-society/"><u>Facebook's Metaverse - 3 Pivotal Questions for Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/forums-to-feeds-the-top-6-transition-trajectory-changes/"><u>Forums to Feeds: The Top 6 Transition Trajectory Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-the-zenith-of-facebook-been-hit/"><u>Has the Zenith of Facebook Been Hit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-highlight-reel-concealing-your-facebook-activity/"><u>Hidden Highlight Reel: Concealing Your Facebook Activity</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-biden-employs-social-giants-to-win-the-covid-war/"><u>Joe Biden Employs Social Giants to Win the COVID War</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-trump-accuses-big-platforms-of-limiting-user-expression/"><u>President Trump Accuses Big Platforms of Limiting User Expression</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/stream-smarter-not-harder-the-in-depth-review-of-chromecast-with-google-tv/"><u>Stream Smarter, Not Harder - The In-Depth Review of Chromecast with Google TV!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-the-full-potential-10-chatgpt-vs-code-pairings/"><u>Unlocking the Full Potential: 10 ChatGPT-VS Code Pairings</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-brands-soar-on-facebook-a-look-at-the-superiority-of-business-pages/"><u>Why Brands Soar on Facebook: A Look at the Superiority of Business Pages</u></a></li>
 </ul></div>
 

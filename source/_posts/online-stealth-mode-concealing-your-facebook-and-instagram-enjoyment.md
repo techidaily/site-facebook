@@ -1,7 +1,7 @@
 ---
 title: "Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment"
-date: 2024-12-10T18:05:44.024Z
-updated: 2024-12-12T17:22:28.294Z
+date: 2024-12-18T19:01:33.684Z
+updated: 2024-12-21T18:41:22.604Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,20 +58,17 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-the-fundamentals-of-using-ffpm-in-firefox/"><u>[New] The Fundamentals of Using FFPM in Firefox</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/discover-why-this-lenovo-thinkpad-stands-out-as-an-almost-ideal-ultraportable-notebook-review/"><u>Discover Why This Lenovo ThinkPad Stands Out as an Almost Ideal Ultraportable Notebook Review</u></a></li>
-<li><a href="https://driver-install.techidaily.com/easy-fixes-hassle-free-m-track-corrections/"><u>Easy Fixes, Hassle-Free M-Track Corrections</u></a></li>
-<li><a href="https://facebook.techidaily.com/forge-stronger-bonds-and-drive-success-top-8-facebook-workplace-features/"><u>Forge Stronger Bonds & Drive Success: Top 8 Facebook Workplace Features</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac/"><u>Get That Perfect Fit Resize Videos to Instagram Standards Using Mac</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-honor-100-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Honor 100? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovate-interaction-elevate-your-groups-social-standing/"><u>Innovate Interaction: Elevate Your Group's Social Standing</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/precision-and-performance-top-6-video-edits-on-macos-big-sur/"><u>Precision and Performance Top 6 Video Edits on macOS Big Sur</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-priority-list-avoid-these-three-traps/"><u>Privacy Priority List: Avoid These Three Traps</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-access-the-swift-solution-for-forgetful-fb-users/"><u>Regaining Access - The Swift Solution for Forgetful FB Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-platforms-add-sponsored-content-features/"><u>Social Media Platforms Add Sponsored Content Features</u></a></li>
-<li><a href="https://driver-install.techidaily.com/upgrade-lenovo-g580-drivers-easy/"><u>Upgrade Lenovo G580 Drivers, Easy!</u></a></li>
-<li><a href="https://driver-install.techidaily.com/upgrade-sound-precision-fresh-scarlett-6i6-driver-guide/"><u>Upgrade Sound Precision: Fresh Scarlett 6I6 Driver Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/user-skepticism-rises-examining-five-times-facebook-missed-the-target/"><u>User Skepticism Rises: Examining Five Times Facebook Missed the Target</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-ultimate-checklist-for-capturing-live-conversations/"><u>[New] 2024 Approved The Ultimate Checklist for Capturing Live Conversations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-enhance-your-digital-diaries-for-free-extensions-and-mobile-edition/"><u>[New] Enhance Your Digital Diaries for Free – Extensions & Mobile Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-dial-up-beats-easy-audio-posting-to-youtubes/"><u>[Updated] 2024 Approved Dial-Up Beats Easy Audio Posting to YouTubes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-build-a-custom-facebook-coverage/"><u>2024 Approved Build a Custom Facebook Coverage</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-quick-collage-insights-for-instagram-success/"><u>2024 Approved Quick Collage Insights for Instagram Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/instafb-embraces-meta-drops-nfts-for-limited-testing-period/"><u>Insta/FB Embraces Meta Drops NFTs for Limited Testing Period</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/quick-fix-for-paused-facebook-livestreams-2023s-tips-and-tricks/"><u>Quick Fix for Paused Facebook Livestreams, 2023'S Tips & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-childrens-online-space-in-messenger-kids-app/"><u>Securing Children's Online Space in Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-mystery-of-sudden-facebook-profile-hibernation/"><u>Tackling the Mystery of Sudden Facebook Profile Hibernation</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-second-life-in-the-dawn-of-the-metaverse-era/"><u>The Case For Second Life in the Dawn of The Metaverse Era?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-how-to-fix-minecraft-updater-issues-and-successfully-refresh-your-game/"><u>Troubleshooting: How to Fix 'Minecraft Updater' Issues & Successfully Refresh Your Game</u></a></li>
+<li><a href="https://driver-download.techidaily.com/z270-gaming-mastery-secure-your-z270-carbon-drivers-today/"><u>Z270 Gaming Mastery: Secure Your Z270 Carbon Drivers Today!</u></a></li>
 </ul></div>
 

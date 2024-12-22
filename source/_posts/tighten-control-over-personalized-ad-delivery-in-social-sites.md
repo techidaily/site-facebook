@@ -1,7 +1,7 @@
 ---
 title: Tighten Control Over Personalized Ad Delivery in Social Sites
-date: 2024-08-28T03:05:17.805Z
-updated: 2024-08-29T03:05:17.805Z
+date: 2024-12-18T17:49:06.345Z
+updated: 2024-12-21T17:26:12.249Z
 tags:
   - facebook
 categories:
@@ -47,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/03b50fa097007316bd728c0f1505911c6985b5446
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ads-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ads-3.png)
 
 Close
@@ -61,19 +65,20 @@ Close
 6. Now scroll down and tap**Advertisers whose ads you've clicked** . Tap**Hide Ads** to the right of each brand you do not wish to see adverts from.
 7. You can also choose to see fewer ads from certain topics. Simply tap**Ad topics** , then tap**See Fewer** to the right of each topic you are not interested in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Minimize Targeted Ads on Instagram
 
 ![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![instagram ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-02.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![instagram ad settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/instagram-ad-settings.png)
 
 Close
@@ -94,23 +99,22 @@ Close
 
  To learn how to block ads about specific brands or topics on Instagram, read our guide on[how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Minimize Targeted Ads on Twitter
 
 ![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of twitter ads personalization and data settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![screenshot of twitter personalized ads settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  As is the case with Facebook and Instagram, it is not possible to completely remove promoted Twitter posts and accounts. You can, however, opt out of interest-based ads and data sharing by disabling the personalization and data features in the privacy and safety settings.
@@ -130,23 +134,17 @@ Here's how:
 
  Related: [How to Delete the Last 15 Minutes of Your Google Search History](https://www.makeuseof.com/delete-last-15-minutes-google-search/)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Improve Your Social Media Experience by Reducing Targeted Ads
 
  Unless you use social media for business purposes, it should feel like an extension of your life.
 
  Reducing the ads you encounter on social media platforms puts you in control of your experience on the apps you love, so you can browse through your social media feeds with ease, and without being annoyingly and repeatedly bombarded by unwelcome ads.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +153,17 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-best-in-class-mkv-player-for-pc-users/"><u>[New] Best-in-Class MKV Player for PC Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-introduction-to-basic-animation-in-graphic-design/"><u>[New] In 2024, Introduction to Basic Animation in Graphic Design</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-preventing-sickness-while-engaging-with-vr/"><u>2024 Approved Preventing Sickness While Engaging with VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-a-group-on-facebook-essential-steps-revealed/"><u>Exiting a Group on Facebook – Essential Steps Revealed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-s24-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy S24 Without PUK Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-blocked-facebook-messagesposts-load-issues/"><u>Overcoming Blocked Facebook Messages/Posts Load Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-removed-facebook-shares-techniques-and-tips/"><u>Retrieving Removed Facebook Shares: Techniques and Tips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/social-media-best-practices-uploading-and-displaying-subtitles/"><u>Social Media Best Practices Uploading and Displaying Subtitles</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-the-social-spotlight-crafting-a-cover-photo-with-yourself-at-its-center/"><u>Step Into the Social Spotlight: Crafting a Cover Photo With Yourself at Its Center</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-alternative-gpus-echoing-rtx-4060-tis-performance/"><u>Top Alternative GPUs Echoing RTX 4060 Ti's Performance</u></a></li>
+</ul></div>
 

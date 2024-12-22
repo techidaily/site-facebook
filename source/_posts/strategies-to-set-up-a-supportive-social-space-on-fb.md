@@ -1,7 +1,7 @@
 ---
 title: Strategies to Set Up a Supportive Social Space on FB
-date: 2024-12-10T19:41:43.554Z
-updated: 2024-12-12T23:18:47.815Z
+date: 2024-12-17T19:13:36.823Z
+updated: 2024-12-21T18:03:11.015Z
 tags:
   - facebook
 categories:
@@ -28,14 +28,10 @@ thumbnail: https://thmb.techidaily.com/ef542613ecfd778273a563914315ea95552a0c901
 
 ![Facebook app menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318180626_1305065376700688_893057211392699849_n.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook app menu showing groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318097009_540592084597722_6156826463203386396_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook app add group page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318166381_2214654402059587_9156416634789261192_n.jpg)
@@ -50,10 +46,6 @@ Close
 4. You'll see a**blue circle** with a cross through it on the bottom left-hand corner of the screen.
 5. Tap it and select**Create Group** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Customize Your Facebook Group
 
  Before you create your group, you'll need to select some options from a menu which will enable you to customize it for your purposes.
@@ -64,25 +56,33 @@ Close
 
  When you're finished, click**Create Group** at the bottom of the screen. You'll then be taken to a page that will allow you to invite members from your Facebook friends.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Go Live With Your Facebook Group
 
 ![Create group page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318217881_894969165206821_5445276175446551093_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Choose group options when creating a group on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318477258_939639773675965_2846710644227593590_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Add a cover photo to a group page option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318289485_906496730348611_983213840070343513_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  After that, you will be able to add a cover photo, a description, and choose from a list of goals that best describe the purpose of your group. After this, you can create your first post and look for[ways to make your Facebook group popular](https://www.makeuseof.com/tag/facebook-group-popular-weekly-facebook-tips/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Making a Facebook Group Is Easy
 
@@ -103,15 +103,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/updated-guide-on-downloading-processing-and-saving-twitter-vids-as-mp3s/"><u>[Updated] Guide on Downloading, Processing, and Saving Twitter Vids as MP3s</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-beautys-buzz-youtube-gurus-predicted/"><u>2024 Approved Beauty's Buzz YouTube Gurus Predicted</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-no-price-just-perfect-screen-recordings-on-android/"><u>2024 Approved No Price, Just Perfect Screen Recordings on Android</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-asus-rog-phone-8-pro-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Asus ROG Phone 8 Pro Phone When You Forget the Password</u></a></li>
-<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
-<li><a href="https://games-able.techidaily.com/five-keys-to-a-child-oriented-ps5-security/"><u>Five Keys to a Child-Oriented PS5 Security</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-samsung-galaxy-a14-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Samsung Galaxy A14 5G Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-unleashing-potential-a-deep-dive-into-the-ion-air-pro-3-review-for-2024/"><u>[Updated] Unleashing Potential A Deep Dive Into the ION Air Pro 3 Review for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweetvid-puller-iphone-app-for-easy-video-extraction/"><u>2024 Approved TweetVid Puller IPhone App for Easy Video Extraction</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-gems-of-technology-top-4-breakthroughs-you-missed-out-on/"><u>Hidden Gems of Technology - Top 4 Breakthroughs You Missed Out On</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-motorola-moto-g-5g-2023-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Motorola Moto G 5G (2023)?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-silence-blocking-all-fb-notifications/"><u>Instant Silence: Blocking All FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/launching-effective-social-groups-on-facebook/"><u>Launching Effective Social Groups on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-creative-earnings-the-power-of-meta-in-video-content/"><u>Maximizing Creative Earnings: The Power of Meta in Video Content</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-how-to-create-the-night-to-day-effect-video/"><u>New 2024 Approved How to Create the Night-to-Day Effect Video</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mac-video-editing-made-easy-vn-video-editor-and-its-alternatives-for-2024/"><u>New Mac Video Editing Made Easy VN Video Editor and Its Alternatives for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/top-issues-in-scanning-device-setup-insights-from-yl-computing-and-yl-software/"><u>Top Issues in Scanning Device Setup: Insights From YL Computing & YL Software</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/transition-en-douce-vers-un-ssd-sans-reinstaller-clonage-disque-dur-assure/"><u>Transition en Douce Vers Un SSD Sans Réinstaller: Clonage Disque Dur Assuré</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-mastodons-community/"><u>Understanding Mastodon's Community</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/universal-unlock-pattern-for-realme-gt-5-by-drfone-android/"><u>Universal Unlock Pattern for Realme GT 5</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-free-gif-animators-for-endless-loops/"><u>Updated Top Free GIF Animators for Endless Loops</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-manages-my-digital-imagery/"><u>Who Manages My Digital Imagery?</u></a></li>
 </ul></div>
 

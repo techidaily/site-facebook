@@ -1,7 +1,7 @@
 ---
 title: "Narrating Visuals: Auto-Captioning for Instagram & FB"
-date: 2024-12-09T19:55:04.702Z
-updated: 2024-12-12T23:18:20.432Z
+date: 2024-12-14T16:10:50.769Z
+updated: 2024-12-21T18:03:25.538Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Use Album Descriptions as Captions on Facebook
 
  On your phone or desktop app, log in to your Facebook profile, go to your**Photos** and either create or find an album you want.
@@ -39,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 ![Editing Description of Facebook Photo Album](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/editing-description-of-facebook-photo-album.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It's a simple way to add a caption to multiple photos on Facebook as you upload them. Then, you can give each photo its own caption, if you want to share extra details with viewers.
@@ -54,13 +58,13 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 
 ![Tailwind Text Options for Facebook Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/tailwind-text-options-for-facebook-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Then, you just design the perfect layout and add the album and photo information in the fields in the right sidebar. When it comes to text, you can add a title, subtitle, and call to action.
 
  Once the photos are on Facebook, you may need to tweak their captions, but most of the work has been done for you—and quite tastefully.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Upload Photos to Facebook From File Management Apps
 
@@ -74,14 +78,10 @@ thumbnail: https://thmb.techidaily.com/a5bc9c78cbf7ddebb3c4b881340c3ed8f01e0b70f
 
 ![Picture Open on Google Photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/picture-open-on-google-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Adding Caption to Facebook Post From Google Photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/adding-caption-to-facebook-post-from-google-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Adding Captions to Individual Pictures on Google Photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/adding-captions-to-individual-pictures-on-google-photos.jpg)
@@ -91,7 +91,7 @@ Close
  You can use this method to post multiple pictures on Facebook with captions. Once again, check them after uploading to make sure their details are correct.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Learn How to Add Captions and Other Features to Photos on Facebook
@@ -115,20 +115,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-rediscovering-eliminated-reddit-discussions-efficiently-for-2024/"><u>[New] Rediscovering Eliminated Reddit Discussions Efficiently for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/3-ways-to-use-chatgpts-wolfram-plugin/"><u>3 Ways to Use ChatGPT'S Wolfram Plugin</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-why-telegram-thrived-during-facebook-outage/"><u>Deciphering Why Telegram Thrived During Facebook Outage</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-complexities-of-fb-picture-permissions/"><u>Decoding the Complexities of FB Picture Permissions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/demystifying-the-purpose-what-is-a-blue-image-on-facebook/"><u>Demystifying the Purpose What Is a Blue Image on Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-default-mass-tagging-service-fb/"><u>Disabling Default Mass-Tagging Service: FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-delightfully-fb-detox-strategies/"><u>Disconnecting Delightfully: FB Detox Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/dodging-digital-waves-how-stablecoins-keep-currencies-steady/"><u>Dodging Digital Waves: How Stablecoins Keep Currencies Steady</u></a></li>
-<li><a href="https://facebook.techidaily.com/dual-platform-game-on-fbtwitter-and-wnb-season-2023/"><u>Dual Platform Game On: FB/Twitter and WNB Season 2023</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/effective-strategies-for-analyzing-personal-or-business-data-use/"><u>Effective Strategies for Analyzing Personal or Business Data Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-use-of-social-medias-memory-hub-facebook/"><u>Efficient Use of Social Media's Memory Hub - Facebook</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-apple-iphone-7-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or Apple iPhone 7 without iCloud Password or Apple ID?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-power-of-vivacut/"><u>In 2024, Unveiling the Power of VivaCut</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-mastering-the-art-of-trimming-tamil-melodies-best-practices/"><u>[New] 2024 Approved Mastering the Art of Trimming Tamil Melodies Best Practices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-sketch-like-a-pro-top-10-drawing-apps-for-android-artists/"><u>[Updated] In 2024, Sketch Like a Pro Top 10 Drawing Apps for Android Artists</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfecting-video-speed-for-engaging-instagram-stories/"><u>[Updated] Perfecting Video Speed for Engaging Instagram Stories</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-compelling-docu-scripts-a-step-by-step-guide/"><u>Crafting Compelling Docu-Scripts A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-top-9-steps-for-safe-marketplace-interactions/"><u>Expert Advice: Top 9 Steps for Safe Marketplace Interactions</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/high-definition-space-explorer-themes-astronaut-wallpapers-and-desktop-icons-yl-computings-cosmic-collection/"><u>High-Definition Space Explorer Themes: Astronaut Wallpapers & Desktop Icons - YL Computing's Cosmic Collection</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-optimize-your-windows-11-system-tackling-high-gpu-use-from-the-desktop-window-manager/"><u>How to Optimize Your Windows 11 System: Tackling High GPU Use From the Desktop Window Manager</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-reno-11-pro-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo Reno 11 Pro 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/initiating-journey-into-ai-prompt-development/"><u>Initiating Journey Into AI Prompt Development</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-takes-its-time-no-third-oculus-quest-announcement-max-74-characters/"><u>Innovation Takes Its Time: No Third Oculus Quest Announcement (Max 74 Characters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-googles-press-highlights/"><u>Navigating Through Google's Press Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-instantly-tips-and-tricks/"><u>Stop FB Alerts & Messages Instantly: Tips and Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-project-management-unlocking-facebooks-8-capabilities/"><u>The New Era of Project Management: Unlocking Facebook's 8 Capabilities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-ai-platforms-for-idea-evolution/"><u>Top AI Platforms for Idea Evolution</u></a></li>
 </ul></div>
 

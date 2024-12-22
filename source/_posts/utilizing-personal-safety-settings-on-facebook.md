@@ -1,7 +1,7 @@
 ---
 title: Utilizing Personal Safety Settings on Facebook
-date: 2024-08-28T03:05:27.837Z
-updated: 2024-08-29T03:05:27.837Z
+date: 2024-12-16T18:35:02.499Z
+updated: 2024-12-21T17:15:55.111Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ The process is the same whether using a mobile or desktop device.
 
 ![facebook crisis response page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-crisis-response-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Go to[Facebook's Crisis Response page](https://www.facebook.com/crisisresponse/) .
 2. You’ll then see a list of active crises, including ones potentially affecting people you know.
 3. Click on the**Learn More** button for the relevant crisis.
@@ -32,6 +36,10 @@ The process is the same whether using a mobile or desktop device.
 5. Select**I'm Safe** to share a post notifying friends that you're safe.
 
 ![safety check note facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/safety-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook uses your location data to show the crises most likely to affect you. However, in some cases, such as when traveling, it may be necessary to mark yourself as safe regarding an event outside where you usually reside.
 
@@ -43,9 +51,17 @@ The process is the same whether using a mobile or desktop device.
 
 ![crisis safety check page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/crisis-safety-check-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook is not the only tech brand to become involved in disaster-related tech. For example, Google developed a system that sends earthquake alerts to people in California who have Android phones.
 
  Read more:[Common Facebook Problems and Errors (And How to Fix Them)](https://www.makeuseof.com/tag/fix-facebook-problems-errors/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Check a Friend’s Safety
 
@@ -62,8 +78,9 @@ The process is the same whether using a mobile or desktop device.
  Related:[How to Find the Exact Date You Created Your Facebook Account](https://www.makeuseof.com/find-facebook-account-creation-date/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Good Intentions Can Backfire
 
  Many things seem like good ideas at the time but eventually show some downsides. Such is the case with Facebook’s Safety Check.
@@ -72,24 +89,17 @@ The process is the same whether using a mobile or desktop device.
 
  It could also cause unnecessary worry among Facebook users. This is especially true if the person near the crisis doesn't use Facebook often and doesn't respond to requests to mark themselves as safe.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Facebook Safety Check: Is It Worth Using?
 
  The next time you see a safety check notification pop up on Facebook, think carefully about responding to it.
 
  Do you have lots of friends who only communicate with you through the platform? If so, it may prove useful.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -98,4 +108,18 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-master-the-art-of-radial-filtering-with-photoshop/"><u>[New] In 2024, Master the Art of Radial Filtering with Photoshop</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-gaming-heaven-a-treasure-trove-of-superb-offline-ios-game-titles-for-2024/"><u>[Updated] Gaming Heaven A Treasure Trove of Superb Offline iOS Game Titles for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-infinix-smart-7-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Infinix Smart 7 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/market-dynamics-300-dollar-headsets-as-cybersecurity-measures/"><u>Market Dynamics: 300-Dollar Headsets as Cybersecurity Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-message-chambers-a-beginners-guide-to-proficiency/"><u>Mastering Message Chambers: A Beginner's Guide to Proficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-what-does-it-mean-for-facial-id-on-fb/"><u>Meta Drops: What Does It Mean for Facial ID on FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-privacy-policy-a-critical-examination-of-changes/"><u>Meta's Privacy Policy: A Critical Examination of Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/mysterious-tech-moves-unveiling-facebooks-secret-gadget/"><u>Mysterious Tech Moves: Unveiling Facebook's Secret Gadget</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-transform-your-videos-the-best-iphone-editing-apps/"><u>New In 2024, Transform Your Videos The Best iPhone Editing Apps</u></a></li>
+<li><a href="https://common-error.techidaily.com/unraveling-the-mystery-exploring-the-fixes-for-nba-2k21s-infamous-color-bug/"><u>Unraveling the Mystery: Exploring the Fixes for NBA 2K21's Infamous Color Bug</u></a></li>
+<li><a href="https://extra-information.techidaily.com/wings-in-motion-a-bebop-2-parrot-journey-review/"><u>Wings in Motion A Bebop 2 Parrot Journey Review</u></a></li>
+</ul></div>
 

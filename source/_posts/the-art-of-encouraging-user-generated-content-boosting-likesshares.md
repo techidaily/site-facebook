@@ -1,7 +1,7 @@
 ---
 title: "The Art of Encouraging User-Generated Content: Boosting Likes/Shares"
-date: 2024-12-06T17:31:34.163Z
-updated: 2024-12-12T17:38:50.317Z
+date: 2024-12-17T16:54:21.452Z
+updated: 2024-12-21T17:36:51.510Z
 tags:
   - facebook
 categories:
@@ -24,16 +24,12 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Best Time to Post on Facebook
 
 ![facebook logo on Apple watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-best-time-to-post.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The consensus has been that the best time to post on Facebook is in the late afternoon, but the hours vary depending on the source.
@@ -52,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 ![facebook logo on surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-frequency.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Here's the secret about how often you should update your Facebook status: it doesn't really matter.
@@ -79,13 +75,13 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 
 > We’ve found that people often prefer to click on links that are displayed in the link format (which appears when you paste a link while drafting a post), rather than links that are buried in photo captions. The link format shows some additional information associated with the link, such as the beginning of the article, which makes it easier for someone to decide if they want to click through. This format also makes it easier for someone to click through on mobile devices, which have a smaller screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Best Images and Videos to Insert in Your Post
 
 ![facebook logo on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  A[Hootsuite blog post](https://blog.hootsuite.com/facebook-algorithm/) revealed that Facebook posts with images have an engagement rate of 0.11%, and those with videos get 0.08% engagement. So, try and include a photo or a video in your updates. Try to[upload HD photos and videos on the Facebook mobile app](https://www.makeuseof.com/tag/upload-photos-videos-hd-facebook-mobile-app/) for the best results.
 
@@ -94,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
  Shorter, timely video content tends to do well in News Feed. Keep in mind that auto-play videos play silently in News Feed until someone taps to hear the sound, so videos that catch people's attention even without sound often find success. That's why you should add text to your videos if possible.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Best Topics for More Likes on Facebook
@@ -106,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
  If you've ever wondered[whether it's a good idea to use hashtags in your Facebook posts](https://www.makeuseof.com/do-hashtags-work-on-facebook/) , the answer is yes, but you need to use them strategically. Don't abuse them or no one will pay attention to them or your posts might appear spammy.
 
  Keep in mind that[Facebook hides some content on the News Feed](https://www.makeuseof.com/content-types-facebook-hides-why/) for various reasons.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Posting for Success on Facebook
 
@@ -126,18 +126,17 @@ thumbnail: https://thmb.techidaily.com/cc2d4ffbafce624b537835413e18b0d5bee03ddeb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-how-to-turn-off-default-recommended-podcast-listings-in-spotify-for-2024/"><u>[New] How to Turn Off Default Recommended Podcast Listings in Spotify for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-prestigious-top-8-sites-combining-vivid-3d-graphics-and-luxe-text/"><u>2024 Approved Prestigious Top 8 Sites Combining Vivid 3D Graphics & Luxe Text</u></a></li>
-<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-realme-narzo-n53-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Realme Narzo N53 Isnt Compatible | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-development-standards-facebook-partners-with-rust/"><u>Elevating Development Standards: Facebook Partners with Rust</u></a></li>
-<li><a href="https://article-posts.techidaily.com/gopro-hero-session-vs-polaroid-cubeplus-which-one-is-better-for-you-in-2024/"><u>GoPro Hero Session Vs Polaroid Cube+ Which One Is Better for You, In 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-effortless-deletion-of-social-media-updates/"><u>Guide to Effortless Deletion of Social Media Updates</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-achieving-visual-precision-with-the-right-4k-display-selection/"><u>In 2024, Achieving Visual Precision with the Right 4K Display Selection</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Xiaomi Civi 3? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-tecno-spark-10-4g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Tecno Spark 10 4G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/secret-rules-understanding-the-intricacies-of-fb-acquaintanceship/"><u>Secret Rules: Understanding the Intricacies of FB Acquaintanceship</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-all-in-one-solution-unpacking-the-features-of-apcs-be600m1-with-enhanced-battery-backup-and-usb-charging/"><u>The All-In-One Solution - Unpacking the Features of APC's BE600M1 with Enhanced Battery Backup & USB Charging</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcasts-compendium-reviews-and-insights/"><u>The Ultimate 2022 Podcasts Compendium: Reviews & Insights</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/using-chatgpt-for-wilderness-survival-fact-or-fiction/"><u>Using ChatGPT for Wilderness Survival: Fact or Fiction?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-an-odyssey-through-time-unexplored-worlds-in-classic-books-for-2024/"><u>[New] An Odyssey Through Time Unexplored Worlds in Classic Books for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-expert-insights-on-forging-youtube-sponsorship-bonds-using-famebit/"><u>[Updated] In 2024, Expert Insights on Forging YouTube Sponsorship Bonds Using FameBit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-transforming-videos-for-twitter-success-expert-convertors-guide/"><u>[Updated] In 2024, Transforming Videos for Twitter Success Expert Convertors Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-complete-gif-makers-manual/"><u>2024 Approved The Complete GIF Maker's Manual</u></a></li>
+<li><a href="https://facebook.techidaily.com/busting-metaverse-myths-a-closer-look-at-social-giants/"><u>Busting Metaverse Myths - A Closer Look at Social Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-negative-feelings-towards-virtual-world-connectors/"><u>Dissecting Negative Feelings Towards Virtual World Connectors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-video-presentation-with-these-7-free-makers/"><u>Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-issue-how-to-resolve-black-screen-on-epic-games-launcher/"><u>Fixing the Issue: How to Resolve Black Screen on Epic Games Launcher</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-vivo-s18-pro-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Vivo S18 Pro Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-facebook-memories-selective-sharing/"><u>Personalizing Facebook Memories: Selective Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/supercharge-your-social-sphere-with-these-3-efficient-fb-tagging-tactics/"><u>Supercharge Your Social Sphere with These 3 Efficient Fb Tagging Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-hides-in-a-users-muted-profile/"><u>What Hides in a User's Muted Profile?</u></a></li>
 </ul></div>
 

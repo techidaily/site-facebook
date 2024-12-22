@@ -1,7 +1,7 @@
 ---
 title: Reboot Your Facebook Friends List After Block
-date: 2024-12-06T19:48:54.854Z
-updated: 2024-12-12T16:17:15.111Z
+date: 2024-12-15T16:51:43.985Z
+updated: 2024-12-21T19:11:16.944Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Unblock Someone on Facebook
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Blocked Users 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Blocked-Users-2021.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Notice that the**Blocking** page has several types of blocking. Anyone in**Block users** cannot see what you post, tag you, chat with you, or send you a friend request. However, you may still see that person if you're both in a group or use the same game.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -101,20 +101,20 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tech-haven.techidaily.com/solved-what-graphics-card-do-i-have/"><u>[Solved] What Graphics Card Do I Have</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-augmented-reality-stickers-by-google-unveiled-and-compared/"><u>[Updated] Augmented Reality Stickers by Google Unveiled and Compared</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unleashing-your-device-writers-step-by-step-tutorial-for-custom-ringtones-and-sounds-on-android/"><u>[Updated] Unleashing Your Device' Writers Step-by-Step Tutorial for Custom Ringtones and Sounds on Android</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/conquer-chrome-multitasking-learn-to-utilize-pip-effectively-for-2024/"><u>Conquer Chrome Multitasking Learn to Utilize PIP Effectively for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-updated-amd-ryzen-3-2200g-chipset-drivers-now/"><u>Download Updated AMD Ryzen 3 2200G Chipset Drivers Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-new-audiovisual-platform-features/"><u>Facebook Unveils New Audiovisual Platform Features</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/full-review-of-logitechs-ultimate-4k-professional-cam-for-2024/"><u>Full Review of Logitech's Ultimate 4K Professional Cam for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stop-automatic-user-references-fb/"><u>How to Stop Automatic User References (FB)</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-biden-announces-vaccination-drive-via-social-networks/"><u>Joe Biden Announces Vaccination Drive via Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventing-phishy-posts-with-smart-habits/"><u>Preventing Phishy Posts with Smart Habits</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-compact-marvel-g7x-ii-takes-center-stage/"><u>The Compact Marvel - G7X II Takes Center Stage</u></a></li>
-<li><a href="https://facebook.techidaily.com/traps-in-transparency-when-ux-betrays-trust/"><u>Traps in Transparency: When UX Betrays Trust</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ard-maker-guild-sights-sonics-and-memories/"><u>Vanguard Maker Guild Sights, Sonics & Memories</u></a></li>
-<li><a href="https://win-guides.techidaily.com/viral-growth-tactics-for-new-businesses-unveiling-startup-techniques-and-drive-using-massmail-software/"><u>Viral Growth Tactics for New Businesses: Unveiling StartUp Techniques and Drive Using MassMail Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-social-media-platform-is-safest/"><u>Which Social Media Platform Is Safest?</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-no-expense-required-remove-coffee-stains-from-iphone-photos/"><u>[New] No Expense Required Remove Coffee Stains From iPhone Photos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-complete-guide-to-iphone-speech-recordings/"><u>[Updated] 2024 Approved The Complete Guide to iPhone Speech Recordings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-navigating-facebooks-memory-lane-with-ease-for-2024/"><u>[Updated] Navigating Facebook's Memory Lane with Ease for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-quick-shake-reduction-companion-for-cams/"><u>2024 Approved Quick Shake Reduction Companion for Cams</u></a></li>
+<li><a href="https://facebook.techidaily.com/forever-lost-post-facebook-data-destiny/"><u>Forever Lost: Post-Facebook Data Destiny</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-tiktoks-meteoric-growth-poses-threat-to-facebooks-revenue/"><u>How TikTok's Meteoric Growth Poses Threat to Facebook's Revenue</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-k70-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi K70 Phone FRP Lock</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-sharpen-focus-expert-tips-on-the-psx-eraser-tool/"><u>In 2024, Sharpen Focus Expert Tips on the PSX Eraser Tool</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/no-boundaries-with-ai-continuous-access-to-chatgpt-via-the-innovative-chatgpt-everywhere-app/"><u>No Boundaries with AI: Continuous Access to ChatGPT via the Innovative ChatGPT Everywhere App</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-professional-presence-on-social-sites/"><u>Optimizing Your Professional Presence on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/peering-behind-facebooks-core-design-principles/"><u>Peering Behind Facebook's Core Design Principles</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sleuthing-pinpointing-facebook-profile-links/"><u>Social Sleuthing: Pinpointing Facebook Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-is-now-automatic-photo-captions-elevate-facebook-posts/"><u>The Future Is Now: Automatic Photo Captions Elevate Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-latest-social-space-design/"><u>Unveiling Facebook's Latest Social Space Design</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/visual-virtuosity-mastering-motivation-on-instagram-for-2024/"><u>Visual Virtuosity Mastering Motivation on Instagram for 2024</u></a></li>
 </ul></div>
 

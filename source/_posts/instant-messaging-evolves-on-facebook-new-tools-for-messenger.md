@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2024-12-11T21:28:10.318Z
-updated: 2024-12-13T00:13:53.212Z
+date: 2024-12-16T19:49:47.609Z
+updated: 2024-12-21T17:44:24.966Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,19 +83,18 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-mastering-google-voice-calls-the-ultimate-guide-for-2024/"><u>[New] Mastering Google Voice Calls The Ultimate Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ransforming-frost-into-warmth-video-backdrops-guide/"><u>[New] Transforming Frost Into Warmth Video Backdrops Guide</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-quintessential-scripts-elevating-blockbusters/"><u>[Updated] Quintessential Scripts Elevating Blockbusters</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-ordinary-to-stunning-photo-tile-magic/"><u>2024 Approved From Ordinary to Stunning Photo Tile Magic</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/decoding-big-datas-ai-language-masters/"><u>Decoding Big Data's AI Language Masters</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ting-profits-via-celebrity-skincare-channels/"><u>Elevating Profits via Celebrity Skincare Channels</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-downside-how-social-sites-affect-us/"><u>Exploring the Downside: How Social Sites Affect Us</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-sony-xperia-10-v-frp-by-drfone-android/"><u>Full Guide to Bypass Sony Xperia 10 V FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-gone-but-not-forgotten-archiving-and-eventually-removing-your-fb-page/"><u>Guide to Gone But Not Forgotten: Archiving and Eventually Removing Your FB Page</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-f25-pro-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo F25 Pro 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-navigating-the-world-of-hashtags-to-boost-your-gaming-video-yields/"><u>In 2024, Navigating the World of Hashtags to Boost Your Gaming Video Yields</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-social-media-impact-elevating-shares-on-fb/"><u>Maximizing Social Media Impact: Elevating Shares on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-profile-against-scam-artists-on-facebook/"><u>Securing Your Profile Against Scam Artists on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-services-provided-by-facebook-help-center/"><u>Unlocking Services Provided by Facebook Help Center</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-audio-capturing-in-android-without-rooting-guide/"><u>[New] Audio Capturing in Android - Without Rooting [Guide]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-from-zero-to-hero-effective-livestream-strategies-without-millions-of-viewers/"><u>[New] From Zero to Hero Effective Livestream Strategies without Millions of Viewers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-master-the-art-of-fb-story-downloads-on-every-device-for-2024/"><u>[New] Master the Art of FB Story Downloads on Every Device for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-art-of-crafting-persuasive-video-covers-for-social-media-platforms/"><u>2024 Approved The Art of Crafting Persuasive Video Covers for Social Media Platforms</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/all-in-one-iphone-fixer-the-ultimate-ios-troubleshooting-application/"><u>All-in-One iPhone Fixer: The Ultimate iOS Troubleshooting Application</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/complete-tutorial-for-creating-a-reliable-windows-eight-system-backup-using-secure-boot-technology/"><u>Complete Tutorial for Creating a Reliable Windows Eight System Backup Using Secure Boot Technology</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-conversion-techniques-turn-your-wma-audio-files-into-high-quality-mp3s-with-the-help-of-vlc/"><u>Easy Conversion Techniques: Turn Your WMA Audio Files Into High-Quality MP3s with the Help of VLC</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-request-failed-by-windows-resource-protection-tips-and-solutions/"><u>Fixing 'Request Failed by Windows Resource Protection': Tips & Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/major-stakeholders-owning-facebook/"><u>Major Stakeholders Owning Facebook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-how-to-overcome-error-code-0x80072efd-in-win1110/"><u>Mastering How to Overcome Error Code 0X80072EFD in Win11/10</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-unexpected-contact-suggestions-from-fb/"><u>Stop Unexpected Contact Suggestions From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-filtering-out-the-pesky-promos-on-your-feed/"><u>Strategies for Filtering Out the Pesky Promos on Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unexpected-silence-in-digital-communication-realms/"><u>Unexpected Silence in Digital Communication Realms</u></a></li>
 </ul></div>
 

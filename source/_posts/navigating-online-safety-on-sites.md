@@ -1,7 +1,7 @@
 ---
 title: Navigating Online Safety on Sites
-date: 2024-08-23T02:18:08.740Z
-updated: 2024-08-24T02:18:08.740Z
+date: 2024-12-16T19:14:37.810Z
+updated: 2024-12-21T16:48:37.363Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
 ## Navigating Online Safety on Sites
 
  Many of us love chatting to friends or checking out content on social media, but just how safe are we on these apps? Which social media app is safest, and what security features should you be looking for in the outlets you're currently using?We'll be looking at five of the biggest social media apps—TikTok, Facebook, Instagram, Twitter, and Snapchat—to determine which are safe and which are risky.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Safe Is TikTok?
 
@@ -43,6 +47,10 @@ You can further report content that you think is inappropriate.
 
 ![facebook mobile app login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-phone-login.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In April 2018, Facebook CEO Mark Zuckerberg appeared at a US Senate hearing to give information on the company's privacy policies and overall business structure. This hearing made worldwide news, with many wondering how Facebook treats users' privacy and security. You may have seen the hearing itself, wherein Zuckerberg is asked some tough questions surrounding the value of and respect given to user privacy.
 
  But this hearing was just one small part of Facebook's history with security and privacy issues. Facebook has found itself in a number of lawsuits for various reasons, such as data sharing, data collection, breaches, and bugs. According to[Statista](https://www.statista.com/statistics/264810/number-of-monthly-active-facebook-users-worldwide/) , Facebook had almost three billion active users in the first quarter of 2023, so it's no surprise that the platform is under a microscope around the clock.
@@ -62,9 +70,6 @@ You can further report content that you think is inappropriate.
 * Crisis Response.
 * Comment filtering.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Secure Is Instagram?
 
  While Instagram began as an independent social media app, it was bought by Meta (then known as Facebook) in 2012.
@@ -93,15 +98,17 @@ Instagram's security features include:
 * End-to-end encryption for direct messages.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Twitter Safe?
 
 ![twitter app opening screen on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/twitter-phone-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Twitter is another social media giant used by hundreds of millions of people worldwide. However,[Twitter has a history of hacks](https://www.makeuseof.com/twitters-history-security-lapses/) that stretches back to its early days, and millions of users have been affected by these incidents. Twitter has come under fire in the past for its own use of user data too. For instance, in 2019, Twitter was found to be using phone numbers and email addresses in its Tailored Audiences and Partner Audiences advertising system.
 
  High-profile accounts have further been targeted in Twitter hacks, including those owned by Elon Musk and Bill Gates. It's evident that the platform isn't airtight.
@@ -114,10 +121,6 @@ In terms of security, here are the features offered by Twitter:
 * Private accounts.
 * Comment filtering.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Is It Safe to Use Snapchat?
 
  Snapchat is particularly popular among younger individuals, namely teens and younger adults. This app is heavily centered around communicating via photo and video, and there's been a lot of concern surrounding where this content goes after being sent. Is the media you share kept between you and the recipient? Is there a third party that has access to what you send?
@@ -140,22 +143,20 @@ When it comes to security features, Snapchat offers the following:
 * End-to-end encryption for messages and shared media.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Which Social Platform Is Safest?
 
  All in all, it seems that Facebook and Instagram have the best security features out of the most popular social media platforms. Both are owned by Meta, indicating that the mother company itself is focused on ensuring its social platforms are safe. With encryption, login security and alerts, and a range of privacy features, there are multiple ways you can protect yourself on these platforms.
 
  However, Instagram and Facebook are not perfect. Hacks, breaches, and inappropriate behavior can all take place on these platforms, just like any of the other outlets listed here. It's very important to keep in mind the scandals and attacks suffered by Instagram, Facebook, and any other social media platform you use so that you know what the risks are.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +165,20 @@ When it comes to security features, Snapchat offers the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-discovering-the-worlds-most-popular-shorter-videos-free/"><u>[New] In 2024, Discovering the World's Most Popular Shorter Videos (FREE)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-excelling-at-content-creation-a-guide-to-gamers-success-for-2024/"><u>[Updated] Excelling at Content Creation A Guide to Gamers' Success for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-you-back-into-facebook-post-code-loss/"><u>Guiding You Back Into Facebook Post-Code Loss</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-lava-blaze-2-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Lava Blaze 2 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/premium-high-resolution-pics-viewer-quickly-for-2024/"><u>Premium High-Resolution Pics Viewer, Quickly for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/premium-ssds-for-ps5-enthusiasts/"><u>Premium SSDs for PS5 Enthusiasts</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/the-definitive-tutorial-for-resetting-your-iphone-erase-personal-info-securely/"><u>The Definitive Tutorial for Resetting Your iPhone - Erase Personal Info Securely</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-and-impact-of-recently-released-facebook-files/"><u>The Essence and Impact of Recently Released Facebook Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-ambitions-deciphering-the-secrets-to-facebooks-wearable-device/"><u>Unseen Ambitions: Deciphering the Secrets to Facebook’s Wearable Device</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-top-10-robotic-voice-generators/"><u>Updated Top 10 Robotic Voice Generators</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-ray-ban-stories-facebook-announces-and-pricing-details/"><u>What Are Ray-Ban Stories? Facebook Announces & Pricing Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-the-facebook-support-interface-accomplish/"><u>What Does the Facebook Support Interface Accomplish?</u></a></li>
+</ul></div>
 

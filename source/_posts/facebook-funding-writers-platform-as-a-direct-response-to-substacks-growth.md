@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-12-09T18:12:07.405Z
-updated: 2024-12-12T21:42:42.328Z
+date: 2024-12-18T18:52:54.789Z
+updated: 2024-12-21T18:11:59.654Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,19 +67,22 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/2024-approved-enhance-film-scenes-with-soundtracks-in-premiere-pro/"><u>2024 Approved Enhance Film Scenes With Soundtracks in Premiere Pro</u></a></li>
-<li><a href="https://howto.techidaily.com/asus-rog-phone-7-ultimate-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Asus ROG Phone 7 Ultimate Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/asus-unboxing-special-the-mg28uq-monitor-a-high-res-journey-for-2024/"><u>ASUS Unboxing Special The MG28UQ Monitor - A High-Res Journey for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-architectural-essence-of-facebook/"><u>Decoding the Architectural Essence of Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-irony-facebooks-latest-policy/"><u>Detecting Irony: Facebook's Latest Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decorum-validity-in-banning-trump-short-term-intervention/"><u>Digital Decorum: Validity in Banning Trump, Short-Term Intervention</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-reality-unbound-facebooks-pursuit-of-the-metaverse/"><u>Digital Reality Unbound: Facebook's Pursuit of the Metaverse</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-opinion-the-nook-glowlight-4-edition-assessment/"><u>Expert Opinion: The Nook Glowlight 4 Edition Assessment</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-honor-70-lite-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Honor 70 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/inside-the-tech-box-toms-hardware-wisdom/"><u>Inside the Tech Box: Tom's Hardware Wisdom</u></a></li>
-<li><a href="https://blog-min.techidaily.com/nastenne-vyuziti-audiovizualniho-snahovaneni-obrazu-v-windows-11-pet-kvalitativnich-pocinku/"><u>Nástěnné Využití Audiovizuálního Snahovánění Obrazů v Windows 11: Pět Kvalitativních Počinků</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-final-cut-pro-x-tutorial-l-cuts-and-j-cuts/"><u>Updated In 2024, Final Cut Pro X Tutorial L-Cuts and J-Cuts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-constructor-suite-for-2024/"><u>[New] Video Constructor Suite for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-decoding-the-secrets-of-successful-haul-video-edits-for-2024/"><u>[Updated] Decoding the Secrets of Successful Haul Video Edits for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-guide-to-overcoming-mobile-video-sending-problems-in-fb-chat-for-2024/"><u>[Updated] Guide to Overcoming Mobile Video Sending Problems in FB Chat for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-tips-for-optimizing-tiktok-video-sharing-on-zoom/"><u>2024 Approved Tips for Optimizing TikTok Video Sharing on Zoom</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decoding-dimensions-the-key-to-perfect-aspect-ratios-in-video/"><u>Decoding Dimensions The Key to Perfect Aspect Ratios in Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-content-governance-an-examination-of-its-panel/"><u>Facebook's Content Governance: An Examination of Its Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/fear-the-rise-of-meta-in-digital-spaces/"><u>Fear the Rise of Meta in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-ios-145-could-pave-the-way-to-a-privacy-revolution/"><u>How iOS 14.5 Could Pave the Way to a Privacy Revolution</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-spark-20-pro-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Spark 20 Pro Is Unlocked</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-realme-c53-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Realme C53 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-speed-why-meta-is-building-a-lightning-fast-ai-giant/"><u>Innovating Speed: Why Meta Is Building a Lightning-Fast AI Giant</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/lenovo-unveils-upgraded-2-in-1-thinkpad-with-superior-feature-for-power-users-expert-review-awaits/"><u>Lenovo Unveils Upgraded 2-in-1 ThinkPad with Superior Feature for Power Users, Expert Review Awaits!</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-governance-appropriate-ban-of-trump-but-with-a-time-frame/"><u>Network Governance: Appropriate Ban of Trump but with a Time Frame</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-behind-upcoming-instagram-thread-cessation/"><u>Reasons Behind Upcoming Instagram Thread Cessation</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-multi-platform-support-confirmed-by-zuckerberg/"><u>WhatsApp Multi-Platform Support Confirmed by Zuckerberg</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-facebook-whatsapp-and-instagram-go-down/"><u>Why Did Facebook, WhatsApp, and Instagram Go Down?</u></a></li>
 </ul></div>
 

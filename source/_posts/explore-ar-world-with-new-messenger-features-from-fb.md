@@ -1,7 +1,7 @@
 ---
 title: Explore AR World with New Messenger Features From FB
-date: 2024-12-11T23:23:32.531Z
-updated: 2024-12-12T23:43:19.891Z
+date: 2024-12-20T17:14:04.604Z
+updated: 2024-12-21T16:35:18.944Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ So, what are Group Effects all about? Keep reading to find out.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Amps Up Its Video Call Function With Group Effects
@@ -33,7 +33,7 @@ So, what are Group Effects all about? Keep reading to find out.
 ![Illustration of Video Conference Calls on Three Different Devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/video-conference-call-illustration.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Facebook Messenger has added Group Effects, a new feature that allows everyone on a video call to join in on the same AR experience at the same time, making video calls more engaging and fun.
@@ -45,7 +45,7 @@ So, what are Group Effects all about? Keep reading to find out.
  Related:[Facebook Messenger Icons and Symbols: What Do They Mean?](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Messenger’s Group Effects Work
@@ -53,7 +53,7 @@ So, what are Group Effects all about? Keep reading to find out.
 ![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A huge shift from the platform's one-participant-at-a-time AR feature, the Group Effects feature allows you to play multiplayer games with your friends during a video call, so you can do more than just catch up.
@@ -65,7 +65,7 @@ So, what are Group Effects all about? Keep reading to find out.
  To start using Group Effects, open the Messenger app and**start a video call** or**create a room** . Tap the**smiley face icon** , and then select**Group Effects** . Now choose from the range of effects to start playing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Adding Dimension to Messenger Video Calls
@@ -91,16 +91,22 @@ So, what are Group Effects all about? Keep reading to find out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-camguard-elite-mesh-patch/"><u>[New] 2024 Approved CamGuard Elite Mesh Patch</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-toolwiz-explored-detailed-review-for-image-enthusiasts/"><u>[Updated] Toolwiz Explored Detailed Review for Image Enthusiasts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-webcam-innovation-cutting-edge-live-video-technology-for-2024/"><u>[Updated] Webcam Innovation Cutting-Edge Live Video Technology for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhance-your-videos-call-to-action-a-step-by-step-filmora-guide-for-2024/"><u>Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-x5-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Poco X5 to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-c55-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Realme C55 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-technology-transforming-ads-into-a-predictive-personal-experience/"><u>Is Technology Transforming Ads Into a Predictive Personal Experience?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-in-sidestepping-ingenious-online-tricks/"><u>Mastery in Sidestepping Ingenious Online Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebooks-on-this-day-feature-like-a-pro/"><u>Navigating Facebook’s On This Day Feature Like a Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-decreasing-time-on-social-media-platforms-especially-fb-reels/"><u>Strategies for Decreasing Time on Social Media Platforms, Especially Fb Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/swiftly-swap-your-facebook-id-image/"><u>Swiftly Swap Your Facebook ID Image</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-connecting-tv-audiences-to-facebook-live-shows/"><u>[New] Connecting TV Audiences to Facebook Live Shows</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-hastenothalt-slowmotion-tape/"><u>[New] In 2024, HasteNotHalt SlowMotion Tape</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-the-insiders-look-at-twitter-ad-performance-metrics-for-2024/"><u>[Updated] The Insider's Look at Twitter Ad Performance Metrics for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-guide-to-whatsapp-calls-on-your-phone-for-2024/"><u>[Updated] The Ultimate Guide to WhatsApp Calls on Your Phone for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-8-choices-affordable-open-source-videoconferencing-apps/"><u>2024 Approved Top 8 Choices Affordable, Open Source Videoconferencing Apps</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/can-an-issued-graphics-card-compromise-pc-performance-and-stability-insights-from-yl-computing-experts/"><u>Can an Issued Graphics Card Compromise PC Performance & Stability? - Insights From YL Computing Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-facebooks-surveillative-approach-via-off-fb-settings/"><u>Dismantling Facebook's Surveillative Approach via Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-facebooks-defense-the-activation-journey/"><u>Embracing Facebook's Defense: The Activation Journey</u></a></li>
+<li><a href="https://win-special.techidaily.com/harvard-course-materials-on-isites-easy-guide-to-download-and-convert-vids-to-mp4-format/"><u>Harvard Course Materials on iSites – Easy Guide to Download and Convert Vids to MP4 Format</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-in-depth-tutorial-for-immaculate-3d-shapes-perfect-circles-spheres/"><u>In 2024, In-Depth Tutorial for Immaculate 3D Shapes Perfect Circles, Spheres</u></a></li>
+<li><a href="https://facebook.techidaily.com/overriding-facebooks-built-in-browsing/"><u>Overriding Facebook's Built-In Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153983879-revolutionize-interaction-effortless-transfer-of-social-media-storages/"><u>Revolutionize Interaction: Effortless Transfer of Social Media Storages.</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-virtual-networking-hub/"><u>Streamlining Your Virtual Networking Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebook-view-more-simplified-now/"><u>Tailoring Facebook View More Simplified Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pre-deletion-dilemma-balancing-connectivity-and-privacy/"><u>The Pre-Deletion Dilemma: Balancing Connectivity and Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-and-snapchats-secret-to-keeping-features-at-hand/"><u>Twitter & Snapchat's Secret to Keeping Features at Hand</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/understanding-the-frequent-triggers-of-component-overheat-issues-expert-insights-from-yl-computing/"><u>Understanding the Frequent Triggers of Component Overheat Issues - Expert Insights From YL Computing</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Why Meta Postpones Default E2E Encryption Till 2023 Explained
-date: 2024-12-07T21:18:26.606Z
-updated: 2024-12-12T21:22:52.046Z
+date: 2024-12-15T16:43:45.914Z
+updated: 2024-12-21T17:27:45.751Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Does Meta Want End-to-End Encryption?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -85,19 +85,21 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mirth-in-monotony-the-top-20-fb-detention-reprieve-humor/"><u>[New] In 2024, Mirth in Monotony The Top 20 Fb Detention Reprieve Humor</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-enhancing-your-feed-with-new-instagram-filters/"><u>[Updated] 2024 Approved Enhancing Your Feed with New Instagram Filters</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-navigating-the-free-path-of-fcp/"><u>[Updated] 2024 Approved Navigating the Free Path of FCP</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-masterful-moment-preservation-a-gif-collectors-dream-toolkit-for-2024/"><u>[Updated] Masterful Moment Preservation - A Gif Collector's Dream Toolkit for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-guide-to-free-video-playback-vlc-or-mpc/"><u>[Updated] The Ultimate Guide to Free Video Playback VLC or MPC?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-joke-fusion-best-meme-concepts-for-special-occasions/"><u>2024 Approved Joke Fusion Best Meme Concepts for Special Occasions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-youtube-live-streaming-made-easy-for-newcomers-without-thousand-subscribers/"><u>2024 Approved YouTube Live Streaming Made Easy for Newcomers without Thousand Subscribers</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/el-optimo-clonador-gratis-para-windows-comparacion-entre-xxclone-y-otras-opciones-libres/"><u>El Optimo Clonador Gratis Para Windows: Comparación Entre XXClone Y Otras Opciones Libres</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-news-to-just-feed-understanding-fbs-strategy/"><u>From News to Just Feed: Understanding FB's Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/in-pursuit-of-reaction-the-phenomenon-of-vague-posts/"><u>In Pursuit of Reaction: The Phenomenon of Vague Posts</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-gpt-5-on-the-horizon-discovering-its-potential-release-date/"><u>Is GPT-5 on the Horizon? Discovering Its Potential Release Date</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-your-privacy-dont-opt-in-to-facebook-logging/"><u>Protecting Your Privacy: Don't Opt In to Facebook Logging</u></a></li>
-<li><a href="https://facebook.techidaily.com/rally-for-fame-strategies-to-boost-your-online-gathering/"><u>Rally for Fame: Strategies to Boost Your Online Gathering</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-and-utilizing-trends-to-boost-your-fb-likesshares/"><u>Understanding and Utilizing Trends to Boost Your FB Likes/Shares</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-techniques-to-ensure-uninterrupted-video-capturing/"><u>[New] In 2024, Techniques to Ensure Uninterrupted Video Capturing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-premiere-camera-lineup-for-high-definition-live-concert-videos-for-2024/"><u>[New] Premiere Camera Lineup for High-Definition Live Concert Videos for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-secrets-of-successful-twitch-stream-capturing-for-2024/"><u>[New] Secrets of Successful Twitch Stream Capturing for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-capturing-the-extreme-the-gopro-hero5-black-vs-hero4-silver-duel/"><u>[Updated] 2024 Approved Capturing the Extreme The GoPro Hero5 Black Vs Hero4 Silver Duel</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/experts-list-of-lightweight-easy-carrying-viewers-for-2024/"><u>Expert's List of Lightweight, Easy-Carrying Viewers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-us-view-net-negatives-prevail-on-platforms/"><u>Majority U.S. View: Net Negatives Prevail on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-marketplace-the-best-4-business-analytics-resources/"><u>Master the Marketplace: The Best 4 Business Analytics Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-privacy-a-comprehensive-fb-guide/"><u>Mastering the Art of Privacy: A Comprehensive FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-gen-avatars-roll-out-for-oculus-users/"><u>Next-Gen Avatars Roll Out for Oculus Users</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-secured-connection-errors-in-mozilla-firefox/"><u>Resolving 'Secured Connection' Errors in Mozilla Firefox</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-steps-to-avoid-burnout-with-facebook-timers/"><u>Smart Steps to Avoid Burnout with Facebook Timers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-regretful-status-updates/"><u>The Ultimate Guide to Removing Regretful Status Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/truth-battles-rumors-as-facebook-raises-sanctions/"><u>Truth Battles Rumors as Facebook Raises Sanctions</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-poco-f5-pro-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Poco F5 Pro 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-the-secrets-behind-my-budget-friendly-surface-pro-ebyte-valuable-lessons-from-a-windows-specialist-zdnet/"><u>Unveiling the Secrets Behind My Budget-Friendly Surface Pro Ebyte: Valuable Lessons From a Windows Specialist | ZDNET</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-surveillance-on-a-budget-10-free-security-camera-tools/"><u>Updated Surveillance on a Budget 10 Free Security Camera Tools</u></a></li>
 </ul></div>
 

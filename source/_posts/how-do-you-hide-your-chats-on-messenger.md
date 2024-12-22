@@ -1,7 +1,7 @@
 ---
 title: How Do You Hide Your Chats on Messenger?
-date: 2024-08-23T02:12:22.977Z
-updated: 2024-08-24T02:12:22.977Z
+date: 2024-12-19T07:00:04.518Z
+updated: 2024-12-22T03:09:14.550Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf
 
  But what is vanish mode on Messenger? And how do you enable it? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Vanish Mode?
 
  When we covered[vanish mode on Messenger](https://www.makeuseof.com/messengers-vanish-mode-make-messages-disappear/) , we discussed how it allowed you to send text, pictures, GIFs, and more to friends without needing to worry about worrying about them sticking around. Every message is deleted right after the chat is closed.
@@ -29,9 +33,17 @@ thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf
 
  This isn't the same as[setting up privacy settings in Facebook for your photos](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) , or on your entire profile where others can't see it. The feature focuses on Messenger chats only.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Vanish Mode Work?
 
 ![Examples of vanish mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/vanish-mode.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You want to update your Messenger app to the latest version in order to have access to vanish mode. You'll also need to be previously connected with the person you are messaging to see the feature available.
 
@@ -43,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf
 
  Because of the encryption, you'll receive a notification anytime someone takes a screenshot of the messages. You still have the ability to report or block anyone misusing the feature, so don't worry about that.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Use Vanish Mode
 
  All it takes is a quick swipe for anyone who wants to use vanish mode with people they are connected with. Open your messenger app and select your chat, before then swiping up.
@@ -53,34 +62,30 @@ thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf
 ![Enabling vanish mode in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/IMG_1038.png)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Receiving an error in vanish mode in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/IMG_1039.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Close
 
  If it's your first time with vanish mode, you'll be shown some rules about how the feature works. Anytime thereafter, you just need to swipe up and you'll enter vanish mode. Swipe up again to turn your Messenger chat back to normal.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Now You Know How You Use Vanish Mode on Messenger
 
  So, there you have it—now you know how to use vanish mode on Messenger. The feature is easy to use, and you can send text, pictures, or GIFs to people you are connected to on Facebook Messenger and have them automatically deleted when you leave the chat.
 
  Once your messages are secure, you might want to ensure that the same is true for your entire Facebook profile. You'll find plenty of options to do this while using the platform, so be sure to check out our other guides.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -89,4 +94,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-windows-8-video-editing-made-easy-with-movie-maker-tips-and-tricks-for-2024/"><u>[New] Windows 8 Video Editing Made Easy with Movie Maker Tips & Tricks for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-breakdown-of-profit-from-a-million-youtube-watches-for-2024/"><u>[Updated] Breakdown of Profit From a Million Youtube Watches for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-resolving-common-instagram-video-glitches/"><u>2024 Approved Resolving Common Instagram Video Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-interactive-online-communities-on-facebook/"><u>Building Interactive Online Communities on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/discovering-the-peak-of-mobile-photo-collages-for-tech-users/"><u>Discovering the Peak of Mobile Photo Collages for Tech Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-blog-anonymity-persist/"><u>Does Blog Anonymity Persist?</u></a></li>
+<li><a href="https://facebook.techidaily.com/ever-wondered-about-your-favorite-app-down-heres-why/"><u>Ever Wondered About Your Favorite App Down? Here's Why</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-missing-vcruntime140dll-file-issue-complete-guide/"><u>Fixing the Missing VCRUNTIME140.dll File Issue - Complete Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-finding-a-contacts-current-position-using-your-iphone/"><u>Guide: Finding a Contact's Current Position Using Your iPhone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-infinix-note-30-pro-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Infinix Note 30 Pro?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-waves-of-social-change-with-facebooks-new-dating-tools/"><u>Navigating the Waves of Social Change with Facebook's New Dating Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/ownership-dynamics-in-online-image-hosting/"><u>Ownership Dynamics in Online Image Hosting</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-guide-mastering-the-art-of-video-playback-reversal-on-snapchat/"><u>Ultimate Guide: Mastering the Art of Video Playback Reversal on Snapchat</u></a></li>
+<li><a href="https://fox-info.techidaily.com/visual-content-enhanced-by-skilled-narrative-addition/"><u>Visual Content Enhanced by Skilled Narrative Addition</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-12-14T19:11:32.211Z
-updated: 2024-12-21T17:07:15.517Z
+date: 2024-12-19T22:06:23.805Z
+updated: 2024-12-21T21:40:18.003Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does the Poll Say?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -58,16 +58,12 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Is Facebook So Distrusted?
 
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -83,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  By contrast, Apple probably became an unlikely hero for fighting the FBI to prevent access to its users' phones. In addition, Apple users are passionate about Apple products.
 
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Regulation Is Coming
 
@@ -109,20 +109,24 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-behind-the-scenes-with-viral-image-memes-and-stories/"><u>[New] In 2024, Behind the Scenes with Viral Image Memes & Stories</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-androids-ultimate-fix-for-frustratingly-slow-vids/"><u>2024 Approved Android's Ultimate Fix for Frustratingly Slow Vids</u></a></li>
-<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nokia-c110-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nokia C110</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/cinematic-mastery-starts-here-the-best-cameras-of-all-levels/"><u>Cinematic Mastery Starts Here The Best Cameras of All Levels</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crafting-superior-recordings-a-guide-to-audacity/"><u>Crafting Superior Recordings A Guide to Audacity</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-rebounds-insights-behind-its-revival/"><u>Facebook Rebounds: Insights Behind Its Revival</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-could-apple-save-the-day-for-disheartened-sonos-owners-digital-gadget-guide/"><u>How Could Apple Save the Day for Disheartened Sonos Owners? | Digital Gadget Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-listen-to-spotify-without-leaving-the-facebook-app/"><u>How to Listen to Spotify Without Leaving the Facebook App</u></a></li>
-<li><a href="https://facebook.techidaily.com/leaders-behind-todays-social-network/"><u>Leaders Behind Today’s Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/nbafire-up-on-both-platforms-this-year/"><u>NBAFire Up on Both Platforms This Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-cues-and-invisible-rules-in-facebook-friending/"><u>Social Cues and Invisible Rules in Facebook Friending</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-login-process-with-whatsapps-instagram-2fa-code-support/"><u>Streamline Login Process with WhatsApp's Instagram 2FA Code Support</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-11-most-motivating-films-guaranteed-to-boost-your-spirit/"><u>Top 11 Most Motivating Films Guaranteed to Boost Your Spirit</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-5-mac-mkv-players-ranked-for-2024/"><u>Top 5 Mac MKV Players Ranked for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-not-facebook-the-perspective-on-longevity/"><u>Why Not Facebook: The Perspective on Longevity</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-chuckle-inducing-digital-artistry-mobile-edition/"><u>[New] 2024 Approved Chuckle-Inducing Digital Artistry (Mobile Edition)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/igital-dominance-highest-viewed-youtube-videos-today/"><u>[New] Digital Dominance Highest Viewed YouTube Videos Today</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-jokes-unveiled-3-pc-based-methods-for-2024/"><u>[New] Twitter Jokes Unveiled 3 PC-Based Methods for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-pause-point-social-media-deletion-too-fast/"><u>A Pause Point: Social Media Deletion - Too Fast?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/breaking-down-artificial-intelligence-for-beginners/"><u>Breaking Down Artificial Intelligence for Beginners</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-concisely-the-ultimate-guide-to-understanding-30-key-online-acronyms/"><u>Connect Concisely: The Ultimate Guide to Understanding 30 Key Online Acronyms</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-video-annoyance-solutions-to-get-them-playing/"><u>Facebook Video Annoyance: Solutions to Get Them Playing</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-depart-with-dignity-ungrouping-on-facebook/"><u>How to Depart with Dignity: Ungrouping on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-show-wi-fi-password-on-vivo-y100i-by-drfone-android/"><u>How to Show Wi-Fi Password on Vivo Y100i</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-redefining-visual-impact-how-to-change-and-add-tweets-video-previews/"><u>In 2024, Redefining Visual Impact How to Change and Add Tweets' Video Previews</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-htc-u23-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on HTC U23 FRP Bypass</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/make-it-a-memorable-year-enjoy-unbeatable-savings-with-free-mondly-pro/"><u>Make It a Memorable Year: Enjoy Unbeatable Savings with Free Mondly Pro</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-excel-techniques-for-acquiring-precise-report-insights-and-stats/"><u>Mastering Excel: Techniques for Acquiring Precise Report Insights and Stats</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/score-big-prime-days-most-amazing-savings-on-acer-electronics/"><u>Score Big: Prime Day's Most Amazing Savings on Acer Electronics</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-shaken-or-unshaken-face-recognition-data-deletions-effect-on-facebook/"><u>Security Shaken or Unshaken? Face Recognition Data Deletion's Effect on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-reap-benefits-from-the-class-action-facebook-settlement/"><u>Steps to Reap Benefits From the Class-Action Facebook Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-duo-expansion-a-new-dimension-for-fb-and-insta/"><u>The Duo Expansion: A New Dimension for FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-departure-roadmap-top-priorities-before-deleting-fb/"><u>The Social Media Departure Roadmap: Top Priorities Before Deleting FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-hubs-brimming-with-freelance-projects/"><u>Top 5 Hubs Brimming with Freelance Projects</u></a></li>
 </ul></div>
 

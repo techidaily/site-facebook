@@ -1,7 +1,7 @@
 ---
 title: Facebook Adopts a Prompt for Informed, Thoughtful Sharing
-date: 2024-12-15T18:37:55.824Z
-updated: 2024-12-21T19:14:03.565Z
+date: 2024-12-20T04:21:19.382Z
+updated: 2024-12-22T06:19:05.277Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Prods Users to Read Before Sharing
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -73,20 +73,24 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-daily-video-consumption-gb-breakdown/"><u>[New] 2024 Approved Daily Video Consumption GB Breakdown</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-discodex-switching-your-current-discord-role/"><u>[New] DiscoDex Switching Your Current Discord Role</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/trategies-to-increase-views-via-thumbnails-for-2024/"><u>[New] Strategies to Increase Views via Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-spikes-in-subscribers-implementing-top-12-video-promotion-techniques/"><u>[Updated] Spikes in Subscribers Implementing Top 12 Video Promotion Techniques</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-realme-v30-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Realme V30 is off? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-metaai-set-new-benchmarks-in-ai-conversationality/"><u>Can MetaAI Set New Benchmarks in AI Conversationality?</u></a></li>
-<li><a href="https://facebook.techidaily.com/defeating-displeasing-marketing-strategies-on-your-facebook-feed/"><u>Defeating Displeasing Marketing Strategies on Your Facebook Feed</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-apples-custom-silicon-revolution-m1-to-m3-and-rosetta-2-shapes-the-future-of-pcs-a-guide-for-shoppers-zdnet/"><u>How Apple's Custom Silicon Revolution (M1 to M3) & Rosetta 2 Shapes the Future of PCs: A Guide for Shoppers | ZDNet</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-motorola-moto-g-stylus-5g-2023-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Motorola Moto G Stylus 5G (2023) FRP Bypass</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-the-spotlight-comprehensive-j5-tactical-pro-v1-pro-flashlight-analysis-for-rugged-and-portable-glowing-solutions/"><u>In the Spotlight: Comprehensive J5 Tactical Pro V1-Pro Flashlight Analysis for Rugged and Portable Glowing Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/masterclass-transforming-your-social-media-moniker-on-fb/"><u>Masterclass: Transforming Your Social Media Moniker on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-your-fb-with-key-recovery-techniques/"><u>Safeguarding Your FB with Key Recovery Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/shop-smart-on-social-9-secrets-for-safe-marketplace-use/"><u>Shop Smart on Social: 9 Secrets for Safe Marketplace Use</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/understanding-windows-fresh-start-versus-backup-restoration-what-sets-them-apart/"><u>Understanding Windows Fresh Start versus Backup Restoration: What Sets Them Apart?</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-pauses-introduction-of-revised-user-agreement/"><u>WhatsApp Pauses Introduction of Revised User Agreement</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-sprinkle-new-colors-into-your-past-media-with-instagram/"><u>[Updated] In 2024, How to Sprinkle New Colors Into Your Past Media with Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-innovative-apps-to-manage-social-content-scheduling/"><u>5 Innovative Apps to Manage Social Content Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-the-popularity-paradox-in-social-media/"><u>A Closer Look at the Popularity Paradox in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-secure-email-engagement-mastery-of-2fa-on-popular-mail-services-like-google-and-microsoft/"><u>Achieve Secure Email Engagement: Mastery of 2FA on Popular Mail Services Like Google and Microsoft</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-secret-dialogues-on-facebook-well-guarded/"><u>Are Secret Dialogues on Facebook Well-Guarded?</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-falling-for-these-14-frequent-facebook-schemes/"><u>Avoid Falling for These 14 Frequent Facebook Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-newsfeed-4-customization-ways/"><u>Behind the Scenes of Your Newsfeed: 4 Customization Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-excessive-fb-reel-watching/"><u>Breaking Free From Excessive FB Reel Watching</u></a></li>
+<li><a href="https://blog-min.techidaily.com/can-you-use-handbrake-to-work-with-av1-format-videos/"><u>Can You Use HandBrake to Work with AV1 Format Videos?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://win-info.techidaily.com/complete-step-by-step-data-retrieval-for-lost-partitions-on-windows-11-using-ifind-tool/"><u>Complete Step-by-Step Data Retrieval for Lost Partitions on Windows 11 Using iFinD Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/counting-the-vanishing-votaries-on-facebook/"><u>Counting the Vanishing Votaries on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/curb-unexpected-people-proposals-on-facebook/"><u>Curb Unexpected People Proposals on Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/die-besten-kostenlosen-programme-zur-umwandlung-von-dvds-in-videodateien-fur-pc-und-mac-unterstutzt/"><u>Die Besten Kostenlosen Programme Zur Umwandlung Von DVDs in Videodateien Für PC Und Mac Unterstützt</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-se-2020-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone SE (2020) Data From iOS iTunes Backup? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-11-pro-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your Apple iPhone 11 Pro?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-plus-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Plus To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/troubleshooting-title-retrieval-problems-on-handbrake-when-converting-dvd-content/"><u>Troubleshooting Title Retrieval Problems on Handbrake When Converting DVD Content</u></a></li>
+<li><a href="https://driver-install.techidaily.com/unlock-wacoms-potential-secure-no-cost-driver-download/"><u>Unlock Wacom's Potential - Secure, No-Cost Driver Download</u></a></li>
 </ul></div>
 

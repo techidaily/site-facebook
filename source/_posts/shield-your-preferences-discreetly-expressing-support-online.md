@@ -1,7 +1,7 @@
 ---
 title: "Shield Your Preferences: Discreetly Expressing Support Online"
-date: 2024-12-16T17:48:00.243Z
-updated: 2024-12-21T19:22:18.045Z
+date: 2024-12-21T02:38:44.609Z
+updated: 2024-12-21T20:54:28.358Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,20 +58,18 @@ thumbnail: https://thmb.techidaily.com/184d7cf1dfbfc8948b40afe261697d83b7fb70b65
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-dial-up-your-digital-influence-nine-simple-steps-on-instagram/"><u>[New] 2024 Approved Dial Up Your Digital Influence Nine Simple Steps on Instagram</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-mastering-twitter-videos-adhere-to-aspect-ratio-rules-for-2024/"><u>[New] Mastering Twitter Videos Adhere to Aspect Ratio Rules for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-peak-performance-in-live-recording-software/"><u>[Updated] 2024 Approved Peak Performance in Live Recording Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-complete-youtubers-guide-to-editing-in-premiere-pro/"><u>[Updated] 2024 Approved The Complete Youtuber's Guide to Editing in Premiere Pro</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-video-profits-dailymotion-vs-youtube-insights/"><u>[Updated] Mastering Video Profits Dailymotion Vs. YouTube Insights</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-by-written-by-john-smith-phd/"><u>[Updated] Step-By Written by John Smith, PhD</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-unlock-apple-id-activation-lock-on-apple-iphone-15-by-drfone-ios/"><u>How to Unlock Apple ID Activation Lock On Apple iPhone 15?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-next-generation-of-mac-video-capture-software-not-bandicam/"><u>In 2024, The Next Generation of Mac Video Capture Software (Not Bandicam)</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-lands-market-for-professional-advancement/"><u>Navigating the Digital Lands Market for Professional Advancement</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-sonic-landscape-of-modern-chats-on-fb/"><u>Navigating the Sonic Landscape of Modern Chats on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/rapid-routes-through-distinct-facebook-user-sessions/"><u>Rapid Routes Through Distinct Facebook User Sessions</u></a></li>
-<li><a href="https://facebook.techidaily.com/report-facebook-and-google-should-do-more-to-remove-scam-ads/"><u>Report: Facebook and Google Should Do More to Remove Scam Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-battle-for-truth-on-platforms-during-a-global-crisis/"><u>The Battle for Truth on Platforms During a Global Crisis</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dark-side-3-issues-with-facebooks-virtual-reality/"><u>The Dark Side: 3 Issues with Facebook's Virtual Reality</u></a></li>
-<li><a href="https://fox-where.techidaily.com/1728487805552-windows-7/"><u>Windows 7の自動シャットダウン処理後のバックアップ方法</u></a></li>
+<li><a href="https://fox-that.techidaily.com/6-simple-solutions-to-restore-functionality-of-imessage-across-ios-and-macos-devices/"><u>6 Simple Solutions to Restore Functionality of iMessage Across iOS and macOS Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-pioneering-facebook-platforms-for-team-driven-projects/"><u>8 Pioneering Facebook Platforms for Team-Driven Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-dive-into-my-early-social-media-days-with-facebook/"><u>A Dive Into My Early Social Media Days with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-discontent-with-interconnected-virtual-worlds/"><u>Analyzing Discontent with Interconnected Virtual Worlds</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-more-effortlessly-transferring-posts-and-notes-among-major-sites/"><u>Connect More, Effortlessly: Transferring Posts & Notes Among Major Sites.</u></a></li>
+<li><a href="https://facebook.techidaily.com/curing-slow-or-no-fb-notification-updates/"><u>Curing Slow or No FB Notification Updates</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discover-the-aplus-video-cameras-of-2024/"><u>Discover the A+ Video Cameras of 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-cutting-edge-camera-features-on-newly-released-iphone-16-a-closer-look-at-its-revolutionary-shutter-button/"><u>Exploring the Cutting-Edge Camera Features on Newly Released iPhone 16 - A Closer Look at Its Revolutionary Shutter Button</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Realme GT 5? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-necromunda-hired-gun-stability-issues-on-your-computer-tips-and-fixes/"><u>Overcome Necromunda: Hired Gun Stability Issues on Your Computer - Tips and Fixes</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/quick-access-to-hidden-past-reddit-posts-and-articles-for-2024/"><u>Quick Access to Hidden, Past Reddit Posts and Articles for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/renowned-experts-exquisite-insta-highlight-creators-for-2024/"><u>Renowned Experts Exquisite Insta Highlight Creators for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-to-work-around-the-third-party-av-blockade-on-defender/"><u>Tips to Work Around the Third-Party AV Blockade on Defender</u></a></li>
 </ul></div>
 

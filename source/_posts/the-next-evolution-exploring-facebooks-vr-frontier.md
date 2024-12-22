@@ -1,7 +1,7 @@
 ---
 title: "The Next Evolution: Exploring Facebook's VR Frontier"
-date: 2024-12-19T17:04:49.494Z
-updated: 2024-12-21T17:37:52.645Z
+date: 2024-12-21T07:29:01.020Z
+updated: 2024-12-21T20:07:19.975Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Since its rebirth into a next-generation social media platform, Facebook has grown to unprecedented proportions. While Facebook is still synonymous with its ubiquitous social media platform, it has gone to acquire competitors, supporting services, and even hardware companies to join its ranks.
 
  Since its first acquisition in 2005, Facebook has spent over $23 billion to get a hold of social media platforms, messaging apps, and even virtual reality hardware. Over the last fifteen years alone, Facebook has acquired over 78 companies, with some of the biggest including Instagram, WhatsApp, and Oculus VR.
@@ -40,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
@@ -51,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
@@ -63,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Algorithmic Biases
@@ -75,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
@@ -86,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -119,20 +119,21 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-convert-live-facebook-videos-to-mp3s-on-the-fly/"><u>[New] In 2024, Convert Live Facebook Videos to MP3s on the Fly</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-engage-broadly-embedding-twitch-videos-on-fb/"><u>[Updated] 2024 Approved Engage Broadly Embedding Twitch Videos on FB</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-scaling-up-your-income-with-instagram-mastery/"><u>[Updated] 2024 Approved Scaling Up Your Income with Instagram Mastery</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-the-art-of-earnings-facebooks-blue-icon-badge/"><u>[Updated] In 2024, Mastering the Art of Earnings Facebook’s Blue Icon Badge</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-set-new-save-directory-for-mac-snapshots/"><u>2024 Approved Set New Save Directory for Mac Snapshots</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-iphone-15-pro-max-without-a-passcode-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your iPhone 15 Pro Max Without a Passcode</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-practices-to-prevent-unauthorized-fb-access/"><u>Essential Practices to Prevent Unauthorized FB Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-principles-for-neutral-social-media-pages/"><u>Guiding Principles for Neutral Social Media Pages</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-pro-level-action-cams-for-clear-unwavering-videos/"><u>In 2024, Pro-Level Action Cams for Clear, Unwavering Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/mobile-marvels-fastest-lite-android-apps-ahead/"><u>Mobile Marvels: Fastest Lite Android Apps Ahead</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-go-emerges-changing-the-mobile-landscape/"><u>Portal Go Emerges, Changing the Mobile Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-guide-to-altering-facebook-pics/"><u>The Essential Guide to Altering Facebook Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-psychological-upsides-of-a-temporary-online-hiatus/"><u>The Psychological Upsides of a Temporary Online Hiatus</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-rated-soundbar-systems-ultimate-guide/"><u>Top Rated Soundbar Systems - Ultimate Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-users-stick-to-original-policies-for-uninterrupted-functionality/"><u>WhatsApp Users Stick to Original Policies for Uninterrupted Functionality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-storytelling-success-planning-a-dynamic-marketing-strategy-for-2024/"><u>[New] Instagram Storytelling Success Planning a Dynamic Marketing Strategy for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unmasked-influence-introducing-the-power-players-of-insta-for-2024/"><u>[New] Unmasked Influence Introducing the Power Players of Insta for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-capture-flawless-footage-top-choices-of-tripods-for-youtubers/"><u>[Updated] 2024 Approved Capture Flawless Footage Top Choices of Tripods for YouTubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/5m-investment-in-journalists-focused-venture-by-global-social-media-leader/"><u>$5M Investment in Journalists-Focused Venture by Global Social Media Leader</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-backward-movie-playback-on-iphones/"><u>2024 Approved Navigating Backward Movie Playback on iPhones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-speech-styling-made-simple-tips-for-enriching-your-vocal-presence-affordably/"><u>2024 Approved Speech Styling Made Simple Tips for Enriching Your Vocal Presence Affordably</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-headlines-examining-metaverse-ownership-claims/"><u>Beyond Headlines: Examining Metaverse Ownership Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-free-delete-disconnect-and-discover/"><u>Break Free: Delete, Disconnect & Discover</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-who-can-connect-via-facebook-groups/"><u>Breaking Down Who Can Connect via Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-your-neighborhood-experience-fbs-next-retail-revolution/"><u>Could Your Neighborhood Experience FB's Next Retail Revolution?</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-purging-possible-consequences-for-social-media-protection/"><u>Data Purging: Possible Consequences for Social Media Protection</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-c55-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149784631-hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-social-savvy-how-to-save-gifs-for-iphoneandroid-use/"><u>In 2024, Social Savvy How to Save GIFs for iPhone/Android Use</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cience-of-youtube-success-perfect-thumbnails-for-2024/"><u>The Science of YouTube Success Perfect Thumbnails for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-rated-iphone-releases-in-depth-analysis-by-industry-experts-techsavvy/"><u>Top Rated iPhone Releases : In-Depth Analysis by Industry Experts | TechSavvy</u></a></li>
 </ul></div>
 

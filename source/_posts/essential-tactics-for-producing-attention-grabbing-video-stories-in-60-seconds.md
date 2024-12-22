@@ -1,7 +1,7 @@
 ---
 title: Essential Tactics for Producing Attention-Grabbing Video Stories in 60 Seconds
-date: 2024-12-17T16:27:23.150Z
-updated: 2024-12-21T17:34:51.607Z
+date: 2024-12-20T05:45:03.580Z
+updated: 2024-12-21T23:01:12.882Z
 tags:
   - facebook
 categories:
@@ -32,15 +32,15 @@ thumbnail: https://thmb.techidaily.com/1e30b9de50d4ae50235fbe2427c86509d2c0711d9
 
 ![Screenshot of Facebook reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Screenshot-of-Facebook-reel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  Meta introduced Reels to Instagram in 2020 to take on TikTok, which was soaring in popularity at the time. Reels work similarly to[how TikTok videos work](http://www.makeuseof.com/tag/what-is-tiktok-how-does-it-work/) . They are usually between 15 and 60 seconds long and edited with audio or various effects.
 
  The feature surged in popularity and quickly became the platform's fastest-growing content format by a wide margin. This, in turn, encouraged Facebook to launch Reels on its platform in February 2022.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Create a Reel on Facebook
 
@@ -49,7 +49,7 @@ Close
 ![Facebook homepage after switching to Reels tab](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-homepage-after-switching-to-Reels-tab.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Create a reel page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Create-a-reel-page-on-Facebook.jpg)
@@ -70,6 +70,10 @@ Close
 
 ![Facebook-Reel-recording-page-options-1](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-Reel-recording-page-options-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The first is**Add music** . Here, you can choose to add a soundtrack to your Reel from Facebook's library of licensed songs. There's also**length** , where you can choose how long you want your Reel to be. The maximum length is 60 seconds.
 
  Then there's**Speed** . This is where you can choose to speed up or slow down your video.**Effects** is where you can add fun filters to your Reel. Next is**Timer** , which lets you choose how long you want the camera to run before it starts recording.
@@ -79,24 +83,20 @@ Close
  Once you're happy with your settings, it's time to record! Tap on the**Record button** and start filming. When you're done, tap on the**Next button** to go to the edit page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Editing Your Facebook Reel Video
 
 ![Facebook Reel recording page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-Reel-recording-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook Reel edit page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-Reel-edit-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook Reel share page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-Reel-share-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -125,20 +125,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-professional-screen-capture-for-gotomeeting-users/"><u>[New] Professional Screen Capture for GoToMeeting Users</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/bypass-the-glitch-instant-remedies-when-your-iphones-emoji-prediction-fails/"><u>Bypass the Glitch: Instant Remedies When Your iPhone's Emoji Prediction Fails</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/effective-against-malicious-trackers-does-windows-defender-offer-robust-anti-spyware-protection-unveiled-by-experts-at-yl-software/"><u>Effective Against Malicious Trackers: Does Windows Defender Offer Robust Anti-Spyware Protection? Unveiled by Experts at YL Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevated-authenticity-meta-golden-star-vs-twitters-platinum-badge/"><u>Elevated Authenticity: Meta Golden Star Vs. Twitter's Platinum Badge</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-y200-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo Y200 to Roku | Dr.fone</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/in-2024-the-silence-shift-a-comprehensive-look-at-how-to-strip-sound-from-digital-videos-on-the-web/"><u>In 2024, The Silence Shift A Comprehensive Look at How to Strip Sound From Digital Videos on the Web</u></a></li>
-<li><a href="https://facebook.techidaily.com/inscrutable-interactions-fb-list-lesser-sights/"><u>Inscrutable Interactions: FB List Lesser Sights</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-texting-problems-here-are-7-fixes-you-need/"><u>IPhone Texting Problems? Here Are 7 Fixes You Need</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-social-network-a-deep-dive-into-facebooks-transparency-center/"><u>Navigating the Social Network: A Deep Dive Into Facebook's Transparency Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/reel-rewards-navigating-monetization-streams-with-metas-insight/"><u>Reel Rewards: Navigating Monetization Streams with Meta’s Insight</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-risks-behind-choosing-link-tracking-on-facebook/"><u>The Risks Behind Choosing Link Tracking on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-truth-behind-hashtag-power-and-its-influence-on-facebook-audience-growth/"><u>The Truth Behind #Hashtag Power and Its Influence on Facebook Audience Growth</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/trouble-with-iphone-se-2020-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with iPhone SE (2020) Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-download-install-and-utilize-obs-effectively-on-a-macpc/"><u>[New] 2024 Approved Download, Install, and Utilize OBS Effectively on a MacPC</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-leveraging-social-media-power-optimal-use-of-hash-tags-on-fb/"><u>[New] In 2024, Leveraging Social Media Power Optimal Use of Hash Tags on FB</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-yt-storytellers-for-enthralling-viewing-experience/"><u>[Updated] Best YT Storytellers for Enthralling Viewing Experience</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-stepping-into-a-new-digital-era-mastering-your-tiktok-handle-change-process-for-2024/"><u>[Updated] Stepping Into a New Digital Era Mastering Your TikTok Handle Change Process for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-capturing-cinema-smartphone-mac-and-desktop-screenshots/"><u>2024 Approved Capturing Cinema Smartphone, Mac, and Desktop Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-uninterrupted-music-with-spotify-in-facebook/"><u>Achieve Uninterrupted Music with Spotify in Facebook</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/affordable-elegance-motorola-ones-iphone-like-appeal-at-half-the-price/"><u>Affordable Elegance: Motorola One's iPhone-Like Appeal at Half the Price</u></a></li>
+<li><a href="https://facebook.techidaily.com/dealing-with-non-delivery-of-two-factor-authentication-code-on-fb/"><u>Dealing with Non-Delivery of Two-Factor Authentication Code on FB</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/empower-your-online-analytics-using-cookiebot-technology/"><u>Empower Your Online Analytics Using Cookiebot Technology</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-70-lite-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-young-social-media-members-towards-prudent-privacy-choices/"><u>Guiding Young Social Media Members Towards Prudent Privacy Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-through-sonic-emojis-on-messenger/"><u>Journey Through Sonic Emojis on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-survey-reveals-worrying-lack-of-trust-notably-for-facebook/"><u>New Survey Reveals Worrying Lack of Trust, Notably for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-strategies-for-showcasing-excellence-in-your-facebook-profile/"><u>Proven Strategies for Showcasing Excellence in Your Facebook Profile</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-troubleshooting-the-0xc19n0208-error-during-windows-10-updates/"><u>Resolved: Troubleshooting the 0xC19n0208 Error During Windows 10 Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-the-scam-tips-for-facebook-security-hygiene/"><u>Spot the Scam: Tips for Facebook Security Hygiene</u></a></li>
 </ul></div>
 

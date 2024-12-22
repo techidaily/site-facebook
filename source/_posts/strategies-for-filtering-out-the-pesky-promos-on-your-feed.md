@@ -1,7 +1,7 @@
 ---
 title: Strategies for Filtering Out the Pesky Promos on Your Feed
-date: 2024-12-20T18:16:27.740Z
-updated: 2024-12-21T19:21:48.630Z
+date: 2024-12-20T01:47:39.411Z
+updated: 2024-12-21T23:26:32.163Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bcbbbb17c516407e41023c9df84564d9e208249f4
 Below are three easy ways to control the ads you see on Facebook:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Change Your Ads Preferences
@@ -57,14 +57,10 @@ Below are three easy ways to control the ads you see on Facebook:
 ![How to change your ad preferences on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_081850.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![How to change your ad preferences on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_081905.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -78,9 +74,17 @@ To widen the list of the kind of ads you don't want to see:
 
 ![How to stop seeing certain ads on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_084811.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  You can also type an ad topic on the search bar at the top of the Ad topics page to locate a topic you have trouble locating. For instance, if you wish to see fewer combat sports ads, you can simply search "combat sports" from the search bar and then tap through and select**See less** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Turn Off Ads Recommendations From Off-Facebook Activities
 
@@ -94,14 +98,10 @@ Close
 ![How to control the kind of ads you see on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_082205.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Control the Kind of Ads you see on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/20220811_082216.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -132,17 +132,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>[New] Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/confirming-installation-does-your-system-include-windows-defender-insights-by-yl-software-experts/"><u>Confirming Installation: Does Your System Include Windows Defender? Insights by YL Software Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-and-exploiting-the-benefits-of-sleep-mode-on-messenger-kids-app/"><u>Exploring and Exploiting the Benefits of Sleep Mode on Messenger Kids App</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/guide-how-to-monitor-cell-numbers-safely-and-within-legal-boundaries/"><u>Guide: How to Monitor Cell Numbers Safely & Within Legal Boundaries</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>In 2024, Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-netgear-nighthawk-rax120-unparalleled-speed-and-performance/"><u>In-Depth Analysis of the Netgear Nighthawk RAX120: Unparalleled Speed and Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/metrics-making-moolah-how-meta-supports-artists-in-their-monetary-endeavors/"><u>Metrics Making Moolah: How Meta Supports Artists in Their Monetary Endeavors</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/motivating-hr-chronicles-the-best-ten-vids-for-2024/"><u>Motivating HR Chronicles - The Best Ten Vids for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/start-now-best-online-learning-for-new-youtubers/"><u>Start Now Best Online Learning for New YouTubers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-social-media-cryptocurrency-promos/"><u>The Future of Social Media: Cryptocurrency Promos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-coupes-videos-libres-compatibles-avec-windows-mac-os-x-et-les-selecteurs-decarts-non-voues/"><u>Top Coupes Vidéos Libres : Compatibles Avec Windows, Mac OS X Et Les Sélecteurs D'Écarts Non Voués</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-makes-mastodon-different/"><u>What Makes Mastodon Different?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-mastering-visual-storytelling-live-broadcasts-of-360-videos-on-facebook-for-2024/"><u>[New] Mastering Visual Storytelling Live Broadcasts of 360 Videos on Facebook for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-bg-removal-in-figma-designs/"><u>[Updated] Mastering BG Removal in Figma Designs</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-ultimate-guide-to-streaming-google-meet-on-youtube/"><u>2024 Approved Your Ultimate Guide to Streaming Google Meet on YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-vivo-y100-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Vivo Y100 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-sites-and-cities-for-finding-jobs/"><u>Essential Sites and Cities for Finding Jobs</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-social-chains-separate-instagram-and-facebook/"><u>Freedom From Social Chains: Separate Instagram & Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-video-timestamps-on-youtube-platform-for-2024/"><u>Mastering Video Timestamps on YouTube Platform for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-fb-password-with-minimal-hassle/"><u>Reclaim Your FB Password with Minimal Hassle</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-news-streams-user-opinions-on-social-networking-sites/"><u>Reimagining News Streams: User Opinions on Social Networking Sites</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/top-20-youtube-font-choices-for-striking-thumbnails/"><u>Top 20 YouTube Font Choices for Striking Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-10-secrets-to-simplifying-your-sms-spaces/"><u>Unlock 10 Secrets to Simplifying Your SMS Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-relieved-germany-imposes-ban-on-facebooks-data-collection-practices/"><u>WhatsApp Users Relieved: Germany Imposes Ban on Facebook's Data Collection Practices</u></a></li>
 </ul></div>
 

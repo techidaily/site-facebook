@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-12-19T16:17:35.232Z
-updated: 2024-12-21T17:08:26.245Z
+date: 2024-12-18T18:52:11.599Z
+updated: 2024-12-21T23:26:18.846Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,24 +79,16 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-everyones-guide-to-youtube-success-10-straightforward-video-tips/"><u>[New] In 2024, Everyone's Guide to YouTube Success 10 Straightforward Video Tips</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-price-tracker-for-cloud-space-services-a-detailed-review/"><u>[Updated] Price Tracker for Cloud Space Services A Detailed Review</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-uninstall-discord-server-on-all-devices-for-2024/"><u>[Updated] Uninstall Discord Server on All Devices for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-dissecting-video-ranking-algorithms-on-youtube/"><u>2024 Approved Dissecting Video Ranking Algorithms on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-chatter-vs-linkedin-leaders-discussion-and-development-dissected/"><u>Facebook Chatter Vs. LinkedIn Leaders: Discussion and Development Dissected</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-community-management-features/"><u>Facebook Unveils Enhanced Community Management Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-footprint-on-our-lives-a-mixed-bag/"><u>Facebook's Footprint on Our Lives: A Mixed Bag</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-composing-engaging-podcast-thumbnails/"><u>In 2024, Composing Engaging Podcast Thumbnails</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-leading-virtual-reality-titles-for-your-smartphone/"><u>In 2024, The Leading Virtual Reality Titles for Your Smartphone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/instant-access-download-the-official-pioneer-dj-ddj-sx2-software/"><u>Instant Access: Download the Official Pioneer DJ DDJ-SX2 Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/reaching-a-plateau-in-social-media-popularity/"><u>Reaching a Plateau in Social Media Popularity</u></a></li>
-<li><a href="https://facebook.techidaily.com/steer-clear-understanding-the-dangers-of-random-friendships/"><u>Steer Clear: Understanding the Dangers of Random Friendships</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/step-by-step-guide-for-igtv-video-submission-for-2024/"><u>Step-by-Step Guide for IGTV Video Submission for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthening-online-communities-through-refined-fb-administration/"><u>Strengthening Online Communities Through Refined FB Administration</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-11-pro-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 11 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-for-data-driven-decision-making/"><u>Top 8 CrowdFlower Tools for Data-Driven Decision Making</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-online-presence-seamless-fb-posts-and-notes-movement/"><u>Transform Your Online Presence: Seamless Fb Posts & Notes Movement</u></a></li>
-<li><a href="https://facebook.techidaily.com/uniting-your-social-spheres-on-xbox-a-step-by-step-guide/"><u>Uniting Your Social Spheres on Xbox: A Step-by-Step Guide</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/windows-stellar-standard-file-wiping-tool-with-automated-schedule-settings/"><u>Windows Stellar Standard File Wiping Tool with Automated Schedule Settings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-orientation-overhaul-instagrams-video-rotation-secret-for-2024/"><u>[Updated] Orientation Overhaul Instagram's Video Rotation Secret for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-echoes-in-the-stream-full-year-tweet-video-analysis/"><u>2024 Approved Echoes in the Stream - Full Year Tweet Video Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/alleged-ban-of-ethical-marketing-claims-surface-at-fb/"><u>Alleged Ban of Ethical Marketing Claims Surface at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-tech-companies-reading-your-mental-dialogues/"><u>Are Tech Companies Reading Your Mental Dialogues?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-distances-leveraging-your-facebook-portal-tvs-capabilities/"><u>Bridging Distances: Leveraging Your Facebook Portal TV's Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/continuity-of-functionality-on-whatsapp-without-policy-consent/"><u>Continuity of Functionality on WhatsApp WITHOUT Policy Consent</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/get-ready-for-the-future-of-android-a-step-by-step-guide-to-downloading-and-installing-android-13-beta-1-plus-tips-on-when-to-upgrade/"><u>Get Ready for the Future of Android: A Step-by-Step Guide to Downloading & Installing Android 13 Beta 1 - Plus, Tips on When to Upgrade!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-effortlessly-edit-podcasts-best-practices-with-garageband/"><u>In 2024, Effortlessly Edit Podcasts Best Practices with GarageBand</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-create-stunning-gif-loops-with-these-free-makers-for-2024/"><u>New Create Stunning GIF Loops with These Free Makers for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-repairing-your-pathfinder-game-controller-when-keys-fail/"><u>Troubleshooting Tips: Repairing Your Pathfinder Game Controller When Keys Fail</u></a></li>
 </ul></div>
 

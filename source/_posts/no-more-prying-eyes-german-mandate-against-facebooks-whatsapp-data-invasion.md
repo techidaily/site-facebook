@@ -1,7 +1,7 @@
 ---
 title: "No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion"
-date: 2024-12-16T19:45:17.456Z
-updated: 2024-12-21T18:24:13.552Z
+date: 2024-12-20T03:05:38.714Z
+updated: 2024-12-22T00:28:36.356Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,21 +81,19 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-skewed-imagery-texts/"><u>[New] Mastering Skewed Imagery Texts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-using-look-up-tables-luts-in-photoshop/"><u>[New] The Ultimate Guide to Using Look-Up Tables (LUTs) in Photoshop</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-cost-effective-sky-gadgets-frugal-flight-devices-ranking/"><u>[Updated] 2024 Approved Cost-Effective Sky Gadgets Frugal Flight Devices Ranking</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-quintessential-scriptwriting-throughout-the-film-landscape/"><u>[Updated] In 2024, Quintessential Scriptwriting Throughout the Film Landscape</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-pro-video-setup-utilizing-your-logitech-webcam/"><u>[Updated] Pro Video Setup Utilizing Your Logitech Webcam</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-daily-use-to-extraordinary-experiences-phones-into-vr/"><u>2024 Approved From Daily Use to Extraordinary Experiences Phones Into VR</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-metaverse-3-pivotal-questions-for-society/"><u>Facebook's Metaverse - 3 Pivotal Questions for Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/forums-to-feeds-the-top-6-transition-trajectory-changes/"><u>Forums to Feeds: The Top 6 Transition Trajectory Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/has-the-zenith-of-facebook-been-hit/"><u>Has the Zenith of Facebook Been Hit?</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-highlight-reel-concealing-your-facebook-activity/"><u>Hidden Highlight Reel: Concealing Your Facebook Activity</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Itel P55 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-biden-employs-social-giants-to-win-the-covid-war/"><u>Joe Biden Employs Social Giants to Win the COVID War</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-trump-accuses-big-platforms-of-limiting-user-expression/"><u>President Trump Accuses Big Platforms of Limiting User Expression</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/stream-smarter-not-harder-the-in-depth-review-of-chromecast-with-google-tv/"><u>Stream Smarter, Not Harder - The In-Depth Review of Chromecast with Google TV!</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unlocking-the-full-potential-10-chatgpt-vs-code-pairings/"><u>Unlocking the Full Potential: 10 ChatGPT-VS Code Pairings</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-brands-soar-on-facebook-a-look-at-the-superiority-of-business-pages/"><u>Why Brands Soar on Facebook: A Look at the Superiority of Business Pages</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-streaming-mastery-zoom-plus-fb-live-tactics/"><u>[New] In 2024, Streaming Mastery ZOOM + FB Live Tactics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-excellence-in-vocal-alteration-top-choices-above-all/"><u>[Updated] Excellence in Vocal Alteration Top Choices Above All</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-guides-to-quick-webinar-recording-with-macos-and-windows-for-2024/"><u>[Updated] Guides to Quick Webinar Recording with macOS and Windows for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-primer-to-social-media-symbol-mastery-facebooks-icons-explained/"><u>A Primer to Social Media Symbol Mastery: Facebook's Icons Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-certified-user-meta-verification-us-style/"><u>Become a Certified User: Meta Verification, US Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-photo-privacy/"><u>Best Practices for FB Photo Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-reels-solve-the-tiktok-problem-for-facebook/"><u>Can Reels Solve the TikTok Problem for Facebook?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/choosing-the-perfect-apple-wireless-speaker-a-comparison-between-homepod-and-homepod-mini-find-out-which-fits-your-lifestyle-best/"><u>Choosing the Perfect Apple Wireless Speaker: A Comparison Between HomePod and HomePod Mini - Find Out Which Fits Your Lifestyle Best</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-your-ideal-facebook-portal/"><u>Choosing Your Ideal Facebook Portal</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/copy-mishaps-on-windows-11/"><u>Copy Mishaps on Windows 11</u></a></li>
+<li><a href="https://win-community.techidaily.com/moving-your-os-ensure-safe-transition-to-a-reduced-size-ssd-a-detailed-tutorial/"><u>Moving Your OS? Ensure Safe Transition to a Reduced-Size SSD – A Detailed Tutorial</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revolutionizing-employee-interactions-with-gpt-powered-writing/"><u>Revolutionizing Employee Interactions with GPT-Powered Writing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/visionary-8-must-haves-in-vr-gaming-worlds-for-2024/"><u>Visionary 8 Must-Haves in VR Gaming Worlds for 2024</u></a></li>
 </ul></div>
 

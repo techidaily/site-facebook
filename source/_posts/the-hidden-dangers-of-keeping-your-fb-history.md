@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers of Keeping Your FB History
-date: 2024-12-14T16:46:52.240Z
-updated: 2024-12-21T16:55:50.981Z
+date: 2024-12-20T03:29:43.911Z
+updated: 2024-12-21T16:10:57.655Z
 tags:
   - facebook
 categories:
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 * [How to Delete Your Facebook Watch History](#how-to-delete-your-facebook-watch-history)
 * [Why You Should Delete Your Facebook Watch History](#why-you-should-delete-your-facebook-watch-history)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Deleting your Facebook watch history allows you to stay in control of your digital footprint and keep your interests private.
@@ -43,29 +39,29 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Delete Your Facebook Watch History on Android
 
  To delete your Facebook watch history on the Android app, follow these steps:
 
 ![screenshot showing facebook profile page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-page-on-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -84,12 +80,16 @@ Close
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
@@ -105,7 +105,7 @@ Close
  You can then clear any videos you find there.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
@@ -135,24 +135,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-capturing-audiences-attention-with-animated-viral-video-hits-for-2024/"><u>[New] Capturing Audiences' Attention with Animated Viral Video Hits for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-crafting-cinematic-experiences-on-your-desktop-with-windows-hdr/"><u>[New] In 2024, Crafting Cinematic Experiences on Your Desktop with Windows HDR</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-dos-and-donts-the-essential-night-photography-checklist/"><u>[New] In 2024, Do's & Don'ts The Essential Night Photography Checklist</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-high-res-horizon-a-comprehensive-look-at-the-sony-xperia-xz/"><u>[Updated] 2024 Approved High-Res Horizon - A Comprehensive Look at the Sony Xperia XZ</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-infinite-vision-capture-app/"><u>[Updated] Infinite Vision Capture App</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-picsart-guide-adding-motion-blur-to-facial-shots-for-dynamic-images/"><u>2024 Approved Picsart Guide Adding Motion Blur to Facial Shots for Dynamic Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/fans-gain-free-access-to-wnba-via-fb-and-twt/"><u>Fans Gain Free Access to WNBA via FB & Twt</u></a></li>
-<li><a href="https://facebook.techidaily.com/first-facebook-smartwatch-potential-for-dual-cameras/"><u>First Facebook Smartwatch: Potential for Dual Cameras?</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-12-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 12 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/insiders-guide-maximizing-windows-11-efficiency/"><u>Insider's Guide Maximizing Windows 11 Efficiency</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-metadata-management-preventing-pics-spread-online/"><u>Mastering Metadata Management: Preventing Pics Spread Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/participating-in-distribution-claiming-a-piece-from-facebooks-deal/"><u>Participating in Distribution: Claiming a Piece From Facebook’s Deal</u></a></li>
-<li><a href="https://facebook.techidaily.com/pause-triggered-by-facebooks-disciplinary-body/"><u>Pause Triggered by Facebook's Disciplinary Body</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-your-online-identity-after-fb-account-infiltration/"><u>Safeguard Your Online Identity After FB Account Infiltration</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-guide-getting-your-money-back-from-fb-transactions/"><u>Stepwise Guide: Getting Your Money Back From FB Transactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-facebook-community-guidelines/"><u>Tailoring Your Facebook Community Guidelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-guide-to-mentioning-every-member-online/"><u>The Complete Guide to Mentioning Every Member Online</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317393-9781401926298-the-hope/"><u>The Hope | Free Book</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-qp-value-enhancing-gradual-movement-vids-for-2024/"><u>Top QP Value Enhancing Gradual Movement Vids for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-capturing-live-streams-on-fb-top-techniques-revealed/"><u>[Updated] Capturing Live Streams on FB Top Techniques Revealed</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-enhancing-tiktok-visuals-through-zoom-mastery-for-2024/"><u>[Updated] Enhancing TikTok Visuals Through Zoom Mastery for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/44-attorneys-general-ask-facebook-to-ditch-instagram-for-children/"><u>44 Attorneys General Ask Facebook to Ditch Instagram for Children</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-critical-look-at-facebook-and-googles-efforts-to-quash-scam-ads/"><u>A Critical Look at Facebook and Google's Efforts to Quash Scam Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-validating-online-personas/"><u>Beyond Likes and Shares: Validating Online Personas</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-itel-a70-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Itel A70 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/check-fb-availability-downtime-alerts-and-notifications/"><u>Check FB Availability: Downtime Alerts & Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/customized-facebook-links-overshadow-app-store-detailed-breakdown-inside/"><u>Customized Facebook Links Overshadow App Store, Detailed Breakdown Inside</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-asus-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Asus Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/thrifty-fliers-list-best-drones-for-the-price-point-for-2024/"><u>Thrifty Flier's List Best Drones for the Price Point for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-solutions-how-to-repair-your-iphone-when-it-displays-sos-on-its-status-bar/"><u>Top Solutions: How to Repair Your iPhone When It Displays 'SOS' On Its Status Bar</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-game-collision-problems-addressing-crashes-by-super-people/"><u>Troubleshooting Game Collision Problems: Addressing 'Crashes by Super People'</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/visual-anonymous-how-to-make-faces-and-objects-invisible/"><u>Visual Anonymous How to Make Faces and Objects Invisible</u></a></li>
 </ul></div>
 

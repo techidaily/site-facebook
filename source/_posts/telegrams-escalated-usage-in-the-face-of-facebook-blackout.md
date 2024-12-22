@@ -1,7 +1,7 @@
 ---
 title: Telegram's Escalated Usage in the Face of Facebook Blackout
-date: 2024-12-20T16:21:23.484Z
-updated: 2024-12-21T16:12:52.899Z
+date: 2024-12-17T02:41:09.070Z
+updated: 2024-12-21T23:52:50.647Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -41,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 But why did Telegram benefit so much more than any of its rivals?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Did People Choose Telegram When WhatsApp Went Down?
@@ -49,7 +45,7 @@ But why did Telegram benefit so much more than any of its rivals?
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
@@ -59,7 +55,7 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Important Is This for Telegram?
@@ -74,6 +70,10 @@ But why did Telegram benefit so much more than any of its rivals?
 
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -87,7 +87,7 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
@@ -111,19 +111,22 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-uncomplicated-approaches-to-saving-gameplay/"><u>[Updated] In 2024, Uncomplicated Approaches to Saving Gameplay</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-paving-digital-pathways-for-ig-and-tiktok/"><u>[Updated] Paving Digital Pathways for IG & TikTok</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-shortcut-to-instagram-video-connectivity-for-2024/"><u>[Updated] The Ultimate Shortcut to Instagram Video Connectivity for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/57ch5y2y44gr44oh44k44oh44o844k44ks57eo6zug44gx44gm55m66kal5ocn44ks6auy44kb44kl5yuv55s744o76zplusz5qw944ov44kh44kk44or44gu6kqs5pio5pa55rov/"><u>簡単にメタデータを編集して発見性を高める動画・音楽ファイルの説明方法</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/beyond-the-basics-comprehensive-analysis-of-iphone-15-and-why-it-exceeds-professional-user-expectations/"><u>Beyond the Basics: Comprehensive Analysis of iPhone 15 and Why It Exceeds Professional User Expectations</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehvew-of-anker-super-bright-lights-tough-design-ideal-for-outdoor-enthusiasts/"><u>Comprehvew of Anker Super Bright Lights: Tough Design Ideal for Outdoor Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-news-feed-to-trending-topics-facebooks-decline-on-tiktok/"><u>From News Feed to Trending Topics, Facebook's Decline on TikTok</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-oneplus-12-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On OnePlus 12 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210776979-9798218161729-memories-of-eternity-life-death-love-then-what-2nd-edition-2nd-ed/"><u>Memories of Eternity Life. Death. Love, then what? (2nd Edition) (2nd ed.) | Free Book</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/optimizing-android-usage-how-to-keep-apps-from-secretly-operating-in-the-background/"><u>Optimizing Android Usage: How to Keep Apps From Secretly Operating in the Background</u></a></li>
-<li><a href="https://facebook.techidaily.com/snapshot-source-ownership-after-upload/"><u>Snapshot Source: Ownership After Upload</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-dynamics-of-facebook-neighborhoods/"><u>Understanding the Dynamics of Facebook Neighborhoods</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-digital-reflection-creating-a-personalized-cover-photo-using-your-avatar/"><u>Your Digital Reflection: Creating a Personalized Cover Photo Using Your Avatar</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-best-video-screen-grabbers/"><u>[New] Best Video Screen Grabbers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-hitch-youtube-sounds-into-imovie-tracks-swiftly-for-2024/"><u>[New] Hitch YouTube Sounds Into iMovie Tracks Swiftly for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-elite-media-maestro-picture-perfect-with-pitches/"><u>[New] In 2024, Elite Media Maestro Picture Perfect with Pitches</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-prime-selection-of-affordable-cams-for-action-sports/"><u>[New] In 2024, Prime Selection of Affordable Cams for Action Sports</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-10-female-gamers-on-youtube-2024-updated/"><u>[New] Top 10 Female Gamers on YouTube | 2024 Updated</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-strategy-to-remove-users-on-facebook/"><u>A Step-by-Step Strategy to Remove Users on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-facebooks-embedded-surfing-options/"><u>Avoiding Facebook's Embedded Surfing Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152115012-awaiting-the-call-facebook-orders-ruling-on-prohibited-access/"><u>Awaiting the Call: Facebook Orders Ruling on Prohibited Access.</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-work-related-prospects-with-savvy-facebook-techniques/"><u>Boosting Work-Related Prospects with Savvy Facebook Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/brace-for-impact-expecting-troubled-news-on-fb/"><u>Brace for Impact: Expecting Troubled News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-virtual-divide-8-ways-to-connect-digitally/"><u>Bridging the Virtual Divide: 8 Ways to Connect Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-facebook-media-a-comprehensive-guide/"><u>Capture Facebook Media: A Comprehensive Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-moto-g34-5g-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on Moto G34 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-deletion-protocols-for-social-media-clans/"><u>Comprehensive Deletion Protocols for Social Media Clans</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-realme-11-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Realme 11 5G</u></a></li>
+<li><a href="https://win-answers.techidaily.com/steam-remote-play-malfunctions-heres-how-to-restore-full-functionality/"><u>Steam Remote Play Malfunctions? Here's How to Restore Full Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-ihome-zenergy-sleep-machine-elevate-your-mornings-with-expert-insights/"><u>The Ultimate Guide to the IHome Zenergy Sleep Machine: Elevate Your Mornings with Expert Insights</u></a></li>
 </ul></div>
 

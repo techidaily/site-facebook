@@ -1,7 +1,7 @@
 ---
 title: Exploring Grievances Against Online Connectivity Platforms
-date: 2024-12-17T18:22:17.078Z
-updated: 2024-12-21T16:52:22.032Z
+date: 2024-12-18T00:57:14.846Z
+updated: 2024-12-22T01:40:49.936Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. The Platform's Overabundance of Features
 
 ![Browsing Facebook on PC and Phone](https://thmb.techidaily.com/c614df743851cde902b9dc7b624e356646f565efb6b83602d7f5ffd347873428.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you've been using Facebook for a long time, you would have noticed what could be considered an obsessive desire to make it "the" social media platform. Twitter is where you share quick thoughts, Snapchat is where you message your friends and TikTok is for short videos. However, Facebook has tried to be everything for everyone and, in doing so, has made the platform confusing and difficult to use.
 
@@ -43,12 +39,16 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  Its constant feature adoption has made it feel like Facebook is just trying to do too much and, in the process, has lost its focus. What really is Facebook for?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Privacy Concerns
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -72,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
  TikTok's rise has reduced some addiction-related criticisms of Facebook, but with its new Reels feature, it looks like the criticisms won't be gone for long.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Fake News
 
 ![fake-news-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/fake-news-2.jpg)
@@ -84,11 +80,19 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Its Impact on Mental Health
 
  One of the biggest problems with Facebook is its impact on mental health. The platform can be a breeding ground for negativity and comparison. When you're constantly seeing everyone's highlight reel, it's easy to forget that everyone has struggles and difficulties.
 
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Perceived Inaction on Hate Speech
 
@@ -99,10 +103,6 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
  Its role in the Myanmar genocide is a prime example of this. Several groups have accused the social media giant of not doing enough to stop the spread of hate speech and bigotry, which ultimately led to widespread violence in the region.
 
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Making Sense of It All
 
@@ -125,21 +125,22 @@ thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-art-of-online-recording/"><u>[New] 2024 Approved The Art of Online Recording</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-discover-8-leading-photo-grid-designers-online/"><u>[Updated] Discover 8 Leading Photo Grid Designers Online</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-diverse-world-of-uavs/"><u>[Updated] In 2024, The Diverse World of UAVs</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/blitz-photography-crafting-quick-google-collage-images-for-2024/"><u>Blitz Photography Crafting Quick Google Collage Images for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-unveiled-2023-without-a-second-oculus-quest-launch/"><u>Future Unveiled: 2023 Without a Second Oculus Quest Launch</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-tecno-spark-10-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Tecno Spark 10 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/is-it-feasible-to-operate-multiple-channels-on-youtube-at-once/"><u>Is It Feasible to Operate Multiple Channels on YouTube at Once?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-your-pathway-into-apple-expert-strategies-and-confidential-guide/"><u>Mastering Your Pathway Into Apple: Expert Strategies and Confidential Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-probe-whatsapp-legalizes-challenge-to-indian-legislation/"><u>Privacy Probe: WhatsApp Legalizes Challenge to Indian Legislation</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-id-credentials-at-meta/"><u>Social ID Credentials at Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-to-evaluate-your-news-consumption-patterns/"><u>Social Networks to Evaluate Your News Consumption Patterns</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-nubia-z50s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/transcending-limits-how-meta-aims-to-reshape-social-media-landscape/"><u>Transcending Limits: How 'Meta' Aims to Reshape Social Media Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-online-presence-into-a-money-machine-with-these-5-hacks/"><u>Transform Your Online Presence Into a Money Machine with These 5 Hacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-social-web-remove-insta-fb-links/"><u>Unraveling the Social Web: Remove Insta-FB Links</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723862830058-xiaomi-g34wqi-34-inch-180hz-monitor-unveiled-fantastic-graphics-contrast-and-budget-friendly-for-gaming-enthusiasts/"><u>Xiaomi G34WQi 34-Inch 180Hz Monitor Unveiled! Fantastic Graphics, Contrast & Budget-Friendly for Gaming Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elevate-engagement-boosting-marketing-on-telegram-platforms-for-2024/"><u>[New] Elevate Engagement Boosting Marketing on Telegram Platforms for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-enhancing-instagram-visibility-with-powerful-promotions-for-2024/"><u>[Updated] Enhancing Instagram Visibility with Powerful Promotions for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-apples-latest-airpods-pro-unveiling-key-enhancements-for-seamless-audio-experience/"><u>Comprehensive Guide: Apple's Latest AirPods Pro - Unveiling Key Enhancements for Seamless Audio Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-friendships-removing-someone-from-your-feed/"><u>Exiting Friendships: Removing Someone From Your Feed</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/explore-our-updated-top-10-best-fb-video-extractors-for-android-users-for-2024/"><u>Explore Our Updated Top 10 Best FB Video Extractors for Android Users for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-user-experience-layouts/"><u>Facebook Unveils Enhanced User Experience Layouts</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/guida-per-la-creazione-di-un-effettivo-backup-del-tuo-hard-disk-passaggi-essenziali/"><u>Guida per La Creazione Di Un Effettivo Backup Del Tuo Hard Disk: Passaggi Essenziali</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/investigating-the-practical-usefulness-of-photo-stabilization/"><u>Investigating the Practical Usefulness of Photo Stabilization</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-down-how-to-find-out-and-see-when-its-back-up/"><u>Is Facebook Down? How to Find Out and See When It's Back Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-overuse-facebook-advises-youngsters-for-insta-break/"><u>Prevent Overuse: Facebook Advises Youngsters for Insta Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151223653-raising-the-bar-for-online-privacy-facebook-adds-end-to-end-encryption-to-chat-services/"><u>Raising the Bar for Online Privacy: Facebook Adds End-to-End Encryption to Chat Services.</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-giants-iron-fisted-approach-to-combatting-false-claims/"><u>Social Giant's Iron-Fisted Approach to Combatting False Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-covert-elements-filtering-your-fb-timeline/"><u>The Covert Elements Filtering Your Fb Timeline</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-infinix-smart-7-hd-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Infinix Smart 7 HD Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-monitors-your-uploaded-imagery/"><u>Who Monitors Your Uploaded Imagery?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Infinix Smart 7 HD | Dr.fone</u></a></li>
 </ul></div>
 

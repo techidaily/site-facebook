@@ -1,7 +1,7 @@
 ---
 title: "Revising Profile Rules: Forward, No Backward to Faith or Politics"
-date: 2024-12-15T18:42:50.698Z
-updated: 2024-12-21T16:06:00.923Z
+date: 2024-12-19T00:44:09.725Z
+updated: 2024-12-22T05:04:42.592Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Remove Sensitive Information
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -75,22 +75,22 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-automatic-youtube-video-transition-tips-for-facebook-users/"><u>[New] 2024 Approved Automatic YouTube Video Transition Tips for Facebook Users</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-essential-xbox-external-drives-review-summary/"><u>[Updated] 2024 Approved Essential Xbox External Drives Review Summary</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-soundtrack-switch-up-effortlessly-moving-your-music-queue/"><u>[Updated] In 2024, Soundtrack Switch-Up Effortlessly Moving Your Music Queue</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-ultimate-guide-10-superior-vimeo-downloader-apps/"><u>[Updated] In 2024, Ultimate Guide 10 Superior Vimeo Downloader Apps</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/breaking-the-streak-code-proven-techniques/"><u>Breaking the Streak Code Proven Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/erosion-of-trust-in-technology-titans-especially-facebook/"><u>Erosion of Trust in Technology Titans, Especially Facebook</u></a></li>
-<li><a href="https://fox-info.techidaily.com/exclusive-content-delivery-assessment/"><u>Exclusive Content Delivery Assessment</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expertly-selected-spots-for-high-quality-smartphone-acquisitions/"><u>Expertly Selected Spots for High-Quality Smartphone Acquisitions</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exploring-artificial-intelligence-in-android-technology-a-deep-dive/"><u>Exploring Artificial Intelligence in Android Technology: A Deep Dive</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-platforms-sudden-disruptions/"><u>Exploring Platforms' Sudden Disruptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/fact-or-hype-rethinking-our-perceptions-about-facebook-documents/"><u>Fact or Hype? Rethinking Our Perceptions About Facebook Documents</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stay-incognito-evading-facebooks-eye/"><u>How to Stay Incognito: Evading Facebook’s Eye</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-step-by-step-soundtracking-tips-for-premiere-pro-editors/"><u>In 2024, Step-by-Step Soundtracking Tips for Premiere Pro Editors</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebooks-new-privacy-hub-a-must-know-guide/"><u>Mastering Facebook's New Privacy Hub: A Must-Know Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-vs-facebook-privacy-comparison-for-oculus-quest/"><u>Meta Vs. Facebook: Privacy Comparison for Oculus Quest</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-truth-insights-from-the-tech-industrys-leaks/"><u>Navigating Through Truth: Insights From the Tech Industry's Leaks</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-awaits-in-facebooks-news-feed-reels-and-rooms-for-stories/"><u>What Awaits in Facebook's News Feed? Reels & Rooms for Stories</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-direct-media-connect-photos-and-videos-from-pc-to-iphone-for-2024/"><u>[Updated] Direct Media Connect Photos & Videos From PC to iPhone for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-society-through-social-medias-top-7-impacts/"><u>Boosting Society Through Social Media's Top 7 Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-facebook-image-interpretation/"><u>Comprehensive Guide to Facebook Image Interpretation</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-overcoming-top-11-social-media-snags-on-fb/"><u>Comprehensive Guide to Overcoming Top 11 Social Media Snags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirm-your-credibility-with-us-metacredentials/"><u>Confirm Your Credibility with U.S. Metacredentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-devices-smartphone-and-television/"><u>Connecting Devices: Smartphone & Television</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-kings-discovering-todays-most-trending-digital-places/"><u>Connectivity Kings: Discovering Today's Most Trending Digital Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptic-compliments-concealing-your-facebook-like/"><u>Cryptic Compliments: Concealing Your Facebook Like</u></a></li>
+<li><a href="https://fox-links.techidaily.com/excellent-mkv-player-on-ios-android-for-2024/"><u>Excellent MKV Player on iOS, Android for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151405205-facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion.</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-camon-20-premier-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Camon 20 Premier 5GFRP Lock</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/teac-pd-301-reviewed-audiophiles-dream-in-style/"><u>Teac PD-301 Reviewed: Audiophile's Dream in Style</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ompreenas-guide-to-seamless-time-marking-in-youtube-videos-desktopmobile/"><u>The Compreenas Guide to Seamless Time Marking in YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-curious-case-of-gptbot-and-its-global-content-shadowing/"><u>The Curious Case of GPTBot & Its Global Content Shadowing</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-realme-narzo-n53-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Realme Narzo N53</u></a></li>
 </ul></div>
 

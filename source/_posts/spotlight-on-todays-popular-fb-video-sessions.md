@@ -1,7 +1,7 @@
 ---
 title: Spotlight on Today's Popular FB Video Sessions
-date: 2024-12-17T17:42:31.747Z
-updated: 2024-12-21T18:39:35.088Z
+date: 2024-12-16T01:38:14.243Z
+updated: 2024-12-22T06:20:24.742Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -39,6 +35,11 @@ thumbnail: https://thmb.techidaily.com/95c7607cc85834758f594e36f86b8274633568f32
 3. Click on the**three dots** and choose**Activity log** from the context menu.  
 ![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
 4. Select the**Videos you've watched** option.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
 That's it. Here you will find all the recently watched videos.
@@ -48,6 +49,10 @@ That's it. Here you will find all the recently watched videos.
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -59,7 +64,7 @@ That's it. Here you will find all the recently watched videos.
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
@@ -88,7 +93,7 @@ Close
  You'll now see all the videos you recently watched on your Facebook app.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on Android and iOS
@@ -98,7 +103,7 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
@@ -109,10 +114,6 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -133,18 +134,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-tailored-minecraft-filming-techniques-for-gamers/"><u>[New] Tailored Minecraft Filming Techniques for Gamers</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-crafting-compelling-ad-messages-a-3-phase-copywriting-guide-for-2024/"><u>[Updated] Crafting Compelling Ad Messages A 3 Phase Copywriting Guide for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-htc-u23-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/free-samsung-printer-drivers-download-install-on-windows/"><u>Free Samsung Printer Drivers Download: Install on Windows</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-chatgpt-can-transform-your-daily-schedule-discover-four-key-tips/"><u>How ChatGPT Can Transform Your Daily Schedule - Discover Four Key Tips!</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-there-a-risk-of-leaked-numbers-in-my-social-media-activity/"><u>Is There a Risk of Leaked Numbers in My Social Media Activity?</u></a></li>
-<li><a href="https://facebook.techidaily.com/purging-past-posts-a-social-media-detox-journey/"><u>Purging Past Posts: A Social Media Detox Journey</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722960625857-quick-guide-how-to-install-or-upgrade-synaptics-touchpad-drivers-on-windows/"><u>Quick Guide: How to Install or Upgrade Synaptics Touchpad Drivers on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/reimagined-social-texting-new-features-for-fbs-messaging-apps/"><u>Reimagined Social Texting: New Features for FB's Messaging Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/say-hi-to-your-new-verified-meta-profile/"><u>Say Hi to Your New, Verified Meta Profile</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/uncover-the-solution-how-to-restore-or-replace-a-lost-msvcr1-100-dll/"><u>Uncover the Solution: How to Restore or Replace a Lost MSVCR1 100 DLL</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-artist-payment-model-for-songs/"><u>Unveiling Facebook's Artist Payment Model for Songs</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-dell-g3-drivers-for-your-better-gaming-experience/"><u>Update Dell G3 Drivers For Your Better Gaming Experience</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-reviving-your-shows-heartbeat-saving-facebook-livestream-pauses/"><u>[New] 2024 Approved Reviving Your Show's Heartbeat Saving Facebook Livestream Pauses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-catapult-over-a-thousand-youtube-audience-members/"><u>[Updated] Catapult Over a Thousand YouTube Audience Members</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-comprehensive-guide-to-mastering-gopro-hero5-time-lapse/"><u>2024 Approved A Comprehensive Guide to Mastering GoPro Hero5 Time-Lapse</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-pixelperfect-editor/"><u>2024 Approved PixelPerfect Editor</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-of-marketplace-facebooks-advancement-in-business-promotion/"><u>A New Era of Marketplace: Facebook's Advancement in Business Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-success-leveraging-critical-business-metrics/"><u>Accelerate Success: Leveraging Critical Business Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-your-personal-data-like-phone-no-at-risk-from-facebook/"><u>Are Your Personal Data, Like Phone No., At Risk From Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-digital-dustbin-efficiently-erase-facebook-comments/"><u>Avoid Digital Dustbin: Efficiently Erase Facebook Comments</u></a></li>
+<li><a href="https://win-lab.techidaily.com/avoid-windows-memory-buffering-in-handling-massive-files-using-emeditor-text-editor/"><u>Avoid Windows' Memory Buffering in Handling Massive Files Using EmEditor Text Editor</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/bandicam-vs-camtasia-which-one-is-better-for-2024/"><u>Bandicam vs Camtasia, Which One Is Better for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beneath-the-surface-unseen-content-on-fb/"><u>Beneath the Surface: Unseen Content on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-engagement-and-growth-learn-to-create-top-quality-videos-on-the-social-giant-facebook/"><u>Boost Engagement and Growth: Learn to Create Top-Quality Videos on the Social Giant, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-barriers-the-future-of-us-antitrust-policy/"><u>Breaking Down Barriers: The Future of U.S. Antitrust Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/closing-the-door-on-public-to-your-fb-photos/"><u>Closing the Door on Public to Your Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-circles-hide-your-fb-connections/"><u>Covert Circles: Hide Your Fb Connections</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-essential-tweets-de-following-aids-the-ultimate-list/"><u>In 2024, Essential Tweets De-Following Aids The Ultimate List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-laugh-loom-imgur-memomaker/"><u>In 2024, Laugh Loom Imgur MemoMaker</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-honor-magic-6-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Honor Magic 6 Black and White | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/why-wont-my-iphone-touchscreen-respond-explore-these-7-reasons/"><u>Why Won't My iPhone Touchscreen Respond? Explore These 7 Reasons</u></a></li>
 </ul></div>
 

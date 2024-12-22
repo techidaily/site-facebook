@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-12-18T18:52:54.789Z
-updated: 2024-12-21T18:11:59.654Z
+date: 2024-12-18T19:25:34.743Z
+updated: 2024-12-21T19:48:00.919Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,22 +67,19 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ideo-constructor-suite-for-2024/"><u>[New] Video Constructor Suite for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-decoding-the-secrets-of-successful-haul-video-edits-for-2024/"><u>[Updated] Decoding the Secrets of Successful Haul Video Edits for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-guide-to-overcoming-mobile-video-sending-problems-in-fb-chat-for-2024/"><u>[Updated] Guide to Overcoming Mobile Video Sending Problems in FB Chat for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-tips-for-optimizing-tiktok-video-sharing-on-zoom/"><u>2024 Approved Tips for Optimizing TikTok Video Sharing on Zoom</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/decoding-dimensions-the-key-to-perfect-aspect-ratios-in-video/"><u>Decoding Dimensions The Key to Perfect Aspect Ratios in Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-content-governance-an-examination-of-its-panel/"><u>Facebook's Content Governance: An Examination of Its Panel</u></a></li>
-<li><a href="https://facebook.techidaily.com/fear-the-rise-of-meta-in-digital-spaces/"><u>Fear the Rise of Meta in Digital Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-ios-145-could-pave-the-way-to-a-privacy-revolution/"><u>How iOS 14.5 Could Pave the Way to a Privacy Revolution</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-spark-20-pro-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Spark 20 Pro Is Unlocked</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo X Flip? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-realme-c53-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Realme C53 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovating-speed-why-meta-is-building-a-lightning-fast-ai-giant/"><u>Innovating Speed: Why Meta Is Building a Lightning-Fast AI Giant</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/lenovo-unveils-upgraded-2-in-1-thinkpad-with-superior-feature-for-power-users-expert-review-awaits/"><u>Lenovo Unveils Upgraded 2-in-1 ThinkPad with Superior Feature for Power Users, Expert Review Awaits!</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-governance-appropriate-ban-of-trump-but-with-a-time-frame/"><u>Network Governance: Appropriate Ban of Trump but with a Time Frame</u></a></li>
-<li><a href="https://facebook.techidaily.com/reasons-behind-upcoming-instagram-thread-cessation/"><u>Reasons Behind Upcoming Instagram Thread Cessation</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-multi-platform-support-confirmed-by-zuckerberg/"><u>WhatsApp Multi-Platform Support Confirmed by Zuckerberg</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-facebook-whatsapp-and-instagram-go-down/"><u>Why Did Facebook, WhatsApp, and Instagram Go Down?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-impeccablecapture-studio-suite-windows-10-edition/"><u>[New] ImpeccableCapture Studio Suite (Windows 10 Edition)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-mastering-aiseesofts-capture-tech-screen-recording-basics-for-2024/"><u>[New] Mastering Aiseesoft's Capture Tech Screen Recording Basics for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-luminous-android-video-editing-hacks/"><u>[Updated] 2024 Approved Luminous Android Video Editing Hacks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/beginner-friendly-cyberghost-vpn-unveiled-is-it-worth-your-money-expert-insights-pcmag/"><u>Beginner-Friendly CyberGhost VPN Unveiled: Is It Worth Your Money? Expert Insights | PCMag</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them!</u></a></li>
+<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-sleep-mode-the-key-to-efficient-messenger-kids-use/"><u>Dive Into Sleep Mode: The Key to Efficient Messenger Kids Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-best-of-2022-a-podcast-round-up-review/"><u>Exploring the Best of 2022 - A Podcast Round-Up Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-era-personalizing-content-for-your-preferences/"><u>Facebook's New Era: Personalizing Content for Your Preferences</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-moto-g14-frp-by-drfone-android/"><u>How Can We Bypass Motorola Moto G14 FRP?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-definitive-guide-to-efficient-screen-recording-on-an-hp-notebook/"><u>In 2024, The Definitive Guide to Efficient Screen Recording on an HP Notebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-iphone-11-pro-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From iPhone 11 Pro</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-recording-flawless-minecraft-sessions-with-optimal-video-quality/"><u>Step-by-Step Tutorial: Recording Flawless Minecraft Sessions with Optimal Video Quality</u></a></li>
 </ul></div>
 

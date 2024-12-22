@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2024-12-17T16:17:09.952Z
-updated: 2024-12-21T19:32:09.315Z
+date: 2024-12-18T02:41:14.113Z
+updated: 2024-12-22T01:21:43.330Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
@@ -38,17 +34,25 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -61,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -88,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -99,16 +103,12 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -143,17 +143,20 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-superior-non-zoom-virtual-meeting-options-for-pcs-and-smartphones/"><u>[New] Superior Non-Zoom Virtual Meeting Options for PCs & Smartphones</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-mac-studios-for-top-quality-recordings/"><u>[Updated] Mac Studios for Top-Quality Recordings</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209881999-9781948979191-daily-medicine/"><u>Daily Medicine | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/erasing-regretful-tweets-ultimate-removal-guide/"><u>Erasing Regretful Tweets: Ultimate Removal Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-audio-tools-now-on-facebooks-horizon/"><u>Innovative Audio Tools Now on Facebook's Horizon</u></a></li>
-<li><a href="https://win-answers.techidaily.com/navigating-and-resolving-fatal-issues-within-the-unreal-engine-for-tales-of-arise/"><u>Navigating and Resolving Fatal Issues Within the Unreal Engine for 'Tales of Arise'</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-initiate-a-facebook-based-forum/"><u>Steps to Initiate a Facebook-Based Forum</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/sync-up-songs-and-screenshots-on-snapchat-for-2024/"><u>Sync-Up Songs and Screenshots on Snapchat for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/683718-9780307957733-the-prophet/"><u>The Prophet | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-smart-approach-to-decreasing-digital-clutter/"><u>The Smart Approach to Decreasing Digital Clutter</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-should-celebrate-connectivity-9-blessings-of-being-social/"><u>Why You Should Celebrate Connectivity: 9 Blessings of Being Social</u></a></li>
-<li><a href="https://win-bits.techidaily.com/windows-11-updates-handhabung-verlorener-dateien-ohne-panik-mit-tipps-und-tricks-von-sorgenfrei/"><u>Windows 11 Updates - Handhabung Verlorener Dateien Ohne Panik Mit Tipps Und Tricks Von Sorgenfrei</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rafting-compelling-youtube-profile-definitions-for-2024/"><u>[New] Crafting Compelling YouTube Profile Definitions for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-fbx-filming-made-simple-a-step-by-step-approach-for-2024/"><u>[Updated] FBX Filming Made Simple A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-artisans-approach-to-gathering-stock-visuals-for-use/"><u>[Updated] The Artisan's Approach to Gathering Stock Visuals for Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-facebook-marketplace-scams-and-how-to-avoid-them/"><u>5 Facebook Marketplace Scams and How to Avoid Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-social-media-content-calendar-tools-for-scheduling-posts/"><u>8 Social Media Content Calendar Tools for Scheduling Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/activating-and-benefitting-from-the-sleep-mode-on-messenger-kids/"><u>Activating and Benefitting From the Sleep Mode on Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcast-on-instagram-visuals-and-sounds-optional/"><u>Broadcast on Instagram: Visuals & Sounds Optional</u></a></li>
+<li><a href="https://facebook.techidaily.com/chasing-success-fb-commits-5m-to-challenge-substacks-journalist-community/"><u>Chasing Success: FB Commits $5M to Challenge Substack’s Journalist Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/combatting-online-fraud-action-needed-from-facebook-and-google/"><u>Combatting Online Fraud: Action Needed From Facebook & Google</u></a></li>
+<li><a href="https://techtrends.techidaily.com/conversion-gratuite-de-fichiers-avi-en-flv-en-ligne-avec-movavi/"><u>Conversion Gratuite De Fichiers AVI en FLV en Ligne Avec Movavi</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722998621526-how-to-fix-days-gone-when-it-wont-start-on-your-computer-solutions-inside/"><u>How To Fix 'Days Gone' When It Won't Start on Your Computer - Solutions Inside</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-itel-p55-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Itel P55 5G Devices</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-streamlining-your-profile-alter-name-in-google-meet/"><u>In 2024, Streamlining Your Profile Alter Name in Google Meet</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hoices-excellent-youtubers-screen-recording-tools-for-2024/"><u>Top Choices Excellent YouTubers' Screen Recording Tools for 2024</u></a></li>
 </ul></div>
 

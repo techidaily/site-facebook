@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2024-12-18T19:05:57.905Z
-updated: 2024-12-21T19:49:56.477Z
+date: 2024-12-20T21:33:49.802Z
+updated: 2024-12-21T19:01:06.505Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,25 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -49,7 +57,7 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
@@ -57,7 +65,7 @@ Close
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -69,10 +77,6 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -80,10 +84,6 @@ Close
  For example, if they try to search for your profile on Facebook and can't find it, that's a pretty good indication you've blocked them. Additionally, they will no longer be able to see any of your posts or profile information. They'll also not be able to tag you in posts or send you messages on Facebook.
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
 
@@ -104,20 +104,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-beginning-with-adobe-audition-the-fading-start/"><u>[New] Beginning with Adobe Audition The Fading Start</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-pathways-to-accumulate-free-photo-frame-media/"><u>[New] Pathways to Accumulate Free Photo Frame Media</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-xiaomi-13t-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Xiaomi 13T without App | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/best-htc-u23-pro-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best HTC U23 Pro Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-messages-remain-unsecured-wait-until-2022/"><u>Facebook & Instagram Messages Remain Unsecured - Wait Until 2022</u></a></li>
-<li><a href="https://facebook.techidaily.com/free-tricks-to-enhance-your-facebook-schedules-efficiency/"><u>Free Tricks to Enhance Your Facebook Schedule's Efficiency</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uch-can-you-earn-on-youtube-via-ad-revenue-in-2024/"><u>How Much Can You Earn on YouTube via Ad Revenue, In 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-facebook-vids-to-mp3-easy-and-fast/"><u>In 2024, Transform Your Facebook Vids to MP3 - Easy & Fast</u></a></li>
-<li><a href="https://facebook.techidaily.com/lawsuit-trump-alleges-unjust-censorship-by-social-media-companies/"><u>Lawsuit: Trump Alleges Unjust Censorship by Social Media Companies</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-friends-coordinates-via-fb-chat/"><u>Navigate Friend's Coordinates via FB Chat</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-guide-to-mending-directdraw-glitches-in-11-series-oses/"><u>Quick Guide to Mending DirectDraw Glitches in 11-Series OSes</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-leaders-to-address-scam-ad-proliferation-more-effectively/"><u>Tech Leaders to Address Scam Ad Proliferation More Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/unplugging-from-social-media-heres-your-top-10-facebook-free-reasons/"><u>Unplugging From Social Media? Here's Your Top 10 Facebook-Free Reasons</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-limiting-screen-time-can-lead-to-better-relationships-and-self-esteem/"><u>Why Limiting Screen Time Can Lead to Better Relationships and Self-Esteem</u></a></li>
-<li><a href="https://blog-min.techidaily.com/windows2/"><u>Windowsのディスプレイ録画テクニック：新しい2択アプローチ</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-data-deluge-infographics-on-youtubes-intriguing-insights/"><u>[New] In 2024, Data Deluge Infographics on YouTube's Intriguing Insights</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-mastering-overwatch-video-preservation-techniques/"><u>[New] In 2024, Mastering Overwatch Video Preservation Techniques</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-solo-mastery-how-to-turn-off-apex-legends-cross-play-feature/"><u>[New] In 2024, Solo Mastery How to Turn Off Apex Legends' Cross-Play Feature</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pioneering-design-discover-the-best-software-for-vectors/"><u>2024 Approved Pioneering Design Discover the Best Software for Vectors</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-ways-facebook-is-giving-you-more-control-over-your-news-feed/"><u>3 Ways Facebook Is Giving You More Control Over Your News Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-ways-to-customize-your-facebook-feed/"><u>4 Ways to Customize Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150184377-alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-boundaries-metamating-at-facebook/"><u>Breaking Boundaries: Metamating at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/buy-in-to-obtain-metas-paid-verification-badge/"><u>Buy-In to Obtain Meta's Paid Verification Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/contemplating-the-impact-of-ditching-your-networked-life/"><u>Contemplating the Impact of Ditching Your Networked Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-online-world-with-simplified-fb-settings/"><u>Crafting Your Online World with Simplified FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-points-to-land-freelance-employment/"><u>Critical Points to Land Freelance Employment</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-the-high-fidelity-world-of-samsungs-4k-s8/"><u>Exploring the High-Fidelity World of Samsung's 4K S8</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-60-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo 60 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-iphone-15-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud From your iPhone 15</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/utionize-marketing-top-tools-for-perfectly-timed-video-tags-for-2024/"><u>Revolutionize Marketing Top Tools for Perfectly Timed Video Tags for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/top-7-action-and-sports-cameras-under-200/"><u>Top 7 Action and Sports Cameras Under $200</u></a></li>
 </ul></div>
 

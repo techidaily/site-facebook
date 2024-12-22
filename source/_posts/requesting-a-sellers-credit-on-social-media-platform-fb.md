@@ -1,7 +1,7 @@
 ---
 title: Requesting a Seller's Credit on Social Media Platform FB
-date: 2024-08-23T02:15:11.768Z
-updated: 2024-08-24T02:15:11.768Z
+date: 2024-12-17T06:02:21.503Z
+updated: 2024-12-21T20:01:43.611Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d9
  Unfortunately, the Facebook payment refund process isn't always easy to understand. How you go about getting your money back depends on what avenue you used to make your purchase.
 
  Let's take a closer look at Facebook Messenger refunds, Facebook Marketplace refunds, and more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Messenger Payment Refunds
 
@@ -50,8 +54,9 @@ thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d9
 6. Hit**Send** .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Refunds for Facebook Games and In-App Purchases
 
  If you've paid for a game or an in-game item, you first need to be aware that it can take up to four hours for your item to be delivered to your account.
@@ -65,17 +70,14 @@ If you want a refund, follow these steps:
 
  You can always refund game charges purchased on your account by someone under the age of 18 or if you notice unidentified charges on your account.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## Facebook Marketplace Returns Policy
 
 ![facebook responsible marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-responsible-marketplace.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Broadly speaking, Facebook takes no responsibility for the items sold in its Marketplace. The web is littered with stories from people who have received a defective item, only for the seller to delete the listing and remove all traces of the transaction. It is very much a case of "buyer beware".
 
  That said, there is one situation in which Facebook might issue a Marketplace refund—if you used the onsite checkout feature. If you have, your item is covered under[Facebook's Purchase Protection Policy](https://www.facebook.com/policies/purchase%5Fprotection) . Facebook doesn't offer onsite checkout for all Marketplace items, nor is onsite checkout available in all countries.
@@ -84,9 +86,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Anecdotally, some buyers also appear to have had some success in getting Marketplace refunds if they used PayPal to send the money. Refer to PayPal's terms for more information.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Facebook Group Purchases
 
  If you bought something in a specially designated "Buy and Sell Group", you are not covered by Facebook. The company cannot issue you a refund.
@@ -94,10 +93,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The decision to issue a refund lies directly with the seller. As such, make sure you do due diligence before committing to any purchase.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Get Refunds on Other Apps
 
  Getting a refund for an online purchase can be a tricky process. Unsurprisingly, companies are normally less-than-willing to hand back money once they've got it.
@@ -107,22 +105,20 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  And remember, never send any money unless you have done as much due diligence as possible.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Stay Safe When Buying on Facebook
 
  Given Facebook's massive user base, it is unsurprising that many scams and fake listings exist. If you are buying from a third-party, stick to people with good reputations in large groups.
 
  And remember, if you need to collect a purchase in person, make sure you do so in a public place during daylight hours.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +127,18 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-smilesketcher-generate-memes-with-a-click/"><u>[Updated] 2024 Approved SmileSketcher Generate Memes with a Click</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-artisans-guide-to-picture-in-picture-videos-on-macos-systems/"><u>[Updated] In 2024, The Artisan's Guide to Picture in Picture Videos on macOS Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-snapshots-on-social-infinite/"><u>Are Snapshots on Social Infinite?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/determining-your-pcs-eligibility-essential-minimum-and-recommended-specs-for-playing-fortnite/"><u>Determining Your PC's Eligibility: Essential Minimum and Recommended Specs for Playing Fortnite</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-insight-into-quadcopters-functionality-uncovered/"><u>In 2024, Insight Into Quadcopters Functionality Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-venues-for-questing-freelancing-roles/"><u>Leading Venues for Questing Freelancing Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-a-new-chapter-for-nfts-on-instafb/"><u>Meta Drops: A New Chapter for NFTs on Insta/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-twelve-spreading-misinformation-about-covid/"><u>The Top Twelve Spreading Misinformation About COVID</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/top-8-digital-audio-workstations-daws-on-pc-compatible-with-windows-10-and-7-free-and-paid-options/"><u>Top 8 Digital Audio Workstations (DAWs) on PC Compatible with Windows 10 & 7, Free and Paid Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-photodna-a-comparative-analysis-tool/"><u>Unveiling PhotoDNA: A Comparative Analysis Tool</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-build-1607-installation-errors-and-how-to-fix-them/"><u>Windows 11 Build 1607 Installation Errors and How to Fix Them</u></a></li>
+</ul></div>
 

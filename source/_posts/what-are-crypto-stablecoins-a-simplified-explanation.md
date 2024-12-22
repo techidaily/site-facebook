@@ -1,7 +1,7 @@
 ---
 title: What Are Crypto Stablecoins? A Simplified Explanation
-date: 2024-12-18T16:18:25.262Z
-updated: 2024-12-21T18:47:22.468Z
+date: 2024-12-17T17:13:43.217Z
+updated: 2024-12-22T05:15:37.936Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are Stablecoins?
 
  This may surprise you, but cryptocurrencies were conceived to be used as currencies. Right now, people speculate on their notoriously volatile prices more than they use these digital assets to buy and sell goods and services, but it's not supposed to be that way.
@@ -38,6 +42,10 @@ That's where stablecoins come in.
 
  Stablecoins are blockchain-based digital currencies just like Bitcoin or Ethereum, but they are designed to maintain a consistent price over time, usually by being pegged to the value of another currency or being backed by a trusted agency.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do Stablecoins Work?
 
  Volatility aside, there are a number of great use cases for cryptocurrencies. These include greater transaction transparency, security, and the potential privacy of users.
@@ -47,10 +55,6 @@ That's where stablecoins come in.
  Stablecoins try to maintain these benefits and bring benefits of their own, which we'll get into in a moment. However, stablecoins do this without bringing along all of the price volatility that makes other cryptocurrencies difficult and intimidating to use in regular transactions.
 
 ![Tether logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/Tether_full_logo_dm.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image Credit: Tether
 
@@ -62,10 +66,6 @@ Image Credit: Tether
 
  Facebook's proposed Diem stablecoin (formerly Libra) would get around this issue in part by being backed by a basket of reserve currencies from around the world. If one or even a few of these assets experienced price instability, it would be checked by the stability of the other assets. That would allow Diem to maintain a more stable price than any individual asset backing the coin.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### CBDCs Are a Subset of Stablecoins
 
  When a government launches its own stablecoin, this class of stablecoin is called a "central bank digital currency" or "CBDC" for short. Right now, China is the only country with a CBDC, though India, the United Kingdom, the United States, and other countries have publicly considered the idea.
@@ -73,12 +73,16 @@ Image Credit: Tether
  While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Stablecoin Examples and Use Cases
 
  The benefits of using a stable coin often depend on the coin as well as who issues it. There are several stablecoins already out there, including those that have already been discussed in this article. However, some proposed stablecoins could offer even more utility in the future.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### CBDCs Could Help Governments Regulate and Issue Currency
 
@@ -91,7 +95,7 @@ Image Credit: Tether
 ![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
@@ -105,10 +109,6 @@ Image Credit: Tether
  However, the price volatility of most cryptocurrencies makes them difficult for vendors to accept. That is, without transferring currency back and forth from cryptocurrencies to conventional currencies. This method works but eliminates much of the utility of accepting cryptocurrency payments in the first place.
 
  Stablecoins can allow vendors to accept payments in cryptocurrency for international online transactions without the need to account for price volatility or the hassle of transferring funds from one currency to another.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is a Stablecoin the Coin for You?
 
@@ -129,19 +129,16 @@ Image Credit: Tether
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-becoming-a-wise-trader-top-video-tutorials/"><u>[New] In 2024, Becoming a Wise Trader Top Video Tutorials</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-quick-tips-screen-recording-made-simple-for-mac-users-for-2024/"><u>[New] Quick Tips Screen Recording Made Simple for Mac Users for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-easy-way-to-snap-spectacular-slow-mo-on-android/"><u>[New] The Easy Way to Snap Spectacular Slow Mo on Android</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ltimate-list-free-best-ios-video-editor-tools-for-2024/"><u>[New] Ultimate List Free, Best iOS Video Editor Tools for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-simple-steps-for-clear-ipad-recordings/"><u>[Updated] In 2024, Simple Steps for Clear iPad Recordings</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/cutting-edge-techniques-for-backdrop-acquisition/"><u>Cutting-Edge Techniques for Backdrop Acquisition</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-your-online-presence-with-picture-perfection/"><u>Enhance Your Online Presence with Picture Perfection</u></a></li>
-<li><a href="https://facebook.techidaily.com/erect-barricades-around-your-social-media-snaps/"><u>Erect Barricades Around Your Social Media Snaps</u></a></li>
-<li><a href="https://facebook.techidaily.com/freedom-from-distasteful-digital-marketing-on-facebook/"><u>Freedom From Distasteful Digital Marketing on Facebook</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-tech-essentials-expert-advice-from-toms-computer-and-peripherals-rundown/"><u>Mastering Tech Essentials - Expert Advice From Tom's Computer and Peripherals Rundown</u></a></li>
-<li><a href="https://facebook.techidaily.com/react-right-actions-to-take-when-facing-a-fb-hack/"><u>React Right: Actions to Take When Facing a FB Hack</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-modern-mantle-elevating-your-groups-on-facebook-with-updated-tools/"><u>The Modern Mantle: Elevating Your Groups on Facebook with Updated Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/web-funnies-forge/"><u>Web Funnies Forge</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-a-step-by-step-approach-to-assembling-picture-panoramas/"><u>[New] A Step-by-Step Approach to Assembling Picture Panoramas</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-visionary-the-ultimate-reddit-marketing-blueprint/"><u>[New] From Novice to Visionary The Ultimate Reddit Marketing Blueprint</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-discover-the-magic-of-jujutsu-kaisen-with-tiktok-videos/"><u>[Updated] Discover the Magic of Jujutsu Kaisen with TikTok Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youthful-wealth-wonders-a-look-at-ryans-online-riches/"><u>[Updated] In 2024, Youthful Wealth Wonders A Look at Ryan's Online Riches</u></a></li>
+<li><a href="https://facebook.techidaily.com/advocates-push-for-better-scam-ad-detection-systems-in-social-networks/"><u>Advocates Push for Better Scam Ad Detection Systems in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-networks-delving-into-the-digital-reality-of-fbs-metaverse/"><u>Beyond Social Networks: Delving Into the Digital Reality of FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-group-wide-emoticon-tags-everyone/"><u>Block Group-Wide Emoticon Tags (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-deleted-instagram-posts-resurface/"><u>Can Deleted Instagram Posts Resurface?</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-strangers-find-my-phone-number-via-facebook/"><u>Can Strangers Find My Phone Number via Facebook?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/internet-explorer-display-troubles-resolved-techniques-and-tips/"><u>Internet Explorer Display Troubles - Resolved Techniques and Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/unleashing-hidden-media-from-your-connected-friends-for-2024/"><u>Unleashing Hidden Media From Your Connected Friends for 2024</u></a></li>
 </ul></div>
 

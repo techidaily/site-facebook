@@ -1,7 +1,7 @@
 ---
 title: "From Silicon to Supercomputing: Meta's Epic Sprint"
-date: 2024-08-23T02:12:07.646Z
-updated: 2024-08-24T02:12:07.646Z
+date: 2024-12-20T23:35:14.343Z
+updated: 2024-12-21T19:57:08.086Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
 
  Meta has announced that it is building the world's fastest AI supercomputer, which will aid its plans to build the metaverse. But why exactly is Meta Building the fastest AI supercomputer in the world? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Meta Announces AI Supercomputer
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta has announced an AI supercomputer called "the AI Research SuperCluster" (RSC).
 
@@ -37,9 +45,17 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
 
  Read more:[The Facebook Metaverse, Explained (And Why You Should Care)](https://www.makeuseof.com/facebook-metaverse-explained/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Meta Is Building the Fastest AI Supercomputer in the World
 
 ![A man typing on a computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/pexels-eduardo-dutra-2115217.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We've established that Meta's AI supercomputer is the virtual groundwork for building its ultimate metaverse. Now let's look at why Meta is building the fastest AI supercomputer in the world, starting with the context for the RSC.
 
@@ -58,22 +74,20 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
  Meta believes this is the first time the company is tackling performance, reliability, security, and privacy at such a scale.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is Betting Big on the Metaverse
 
  Meta's founder Mark Zuckerberg has talked extensively about his vision and plans for the metaverse. The more he shares those plans, the more excited we are to see how they'll turn out.
 
  Meta's announcement of its AI supercomputer is just one more piece of information that makes the picture clearer in our heads—it's another way the company is showing its continued commitment to making the metaverse a reality.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,4 +96,19 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-advanced-conferencing-tech-for-businesses/"><u>[New] In 2024, Advanced Conferencing Tech for Businesses</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-ultimate-fb-media-downloader-optimized-for-firefox-use/"><u>[New] In 2024, Ultimate FB Media Downloader Optimized for Firefox Use</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-clearing-up-black-screens-in-youtube-playback-for-2024/"><u>[Updated] Clearing Up Black Screens in YouTube Playback for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-vivo-x100-pro-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Vivo X100 Pro by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-writing-and-publishing-on-facebook-multi-lang/"><u>Best Practices for Writing and Publishing on Facebook (Multi-Lang)</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-facebook-own-the-metaverse-7-metaverse-myths-busted/"><u>Does Facebook Own the Metaverse? 7 Metaverse Myths Busted</u></a></li>
+<li><a href="https://win-bits.techidaily.com/grosstenteils-kostenlose-software-zum-kopieren-von-systempartitionen-unter-windows-11-best-practices/"><u>Größtenteils Kostenlose Software Zum Kopieren Von Systempartitionen Unter Windows 11 - Best Practices</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigate-the-latest-in-computing-with-toms-hardware-analysis/"><u>Navigate the Latest in Computing with Tom's Hardware Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reason-behind-my-fb-ad-curated-list/"><u>The Reason Behind My FB Ad Curated List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-sharing-3d-facebook-photos/"><u>The Ultimate Guide to Sharing 3D Facebook Photos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tips-for-integrating-supplemental-film-content/"><u>Tips for Integrating Supplemental Film Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/word-visualization-via-imagery-and-text-style-innovation/"><u>Word Visualization via Imagery and Text Style Innovation</u></a></li>
+</ul></div>
 

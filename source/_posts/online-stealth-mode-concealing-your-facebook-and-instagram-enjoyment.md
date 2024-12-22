@@ -1,7 +1,7 @@
 ---
 title: "Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment"
-date: 2024-12-18T19:01:33.684Z
-updated: 2024-12-21T18:41:22.604Z
+date: 2024-12-18T20:06:10.949Z
+updated: 2024-12-22T06:26:37.955Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,17 +58,17 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-the-ultimate-checklist-for-capturing-live-conversations/"><u>[New] 2024 Approved The Ultimate Checklist for Capturing Live Conversations</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-enhance-your-digital-diaries-for-free-extensions-and-mobile-edition/"><u>[New] Enhance Your Digital Diaries for Free – Extensions & Mobile Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-dial-up-beats-easy-audio-posting-to-youtubes/"><u>[Updated] 2024 Approved Dial-Up Beats Easy Audio Posting to YouTubes</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-build-a-custom-facebook-coverage/"><u>2024 Approved Build a Custom Facebook Coverage</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quick-collage-insights-for-instagram-success/"><u>2024 Approved Quick Collage Insights for Instagram Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/instafb-embraces-meta-drops-nfts-for-limited-testing-period/"><u>Insta/FB Embraces Meta Drops NFTs for Limited Testing Period</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/quick-fix-for-paused-facebook-livestreams-2023s-tips-and-tricks/"><u>Quick Fix for Paused Facebook Livestreams, 2023'S Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-childrens-online-space-in-messenger-kids-app/"><u>Securing Children's Online Space in Messenger Kids App</u></a></li>
-<li><a href="https://facebook.techidaily.com/tackling-the-mystery-of-sudden-facebook-profile-hibernation/"><u>Tackling the Mystery of Sudden Facebook Profile Hibernation</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-case-for-second-life-in-the-dawn-of-the-metaverse-era/"><u>The Case For Second Life in the Dawn of The Metaverse Era?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-how-to-fix-minecraft-updater-issues-and-successfully-refresh-your-game/"><u>Troubleshooting: How to Fix 'Minecraft Updater' Issues & Successfully Refresh Your Game</u></a></li>
-<li><a href="https://driver-download.techidaily.com/z270-gaming-mastery-secure-your-z270-carbon-drivers-today/"><u>Z270 Gaming Mastery: Secure Your Z270 Carbon Drivers Today!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-testing-titans-in-depth-comparison-of-gopros-hero5b-and-session/"><u>[New] Testing Titans In-Depth Comparison of GoPro's Hero5B & Session</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-enhancing-gaming-the-ultimate-xbox-screen-recorders-guide-for-2024/"><u>[Updated] Enhancing Gaming The Ultimate Xbox Screen Recorder's Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-defeating-darkness-in-youtube-videos/"><u>[Updated] In 2024, Defeating Darkness in Youtube Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-school-without-edgenuity-videos/"><u>[Updated] Mastering School Without Edgenuity Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-starter-guide-8-easy-youtube-money-makers/"><u>[Updated] Starter Guide 8 Easy YouTube Money-Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-key-planning-tools-to-master-your-content-calendar/"><u>5 Key Planning Tools to Master Your Content Calendar</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deeper-dive-into-personalized-advertising-facebooks-newsfeed-update/"><u>A Deeper Dive Into Personalized Advertising: Facebook's Newsfeed Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/baffling-befrienders-hide-your-list-precision/"><u>Baffling Befrienders: Hide Your List Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-networks-grasping-the-essence-of-facebooks-virtual-world/"><u>Beyond Networks: Grasping the Essence of Facebook’s Virtual World</u></a></li>
+<li><a href="https://fox-info.techidaily.com/spectrumstreams-2024-worldwide-selection-at-fingertips/"><u>SpectrumStreams 2024 Worldwide Selection at Fingertips</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-metas-artificial-intelligence-an-in-depth-guide/"><u>Understanding Meta's Artificial Intelligence: An In-Depth Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154016371-unintentional-sharing-of-numbers-on-social-media-alert/"><u>Unintentional Sharing of Numbers on Social Media Alert</u></a></li>
 </ul></div>
 

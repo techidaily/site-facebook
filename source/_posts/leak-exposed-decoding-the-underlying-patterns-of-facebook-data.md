@@ -1,7 +1,7 @@
 ---
 title: "Leak Exposed: Decoding the Underlying Patterns of Facebook Data"
-date: 2024-08-23T02:10:29.130Z
-updated: 2024-08-24T02:10:29.130Z
+date: 2024-12-20T04:17:22.874Z
+updated: 2024-12-21T21:01:56.254Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,19 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7 Key Revelations From the Facebook Papers
 
@@ -43,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -59,8 +64,24 @@ thumbnail: https://thmb.techidaily.com/02545b46a0f89851cd200be4f89aa4a5cf07cac66
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-obs-for-a-clearer-better-live-stream-to-youtube/"><u>[New] OBS for a Clearer, Better Live Stream to YouTube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-sleep-well-with-asmr-techniques-and-tips/"><u>[Updated] 2024 Approved Sleep Well with ASMR Techniques and Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-build-high-impact-facebook-ad-videos-free-creation-kit-provides-tools/"><u>[Updated] Build High-Impact Facebook Ad Videos - FREE Creation Kit Provides Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-easy-effective-and-economical-our-pick-of-the-best-free-passport-pics-maker/"><u>[Updated] In 2024, Easy, Effective & Economical Our Pick of the Best Free Passport Pics Maker</u></a></li>
+<li><a href="https://fox-that.techidaily.com/beat-iphones-error-4013-fixing-updaterestore-problems-in-easy-steps/"><u>Beat iPhone's Error 4013: Fixing Update/Restore Problems in Easy Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-second-life-make-a-comeback-as-we-head-into-the-metaverse/"><u>Could Second Life Make a Comeback as We Head Into the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-yourself-beyond-the-likes-and-loyalty-to-facebook/"><u>Discover Yourself Beyond the Likes and Loyalty to Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/efficiently-coordinating-group-activities-via-zoom-for-2024/"><u>Efficiently Coordinating Group Activities via Zoom for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messenger-a-fortress-of-privacy/"><u>Is FB Messenger a Fortress of Privacy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-breaks-in-life-facebooks-timing-assistance/"><u>Optimizing Breaks in Life: Facebook’s Timing Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-time-warning-for-hidden-screen-captures/"><u>Real-Time Warning for Hidden Screen Captures</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-to-repair-the-http-500-internal-server-issue/"><u>Step-by-Step Guide to Repair the HTTP 500 Internal Server Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolving-lands-marketplace-facebook-edition/"><u>The Evolving Lands Marketplace: Facebook Edition</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-x8b-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150176344-watch-for-verdict-facebook-board-to-decide-on-presidential-block/"><u>Watch For Verdict: Facebook Board to Decide on Presidential Block.</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->

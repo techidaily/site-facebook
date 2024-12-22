@@ -1,7 +1,7 @@
 ---
 title: Masked Engagement for Discreet Facebook Groups
-date: 2024-08-23T02:11:37.747Z
-updated: 2024-08-24T02:11:37.747Z
+date: 2024-12-19T01:28:55.103Z
+updated: 2024-12-21T20:45:46.943Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,19 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 
  Here’s all you need to know about anonymous posting, along with a walkthrough for using it in a Facebook group.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Brief Background on Anonymous Group Posts
 
  In June 2020, [Facebook](https://www.facebook.com/community/whats-new/new-parenting-group-type/) announced the introduction of a new group type for parents in its community. It came with some features, one of which was the ability to share anonymous group posts.
 
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Post Anonymously in a Facebook Group
 
@@ -32,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b71
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
 
 ![create an anonymous post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -48,8 +60,9 @@ Close
 **Note:** This feature is only available in groups set as parenting groups.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What You Need to Know About Anonymous Posts
 
  All anonymous posts are subject to approval by admins, even if post approval is turned off on the group. This is understandable, as it helps keep spammers at bay.
@@ -61,8 +74,9 @@ Close
  Some post formats are disabled for anonymous posts to protect you from accidentally exposing your identity. You can’t go live or tag people in the Anonymous Post interface.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Now You Know How to Share an Anonymous Post on Facebook
 
  Posting anonymously in a Facebook group is an effective way to share information and express opinions, without revealing your identity to group members.
@@ -71,14 +85,11 @@ Close
 
  You can think of it as an effective way to get your voice heard, but without the pressure of being seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,4 +98,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-dissecting-the-huawei-p10s-battery-life-and-efficiency/"><u>[New] In 2024, Dissecting the Huawei P10’s Battery Life & Efficiency</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/apple-ipad-102-inch-8th-generation-review-apples-most-affordable-ipad-is-better-than-ever/"><u>Apple iPad 10.2-Inch (8Th Generation) Review: Apple’s Most Affordable iPad Is Better Than Ever</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-gesture-communication-benefits/"><u>Deciphering Facebook’s Gesture Communication Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-discussions-on-fb-establishing-an-invisible-post-network/"><u>Discreet Discussions on FB: Establishing an Invisible Post Network</u></a></li>
+<li><a href="https://common-error.techidaily.com/exploring-compatible-cameras-for-windows-hello/"><u>Exploring Compatible Cameras for Windows Hello</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-renaming-a-step-towards-user-centric-design/"><u>Facebook’s Renaming: A Step Towards User-Centric Design</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/key-strategies-for-board-utilization-across-devices-in-zoom-for-2024/"><u>Key Strategies for Board Utilization Across Devices in Zoom for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-privacy-illusions-online/"><u>Navigating Through Privacy Illusions Online</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/resolving-imovie-cuts-understanding-crop-rationale/"><u>Resolving iMovie Cuts Understanding Crop Rationale</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-remove-facebook-from-your-android-life/"><u>Swiftly Remove Facebook From Your Android Life</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-art-of-crafting-compelling-video-covers/"><u>The Art of Crafting Compelling Video Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily</u></a></li>
+<li><a href="https://win-studio.techidaily.com/uno-dei-migliori-programmi-gratuiti-per-creazione-di-unimmagine-del-disco-rigido-mushkin-su-windows-il-tuo-ultimo-riferimento/"><u>Uno Dei Migliori Programmi Gratuiti per Creazione Di Un'immagine Del Disco Rigido Mushkin Su Windows - Il Tuo Ultimo Riferimento!</u></a></li>
+</ul></div>
 

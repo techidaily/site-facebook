@@ -1,7 +1,7 @@
 ---
 title: "Retrieving the Thread: Compreehensive Download of Social Media Feed"
-date: 2024-08-23T02:13:11.913Z
-updated: 2024-08-24T02:13:11.913Z
+date: 2024-12-15T02:24:45.622Z
+updated: 2024-12-22T01:21:47.934Z
 tags:
   - facebook
 categories:
@@ -49,16 +49,10 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related:[How to Extract Files From ZIP, RAR, 7z, and Other Common Archives](https://www.makeuseof.com/tag/extract-files-zip-rar-7z-common-archives/)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Customizing Your Facebook Data Download
 
 ![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Facebook allows you to sort your downloads and to choose which information to download according to a variety of filters. These include:
 
 * **Date range:** Handy if you don't want to trawl through years of data to find something.
@@ -69,9 +63,6 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related: [How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ## Exploring Your Downloaded Facebook Data
 
  Once you've downloaded your ZIP file, extract it and you'll see a basic folder hierarchy that matches up with the items you selected or deselected earlier. You're free to trawl through these folders, but it's a lot easier to open**index.html** or**index** in the root folder.
@@ -82,6 +73,10 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
 ![Facebook data download photos pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-photos-pages.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Other downloadable datasets include:
 
 * **Ads Interests:** Essentially topics that Facebook describes as "most relevant to you". This is worth a look since many of the categories probably _don't_ apply to you.
@@ -89,6 +84,10 @@ Other downloadable datasets include:
 * **Advertisers that you've interacted with:** Just how ad-savvy are you?
 * **Messages:** Including those you thought you'd deleted.
 * **Friends:** Including juicy categories like **Rejected friend requests** and **Removed friends** you'd forgotten about.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What's Not Included in Downloaded Facebook Data?
 
@@ -98,22 +97,20 @@ Other downloadable datasets include:
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
  Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
  Other categories may seem oddly empty, depending on which permissions you have enabled and whether you allow location tracking in the background, for example.
 
 ![Facebook Data Locations and Calls History](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/locations_calls_fb.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The social network clearly knows more about you than it includes in the download, and users need to be aware of this. We don't know what data Facebook collects based on our browsing history—which profiles we visit and the groups we are most active in.
 
  It'll be interesting to see legislation evolve as the authorities continue to probe into Facebook's handling of user data.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Downloading Other Facebook Photos and Videos
 
  So what if you want to download a video or photo that you've been tagged in? Facebook does not include these in your data download, since they're not technically yours. There are plenty of legitimate reasons you might want to grab media from the site. Fair use laws protect your right to use this content in many jurisdictions.
@@ -123,9 +120,14 @@ Other downloadable datasets include:
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 [Downloading private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) is a little more difficult, since you'll need to grab the page source code and paste it into a specific private video downloader.[FBDown Private Video Downloader](https://www.fbdown.net/private-downloader.php) seems like the best bet in this instance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is It Time to Delete Facebook?
 
@@ -135,14 +137,11 @@ Other downloadable datasets include:
 
  Image Credit: Christoph Scholz/[Flickr](https://www.flickr.com/photos/140988606@N08/25076399117/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +150,26 @@ Other downloadable datasets include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/stay-fight-on-facebooks-defiant-message-against-exiting/"><u>'Stay, Fight On': Facebook's Defiant Message Against Exiting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-free-logo-blueprint-tailor-and-share-your-brand-identity/"><u>[New] 2024 Approved Free Logo Blueprint Tailor and Share Your Brand Identity</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-craft-individual-humor-masterpieces-online/"><u>[New] Craft Individual Humor Masterpieces Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-compreenasional-path-to-post-perfection-instagram-video-upload-from-pcmac/"><u>[Updated] 2024 Approved The Compreenasional Path to Post-Perfection Instagram Video Upload From PC/Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-effortless-guide-to-exporting-and-archiving-snapshot-files/"><u>[Updated] Effortless Guide to Exporting and Archiving SnapShot Files</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-rotating-videos-made-simple-with-vlc-player-tricks-for-2024/"><u>[Updated] Rotating Videos Made Simple with VLC Player Tricks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-facebook-notification-stores/"><u>Clearing Facebook Notification Stores</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enablingdisabling-network-discovery-on-your-windows-10-pc-a-step-by-step-guide/"><u>Enabling/Disabling Network Discovery on Your Windows 10 PC: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-to-launch-end-to-end-encryption-for-messenger-calls-and-instagram-dms/"><u>Facebook to Launch End-to-End Encryption for Messenger Calls and Instagram DMs</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-generation-personalization-oculuss-new-characters/"><u>Next Generation Personalization - Oculus’s New Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-centric-choices-avoid-risky-apps-here/"><u>Privacy-Centric Choices: Avoid Risky Apps Here</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-paths-to-owning-successful-monetized-youtubes/"><u>Proven Paths to Owning Successful Monetized Youtubes</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolve-your-laptops-speaker-pop-and-crackle-problem-in-windows-107-effortlessly/"><u>Resolve Your Laptop's Speaker Pop & Crackle Problem in Windows 10/7 Effortlessly</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-issues-with-discords-push-to-talk-step-by-step-solution/"><u>Resolving Issues with Discord's Push-to-Talk - Step by Step Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-discarded-conversations-from-facebooks-abyss/"><u>Retrieving Discarded Conversations From Facebook's Abyss</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-an-enhanced-fb-imagery/"><u>Strategic Timing for an Enhanced Fb Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-oppo-f25-pro-5g-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Oppo F25 Pro 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2024-12-14T16:59:42.330Z
-updated: 2024-12-21T18:24:01.921Z
+date: 2024-12-17T20:52:53.950Z
+updated: 2024-12-21T17:36:35.739Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -52,7 +48,7 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
@@ -66,12 +62,16 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
@@ -92,13 +92,13 @@ Close
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -121,24 +121,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-flipping-the-script-on-memes-with-kinemaster/"><u>[New] Flipping the Script on Memes with KineMaster</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-monetization-how-much-creators-earn-per-ad-on-youtube-in-2024/"><u>[Updated] Decoding Monetization How Much Creators Earn Per Ad on YouTube, In 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-optimizing-video-output-the-adobe-presenter-way/"><u>[Updated] In 2024, Optimizing Video Output The Adobe Presenter Way</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-vivo-x90s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/enabling-facebooks-security-measures-a-user-guide/"><u>Enabling Facebook’s Security Measures: A User Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/eureka-identifying-the-start-of-my-online-social-life/"><u>Eureka! Identifying the Start of My Online Social Life</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/farm-family-fun-pack-the-ultimate-agritainment-guide-for-2024/"><u>Farm Family Fun-Pack The Ultimate Agritainment Guide for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/gaming-guilds-vs-game-journeys-why-ownership-matters/"><u>Gaming Guilds Vs. Game Journeys: Why Ownership Matters</u></a></li>
-<li><a href="https://facebook.techidaily.com/group-gatherings-galore-which-social-site-wins/"><u>Group Gatherings Galore: Which Social Site Wins?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-oppo-a58-4g-screen-sharing-drfone-by-drfone-android/"><u>How To Do Oppo A58 4G Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/how-to-respond-when-windows-security-alerts-you-of-a-problem-tips-from-yl-computings-experts/"><u>How to Respond When Windows Security Alerts You of a Problem: Tips From YL Computing's Experts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-poptoons-pro-analysis-and-guide-2s24/"><u>In 2024, PopToons Pro Analysis and Guide 2S24</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-on-your-iphone-8-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled On your iPhone 8? How to Fix</u></a></li>
-<li><a href="https://facebook.techidaily.com/national-perspective-on-platforms-harmful-trends-prevail/"><u>National Perspective on Platforms: Harmful Trends Prevail</u></a></li>
-<li><a href="https://facebook.techidaily.com/reboot-your-facebook-friends-list-after-block/"><u>Reboot Your Facebook Friends List After Block</u></a></li>
-<li><a href="https://facebook.techidaily.com/refusing-new-whatsapp-privacy-changes-unrestricted-feature-access/"><u>Refusing New WhatsApp Privacy Changes: Unrestricted Feature Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/revising-profile-rules-forward-no-backward-to-faith-or-politics/"><u>Revising Profile Rules: Forward, No Backward to Faith or Politics</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-platforms-ranked-by-security-first/"><u>Social Platforms Ranked by Security First</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-art-of-negotiating-a-refund-via-fb/"><u>Unlocking the Art of Negotiating a Refund via FB</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-enhance-your-online-presence-4-streaming-methods-for-desktop-users/"><u>[Updated] 2024 Approved Enhance Your Online Presence 4 Streaming Methods for Desktop Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elite-4k-screens-the-ultimate-choice/"><u>[Updated] Elite 4K Screens – The Ultimate Choice</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-high-quality-8-android-video-callers-for-groups-above-four/"><u>2024 Approved High-Quality 8 Android Video Callers for Groups Above Four</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-approach-to-creating-engaging-facebook-events/"><u>A Comprehensive Approach to Creating Engaging Facebook Events</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210758949-9781639365302-ashes-and-stones/"><u>Ashes and Stones | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-clickbait-the-real-costs-of-social-sharing/"><u>Beyond Clickbait: The Real Costs of Social Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-rumor-and-fiction-understanding-the-true-essence-of-fb-papers/"><u>Beyond Rumor and Fiction: Understanding the True Essence of FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-streamlined-music-royalties-process/"><u>Breaking Down Facebook’s Streamlined Music Royalties Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-private-online-presence-essential-tips-for-fb-users/"><u>Crafting a Private Online Presence: Essential Tips for FB Users</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-chatgpt-a-guide-to-organizing-conversations-with-folders/"><u>Mastering ChatGPT: A Guide to Organizing Conversations with Folders</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96180167-9781938289811-warrior-goddess-wisdom/"><u>Warrior Goddess Wisdom | Free Book</u></a></li>
 </ul></div>
 

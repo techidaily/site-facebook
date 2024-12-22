@@ -1,7 +1,7 @@
 ---
 title: The New Era of Community Management Unveiled by Facebook
-date: 2024-12-14T18:51:45.238Z
-updated: 2024-12-21T16:15:54.389Z
+date: 2024-12-15T06:52:05.017Z
+updated: 2024-12-22T06:55:46.514Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Launches New Admin Tools to Moderate Groups
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -83,16 +83,15 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-revealing-the-top-10-secret-story-admirers/"><u>[New] In 2024, Revealing the Top 10 Secret Story Admirers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-boost-your-visuals-video-enhance-pro-22-guide/"><u>[Updated] Boost Your Visuals - Video Enhance Pro 2.2 Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-transform-your-devices-tone-swiftly-with-these-leading-chrome-apps/"><u>[Updated] In 2024, Transform Your Device's Tone Swiftly With These Leading Chrome Apps</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-review-unveiling-the-potential-of-vidma-capture-tech/"><u>2024 Approved Review Unveiling the Potential of Vidma Capture Tech</u></a></li>
-<li><a href="https://games-able.techidaily.com/dive-into-youtubes-interactive-mini-gaming-experience/"><u>Dive Into YouTube's Interactive Mini Gaming Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/germany-orders-facebook-to-stop-collecting-data-on-whatsapp-users/"><u>Germany Orders Facebook to Stop Collecting Data on WhatsApp Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-outage-opens-new-challenges-for-giants/"><u>Online Outage Opens New Challenges for Giants</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/optimizing-your-gaming-experience-with-these-solutions-to-call-of-duty-black-ops-ivs-frame-rate-and-latency-issues/"><u>Optimizing Your Gaming Experience with These Solutions to Call of Duty: Black Ops IV's Frame Rate & Latency Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-downloads-of-social-network-memories-from-facebook/"><u>Seamless Downloads of Social Network Memories From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-truth-seekers-toolkit-for-discerning-social-identity-authenticity/"><u>The Truth-Seeker's Toolkit for Discerning Social Identity Authenticity</u></a></li>
-<li><a href="https://facebook.techidaily.com/watch-out-screenshots-going-missing-in-messenger/"><u>Watch Out: Screenshots Going Missing in Messenger</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-financial-forecast-the-price-of-filming-melodies-visually/"><u>[New] Financial Forecast The Price of Filming Melodies Visually</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-best-websites-and-software-to-add-frames-to-photos/"><u>[New] In 2024, Best Websites and Software to Add Frames to Photos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-comprehensively-reviews-easeus-experts-unite/"><u>[Updated] In 2024, Comprehensively Reviews EaseUS, Experts Unite</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-no-price-point-digital-video-recorder-for-2024/"><u>[Updated] No-Price Point Digital Video Recorder for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-mystique-a-guide-to-facebooks-emoji-lexicon/"><u>Demystifying the Mystique: A Guide to Facebook's Emoji Lexicon</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-fb-push-notifications-and-messages/"><u>How to Stop FB Push Notifications and Messages</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Oppo A78? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/remedying-pixelated-youtube-footage/"><u>Remedying Pixelated YouTube Footage</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-you-use-facebook-to-log-into-other-apps-6-pros-and-cons/"><u>Should You Use Facebook to Log Into Other Apps? 6 Pros and Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-building-a-significant-profile/"><u>The Art of Building a Significant Profile</u></a></li>
 </ul></div>
 

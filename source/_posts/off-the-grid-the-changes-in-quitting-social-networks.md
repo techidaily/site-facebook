@@ -1,7 +1,7 @@
 ---
 title: "Off the Grid: The Changes in Quitting Social Networks"
-date: 2024-12-19T16:01:16.995Z
-updated: 2024-12-21T16:04:23.316Z
+date: 2024-12-17T03:49:46.109Z
+updated: 2024-12-22T03:12:49.229Z
 tags:
   - facebook
 categories:
@@ -25,12 +25,16 @@ Speaking from my own experience, here's what you can expect.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Unexpected Reactions
 
 ![Woman surprised on computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/surprise.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When I[quit social media](https://www.makeuseof.com/how-to-quit-social-media/) , I encountered extremes of reactions from friends and strangers alike. First, there was genuine concern from people who wondered if something had gone wrong in my digital life. A few people thought I was being contrary and tried to either cajole or coerce me into returning.
 
@@ -44,19 +48,23 @@ Speaking from my own experience, here's what you can expect.
 
 ![Social media app icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/curate-social-media-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Every time you open your browser, you might be at a loss to decide what to do. You won't know where to go next, because your go-to web hangouts—Facebook and Twitter—are gone.
 
  But don't worry. This won't last long, because you'll soon discover distractions of a different kind. You might even find more time to learn a new hobby. I latched on to interesting newsletters and feeds as a replacement for social media.
 
  Planning to quit social media to avoid information overload? Watch out for the continued temptation of social networking sites like Instagram. These sites let you browse their content without an account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Being Out of the Loop
 
 ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You know those moments when everybody knows what's going on and you're the only clueless person around? Expect many more of them.
 
@@ -70,23 +78,19 @@ Speaking from my own experience, here's what you can expect.
 
 ![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the[top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
 
  You might have to forgo many interesting services for the sole reason that you don't have a Facebook or Twitter login to sign up for an account. What happened to good old email signups?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Derailed Job Searches
 
  Job hunts are the worst hit by the lack of a social media presence. "Awesome social media skills" seem like a permanent fixture in job descriptions these days. It's a pity that these skills are at times considered more important than the technical skills you need to fulfill a role.
 
  Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more[opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. More Headspace
 
@@ -97,10 +101,6 @@ Speaking from my own experience, here's what you can expect.
  The biggest gain is the automatic shift in focus from what everyone else is doing to what you're doing. You score the mental bandwidth you need to do deep work.
 
  Sure, you'll want to binge on social media feeds a few times a year. Don't feel guilty when that happens. Indulge yourself occasionally. Seeing the same old stuff you wanted to escape in the first place will put the situation in perspective for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## When It Comes to Social Media, Never Say Never
 
@@ -123,19 +123,22 @@ Speaking from my own experience, here's what you can expect.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-delve-deep-into-immersive-videography-tips-for-editing-full-spherical-content-in-premierepro/"><u>[New] 2024 Approved Delve Deep Into Immersive Videography Tips for Editing Full Spherical Content in PremierePro</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/lear-screen-clear-content-how-to-disable-youtube-channels-efficiently-for-2024/"><u>[New] Clear Screen, Clear Content How to Disable YouTube Channels Efficiently for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-elevate-your-farm-the-top-7-stardew-modifications-for-2024/"><u>[Updated] Elevate Your Farm The Top 7 Stardew Modifications for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-usenet-video-player-direct-streaming-access/"><u>[Updated] Usenet Video Player Direct Streaming Access</u></a></li>
-<li><a href="https://win-superb.techidaily.com/convertissez-votre-fichier-avi-en-3gp-gratuitement-sur-le-web-avec-moviavi/"><u>Convertissez Votre Fichier AVI en 3GP Gratuitement Sur Le Web Avec Moviavi</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-solutions-to-overcome-silence-in-nvidias-high-def-audio-system/"><u>Expert Solutions to Overcome Silence in NVIDIA's High Def Audio System</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-new-bite-into-misinformed-sharing-actors/"><u>Facebook's New Bite Into Misinformed Sharing Actors</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-musicianship-translate-to-dollars-on-facebook/"><u>How Does Musicianship Translate to Dollars on Facebook?</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-iphone-6s-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For iPhone 6s?</u></a></li>
-<li><a href="https://facebook.techidaily.com/losing-the-social-media-connection/"><u>Losing the Social Media Connection</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-privacy-on-social-networks/"><u>Protecting Privacy on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/renewable-rush-at-fb-complete-energy-overhaul-for-the-future/"><u>Renewable Rush at FB: Complete Energy Overhaul for the Future</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-and-executing-group-dissolution/"><u>Understanding and Executing Group Dissolution</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-stepwise-approach-purging-your-social-media-snapshot/"><u>A Stepwise Approach: Purging Your Social Media Snapshot</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-users-guide-to-joining-and-interacting-in-facebook-groups/"><u>A User’s Guide to Joining and Interacting in Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-online-dislikes-harmful-or-helpful/"><u>Are Online 'Dislikes' Harmful or Helpful?</u></a></li>
+<li><a href="https://facebook.techidaily.com/augmented-reality-meets-text-messaging-on-fb-messenger/"><u>Augmented Reality Meets Text Messaging on FB Messenger</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/backtrack-broadcasts-effortlessly-with-these-20-stream-steps-for-2024/"><u>Backtrack Broadcasts Effortlessly with These 20 Stream Steps for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/beginners-walkthrough-setting-up-vrecord-software/"><u>Beginner’s Walkthrough Setting Up VRecord Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-extracting-exclusive-facebook-videos/"><u>Best Practices for Extracting Exclusive Facebook Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-uninvited-network-proposals-on-facebook/"><u>Blocking Uninvited Network Proposals on Facebook</u></a></li>
+<li><a href="https://win-web3.techidaily.com/comment-installer-de-virtualbox-pour-windows-10-and-11-facile-a-configurer/"><u>Comment Installer De VirtualBox Pour Windows 10 & 11 - Facile À Configurer</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-chatter-stream-instagram-silently/"><u>Cut the Chatter: Stream Instagram Silently</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-ways-to-locate-dynamic-facebook-groups/"><u>Cutting-Edge Ways to Locate Dynamic Facebook Groups</u></a></li>
+<li><a href="https://win-answers.techidaily.com/davinci-resolve-not-opening-heres-what-you-need-to-do-for-a-quick-solution/"><u>DaVinci Resolve Not Opening? Here's What You Need to Do for a Quick Solution</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/enhancing-digital-shield-discover-the-latest-three-security-updates-in-google-chrome-for-optimized-online-protection-and-privacy-techadvocate/"><u>Enhancing Digital Shield: Discover the Latest Three Security Updates in Google Chrome for Optimized Online Protection & Privacy | TechAdvocate</u></a></li>
+<li><a href="https://solve-news.techidaily.com/experience-premium-sound-quality-with-budget-friendly-sony-ult-in-ear-headphones-expert-analysis-inside/"><u>Experience Premium Sound Quality with Budget-Friendly Sony ULT In-Ear Headphones - Expert Analysis Inside!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-future-of-business-tech-unveiled-exploring-the-transformative-impact-of-apples-vision-pro-on-todays-enterprises/"><u>The Future of Business Tech Unveiled: Exploring the Transformative Impact of Apple's Vision Pro on Today's Enterprises</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-filmbestellungen-hollywood-and-bollywood-gratiskinoerstellung-2016/"><u>Top-Filmbestellungen Hollywood & Bollywood - Gratiskinoerstellung 2016</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unlink From Facebook: Android Abandoned Account Process"
-date: 2024-12-15T16:56:31.780Z
-updated: 2024-12-21T18:15:17.665Z
+date: 2024-12-14T16:05:34.480Z
+updated: 2024-12-22T01:19:56.625Z
 tags:
   - facebook
 categories:
@@ -50,24 +50,16 @@ thumbnail: https://thmb.techidaily.com/35db44591f3dcbc09fec63cf1897abe760727c167
 ![Facebook Android menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Android-menu-options.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook Settings and Privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Settings-Android.jpg)
 
 ![Permissions section in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Permissions-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  Next, you should add an email and a password as a login option to each of these connected services to avoid losing access to your accounts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete Your Facebook Account on Mobile
 
@@ -80,11 +72,11 @@ Close
 
 ![Facebook Settings and privacy page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-settings-and-privacy-page-android.jpg)
 
-![Personal account information page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Personal-account-information-facebook-android.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Personal account information page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Personal-account-information-facebook-android.jpg)
 
 ![Account deactivation and deletion options on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/account-ownership-and-control-facebook.jpg)
 
@@ -101,11 +93,11 @@ Close
 
 ![Account deletion page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-account-deletion-page-android.jpg)
 
-![Facebook account deletion confirmation on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-android-account-deletion-confirmation.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Facebook account deletion confirmation on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-android-account-deletion-confirmation.jpg)
 
 Close
 
@@ -114,6 +106,10 @@ Close
  Don't log in for the next 30 days if you're done with Facebook. Despite that, Facebook says it can take up to 90 days from the start of the deletion process to delete all the information you've shared permanently. However, don't fret; your information will not be accessible to other users during the entire process.
 
  Once you've deleted your Facebook account, the next step is to uninstall the app. Here's a step-by-step guide on[how to remove unwanted Android apps](https://www.makeuseof.com/tag/remove-unwanted-apps-android-device/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deactivate Your Facebook Account on Android
 
@@ -128,17 +124,21 @@ Close
 
 ![Deactivate account option on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Deactivate-facebook-account-android.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Key reasons for deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-reasons.jpg)
 
 ![Final step in deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  You will instantly be logged out. You can reactivate your account by simply signing in once more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ditch Facebook Forever
 
@@ -161,24 +161,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/levate-visibility-maximize-views-seo-for-videos-for-2024/"><u>[New] Elevate Visibility, Maximize Views - SEO for Videos for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-turn-your-mobile-into-a-professional-webcam-for-video/"><u>[New] In 2024, Turn Your Mobile Into a Professional Webcam for Video</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/a-step-by-step-path-for-macbook-pro-ssd-upgradation/"><u>A Step-by-Step Path for MacBook Pro SSD Upgradation</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bogus-ai-assistant-plugin-risks-twitter-account-security/"><u>Bogus AI Assistant Plugin Risks Twitter Account Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/embarking-into-new-dimensions-understanding-and-importance-of-facebooks-metaverse/"><u>Embarking Into New Dimensions: Understanding and Importance of Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-opens-new-horizons-for-oculus-go-with-root-access-unveiled/"><u>Facebook Opens New Horizons for Oculus Go with Root Access Unveiled</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/guia-facil-para-convertir-archivos-mkv-en-mp4-con-la-excelente-calidad-original/"><u>Guía Fácil Para Convertir Archivos MKV en MP4 Con La Excelente Calidad Original</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-instant-sharing-with-media-files-twitters-guide/"><u>In 2024, Instant Sharing with Media Files Twitter's Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-the-art-of-repairing-overwatch-voice-chat-malfunctions/"><u>Mastering the Art of Repairing Overwatch Voice Chat Malfunctions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/score-a-steal-snag-the-hp-victus-15-at-just-515-during-best-buys-prime-day-event-exclusive-insights/"><u>Score a Steal: Snag the HP Victus 15 at Just $515 During Best Buy's Prime Day Event – Exclusive Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-your-social-space-navigating-facebooks-new-moderation-tools/"><u>Steering Your Social Space: Navigating Facebook's New Moderation Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-secure-pieces-from-facebooks-725m-settlement/"><u>Strategies to Secure Pieces From Facebook's $725M Settlement</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-facebook-paradox-why-do-people-reject-online-communities/"><u>The Facebook Paradox: Why Do People Reject Online Communities?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-most-heated-technological-minds-in-action/"><u>The Most Heated Technological Minds in Action</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/titre-seo-solutions-avantages-de-backup-gratuites-pour-sous-systemes-windows-serveur/"><u>Titre SEO: « Solutions Avantages De Backup Gratuites Pour Sous-Systèmes Windows Serveur »</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-xiaomi-redmi-k70e-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Xiaomi Redmi K70E Location | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/twinning-trends-exploring-the-affinity-between-fb-and-insta/"><u>Twinning Trends: Exploring the Affinity Between FB & Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-process-to-ignore-member-names-on-fb-groups/"><u>Unveiling the Process to Ignore Member Names on FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/webworld-woe-all-big-social-platforms-go-dark/"><u>Webworld Woe: All Big Social Platforms Go Dark</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-10-preferred-top-free-image-editing-and-overlay-apps-for-phones/"><u>[New] 2024 Approved 10 Preferred Top-Free Image Editing & Overlay Apps for Phones</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlining-your-youtube-vids-for-igtv-adoption/"><u>[Updated] Streamlining Your YouTube Vids for IGTV Adoption</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oneplus-open-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your OnePlus Open Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/brighten-control-navigating-windows-11-display-settings/"><u>Brighten Control: Navigating Windows 11 Display Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-world-of-ray-ban-stories-through-facebook/"><u>Discovering the World of Ray-Ban Stories Through Facebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/effective-guide-to-cast-apple-iphone-12-pro-max-to-macbook-without-hindrance-drfone-by-drfone-ios/"><u>Effective Guide to Cast Apple iPhone 12 Pro Max to MacBook without Hindrance | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151494245-favorite-social-hub-share-your-choice/"><u>Favorite Social Hub: Share Your Choice!</u></a></li>
+<li><a href="https://facebook.techidaily.com/intertwining-dimensions-what-is-the-metaverse/"><u>Intertwining Dimensions: What Is the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-member-overlooked-the-art-of-group-recognition-in-social-media/"><u>No Member Overlooked: The Art of Group Recognition in Social Media</u></a></li>
+<li><a href="https://review-topics.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Infinix Note 30i | Dr.fone</u></a></li>
 </ul></div>
 

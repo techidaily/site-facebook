@@ -1,7 +1,7 @@
 ---
 title: "The Social Fabric and Your Feed: A Look at Usage Patterns"
-date: 2024-08-23T02:13:50.086Z
-updated: 2024-08-24T02:13:50.086Z
+date: 2024-12-19T19:50:48.202Z
+updated: 2024-12-22T03:59:16.571Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/c45afa71b37443a1f59fe90234d68b3b0e50e4c51
 
  As Facebook potentially prepares to change up its News Feed algorithm, it wants to hear what you have to say about it. You'll now see surveys more often in your News Feed, and answering them could help Facebook understand what type of content you like best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Wants Your Opinion on Content in Your News Feed
 
  A post on[the About Facebook blog](https://about.fb.com/news/2021/04/incorporating-more-feedback-into-news-feed-ranking/) revealed that Facebook plans on rolling out more surveys to gauge user response to certain posts. One survey will ask: "Is this post worth your time?" If your response is positive, you'll see similar posts at the top of your News Feed.
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/c45afa71b37443a1f59fe90234d68b3b0e50e4c51
  Facebook will also start asking if you find certain posts inspirational. Responding to this questionnaire will help Facebook figure out what kinds of posts users find inspiring, as Facebook hopes to place inspirational content towards the top of the News Feed.
 
 ![Facebook inspirational posts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/inspirational-posts-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image Credit: Facebook
 
@@ -41,7 +49,15 @@ Image Credit: Facebook
 
 ![Facebook post hidden options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-post-hidden-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image Credit: Facebook
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Works on Improving Its News Feed
 
@@ -49,14 +65,11 @@ Image Credit: Facebook
 
  Just because you decide to be friends with someone on Facebook, doesn't necessarily mean you like what they post. It seems that Facebook is finally realizing this, and will put less priority on posts from friends and Groups, and will focus on individual preferences instead.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -65,8 +78,20 @@ Image Credit: Facebook
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-top-tier-mac-recorder-feature-visuals-and-voices/"><u>[New] In 2024, Top-Tier Mac Recorder Feature Visuals & Voices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-swift-guide-eliminating-images-backdrops-with-affinity-photo/"><u>[Updated] 2024 Approved Swift Guide Eliminating Images' Backdrops with Affinity Photo</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-navigating-the-end-of-an-online-chapter-in-discord-for-2024/"><u>[Updated] Navigating the End of an Online Chapter in Discord for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/1725285636188-digiarty-winx-dvd/"><u>Digiarty WinX DVDソフトウェア - 一般ユーザーの質疑と回答</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-from-novice-to-proficient-the-path-with-zoom-webinars/"><u>In 2024, From Novice to Proficient The Path with Zoom Webinars</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-c55-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme C55 Phone that is Locked?</u></a></li>
+<li><a href="https://facebook.techidaily.com/locating-latest-views-in-the-facebook-feed/"><u>Locating Latest Views in the Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-social-media-advertising/"><u>Navigating the Maze of Social Media Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-to-group-departure-with-tact/"><u>Navigating the Path to Group Departure with Tact</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-social-data-downloading-every-post-like-share/"><u>Reclaiming Social Data: Downloading Every Post, Like, Share</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-the-missing-mscorwksdll-file-a-step-by-step-guide/"><u>Resolving the 'Missing mscorwks.dll' File: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-silliness-navigating-friendly-teasing-digitally/"><u>Safe Silliness: Navigating Friendly Teasing Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-chats-on-facebooks-platform/"><u>Securing Chats on Facebooks Platform</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->

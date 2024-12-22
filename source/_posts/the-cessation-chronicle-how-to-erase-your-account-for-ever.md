@@ -1,7 +1,7 @@
 ---
 title: "The Cessation Chronicle: How to Erase Your Account for Ever"
-date: 2024-12-16T16:06:02.018Z
-updated: 2024-12-21T16:21:49.741Z
+date: 2024-12-18T16:02:42.421Z
+updated: 2024-12-21T23:57:55.403Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
 ![Facebook email announcing account deletion](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-email-announcing-account-deletion.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you delete your Facebook account, all of your information will be gone for good. There is no way to retrieve the data, and there is no way to reactivate your account at a later date. If you decide you want to rejoin the social network, you'll need to make a new account.
 
  Facebook will wipe almost all your data from its servers. Once again, messages you've sent to other people will live on in their inboxes, and data such as log records will stay in Facebook's database. However, all personal identifiers will be removed.
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Once the cooling-off period passes, Facebook promises to remove all traces of your profile from its servers within 90 days. But don't worry; during the 90 days, your data is unavailable to other Facebook users.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Delete Your Facebook Account
@@ -62,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
  When you have made your selection, click on**Submit Request** . Depending on the amount of data you want to download, it could be several hours until the file is ready.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Check Your Third-Party Facebook Apps
 
  Many apps and services give you the option to sign in using your Facebook credentials, also known as Facebook Login.
@@ -71,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  If you've used your Facebook login credentials for apps like Spotify, you need to change your login details with them before you delete Facebook permanently. Failure to do so could leave you locked out of your account.
 
 ![Apps and website section of Facebook settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/apps-and-website-section-of-facebook-settings.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You can see which apps have access to your Facebook account by clicking your profile picture and going to **Settings & privacy > Settings > Apps and Websites** .
 
@@ -87,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
  Clearly, you can't post the same "I'm leaving" message day after day, so why not[change your Facebook profile picture](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to an image of your username on Instagram, Snapchat, or any other network you plan to keep using?
 
  By doing so, you won't be pestering people with spam, but they'll learn that you're planning to delete your Facebook account every time you pop up on their news feed. You can even crop your friends list back before posting your new details to prevent them from spreading too widely.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete a Facebook Account
 
@@ -111,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/34062c0c76761441d1daaab882479cf039a7dd266
 
  But if you want a less permanent solution, you can choose to deactivate your account instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Deactivate a Facebook Account
 
  Deactivating your Facebook account hides (almost) all of your data. It's akin to a temporary deletion. If someone were trying to find you on the network, they would not be able to tell that you have—or ever had—a Facebook account. In our dedicated guide, you can learn more about[what happens when you deactivate your Facebook](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
@@ -127,23 +131,19 @@ Here's how to deactivate your Facebook account:
 
 ![Facebook account deactivation prompt in the account center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-account-deactivation-prompt-in-the-account-center.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You will be asked to confirm your decision. Once you do that, your account will be deactivated.
 
  You can toggle the option to continue using Messenger even though your Facebook account is disabled.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Reactivate a Facebook Account
 
  If you change your mind and want to return to Facebook, just head back to the social network's login page and enter your old credentials. The reactivation process takes a matter of seconds.
 
  Your account will also be reactivated if you use your Facebook credentials to log into a third-party app or service.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Should You Delete Facebook?
 
@@ -164,20 +164,18 @@ Here's how to deactivate your Facebook account:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevating-visual-clarity-in-digital-facebook-broadcasts/"><u>[New] In 2024, Elevating Visual Clarity in Digital Facebook Broadcasts</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-for-virtual-reality-content-android-friendly/"><u>2024 Approved The Ultimate Guide for Virtual Reality Content (Android-Friendly)</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-voice-changing-methods-in-free-fire/"><u>2024 Approved Voice Changing Methods in Free Fire</u></a></li>
-<li><a href="https://techtrends.techidaily.com/anticipating-the-next-big-thing-insights-from-samsung-unpacked-2025-calendar-announcements-and-rumored-innovations/"><u>Anticipating the Next Big Thing - Insights From Samsung Unpacked 2025: Calendar, Announcements & Rumored Innovations</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-infinix-hot-40-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Infinix Hot 40 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-ray-ban-stories-what-are-they-and-how-much-do-they-cost/"><u>Facebook Launches Ray-Ban Stories: What Are They and How Much Do They Cost?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-lockdown-unraveling-your-suspended-status/"><u>Facebook Lockdown: Unraveling Your Suspended Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/honoring-the-departed-online-facebook-profile-management-after-death/"><u>Honoring the Departed Online: Facebook Profile Management After Death</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Poco M6 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/integrating-social-spaces-tiktok-uploads-on-facebook-for-2024/"><u>Integrating Social Spaces TikTok Uploads on Facebook for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/mastering-virtualization-enabling-hyper-v-functionality-on-windows-10-devices/"><u>Mastering Virtualization: Enabling Hyper-V Functionality on Windows 10 Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-savvy-cultivating-work-relationships-on-fb/"><u>Social Media Savvy: Cultivating Work Relationships on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-filter-bubble-bill-a-closer-look/"><u>The Filter Bubble Bill: A Closer Look</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-smart-way-to-benefit-from-facebooks-725m-class-action/"><u>The Smart Way to Benefit From Facebook's 725M Class Action</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-top-social-app/"><u>Unveiling the Top Social App</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-assessing-the-apex-of-video-recording-is-it-splitcam-in-2024/"><u>[Updated] Assessing the Apex of Video Recording Is It SplitCam, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlocking-the-potential-of-instagrams-live-video-features/"><u>[Updated] In 2024, Unlocking the Potential of Instagram’s Live Video Features</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/2024s-elite-list-of-8-premium-parental-supervision-services-revealed-here/"><u>2024'S Elite List of 8 Premium Parental Supervision Services Revealed Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-clampdown-on-big-tech-understanding-us-antitrust-measures/"><u>Assessing the Clampdown on Big Tech: Understanding U.S. Antitrust Measures</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/be-the-best-lifeguard-at-your-friends-tiktok-shores-for-2024/"><u>Be the Best Lifeguard at Your Friends’ TikTok Shores for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-the-copycat-con-artists-on-facebook/"><u>Beware the Copycat Con Artists on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/feedback-for-the-future-how-does-news-impact-you-on-facebook/"><u>Feedback for the Future: How Does News Impact You on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-news-feed-to-forward-thinking-how-tiktok-outshines-facebook/"><u>From News Feed to Forward-Thinking: How TikTok Outshines Facebook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/meta-quest-3-lite-news-and-expected-price-release-date-specs-and-more-rumors/"><u>Meta Quest 3 Lite: News and Expected Price, Release Date, Specs; and More Rumors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-better-business-connections-linkedin-vs-facebook/"><u>The Battle for Better Business Connections: LinkedIn Vs. Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/update-ascent-application-now-fully-operational-after-resolving-previous-issues/"><u>Update: Ascent Application Now Fully Operational After Resolving Previous Issues</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-s-leading-lego-animation-artists/"><u>Updated In 2024, S Leading Lego Animation Artists</u></a></li>
 </ul></div>
 

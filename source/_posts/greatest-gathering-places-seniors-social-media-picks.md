@@ -1,7 +1,7 @@
 ---
 title: "Greatest Gathering Places: Seniors' Social Media Picks"
-date: 2024-12-16T17:02:41.426Z
-updated: 2024-12-21T18:39:24.616Z
+date: 2024-12-14T16:39:57.373Z
+updated: 2024-12-22T04:19:00.831Z
 tags:
   - facebook
 categories:
@@ -23,16 +23,12 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1. Facebook
 
 ![senior man and woman laughing in front of phone and laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-6667799.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  As one of the older social platforms, Facebook has gained a lot of popularity among senior citizens. In a study conducted by the College of Communications of Pennsylvania State University and published on[ScienceDirect](https://www.sciencedirect.com/science/article/abs/pii/S0747563216301431) , research examined what it was exactly that seniors get from Facebook.
 
@@ -48,13 +44,13 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
  Facebook also offers suggestions based on interests. For example, if a senior citizen is part of a group dedicated to gardening, they will get suggestions for other groups that are also about gardening. Facebook offers seniors endless opportunities to socialize both online and offline.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2. LinkedIn
 
 ![An elderly man and a younger man looking at a tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-7983582-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  LinkedIn is yet another social platform with a broad age range. It is not only popular with job-seekers, but with people wanting to find and establish connections in their industries. For seniors, the platform can provide a lot of stimulation because of its useful content.
 
@@ -68,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 ![Woman using laptop and holding a coffee cup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-marcus-aurelius-6787904.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  WhatsApp is an excellent way to stay connected with friends and family via instant messaging. It is readily accessible and has a ton of benefits. By encouraging people to build networks, its[users can also create WhatsApp communities](https://www.makeuseof.com/how-to-create-whatsapp-community/) .
 
  For seniors, the communities feature on WhatsApp makes it easy for them to put related groups into one folder. When optimizing their communities, they can manage their groups from one space, as well as keep their chats focused. For example, their work-related communities can be grouped, and their family-related communities can also be grouped.
@@ -76,12 +76,16 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
  Another feature of WhatsApp is that it allows people to also share their location, and enables both audio and video calling at the tap of a button. Document sharing is also easy, as well as sending out photos and videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4. YouTube
 
 ![Elderly man watching something on the tablet with headphones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-tima-miroshnichenko-5708716.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The amount of footage on YouTube is enormous. The platform can keep seniors stimulated for hours. They can watch, like, share, and comment on anything they interact with. Not only that, they can search for topics that are interesting and important to them.
@@ -93,10 +97,6 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 ## 5. Blogger
 
 ![elderly woman using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-anna-shvets-5257246.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  There's no doubt that seniors have a lot of stories to tell. Some stories are rich in historical detail that only they can recall, and other stories can be as simple as sharing something about their day. For seniors who have considered writing about their lives, starting a blog through a platform like Blogger, is an excellent first step.
 
@@ -125,22 +125,22 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-digital-choices-for-content-creators-sound-or-sight-focus/"><u>[New] 2024 Approved Digital Choices for Content Creators Sound or Sight Focus</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-best-5-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod/"><u>[New] Best 5 Camera Apps to Shoot and Record Videos on iPhone and Andriod</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-enjoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading-for-2024/"><u>[Updated] Enjoy Endless Creativity Discover the Best in Cheap, Online Video Downloading for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-harness-the-power-of-gopro-studio-essential-editing-techniques/"><u>2024 Approved Harness the Power of GoPro Studio Essential Editing Techniques</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-webinar-recording-a-step-by-step-masterclass-guide/"><u>2024 Approved Webinar Recording A Step-by-Step Masterclass Guide</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-oppo-find-n3-flip-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Oppo Find N3 Flip</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-sharing-experience-move-fb-content-to-top-3-apps-with-ease/"><u>Enhancing Sharing Experience: Move Fb Content to Top 3 Apps with Ease</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/five-iphone-compatible-podcast-services-for-2024/"><u>Five iPhone-Compatible Podcast Services for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/from-shanties-to-speech-a-buccaneers-path/"><u>From Shanties to Speech: A Buccaneer’s Path</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-virtual-markets-with-confidence-and-caution/"><u>Navigating Virtual Markets with Confidence and Caution</u></a></li>
-<li><a href="https://facebook.techidaily.com/proper-method-to-disconnect-spotify-on-facebook/"><u>Proper Method to Disconnect Spotify on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-sports-viewing-via-facebook-twitter-for-nbafans/"><u>Seamless Sports Viewing via Facebook, Twitter for NBAFans</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-through-social-media-numbers-a-balanced-view/"><u>Sifting Through Social Media Numbers - A Balanced View</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-facebook-hoaxes-detect-14-standard-deceptions/"><u>Stop Facebook Hoaxes: Detect 14 Standard Deceptions</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-web-portals-finding-perfect-alarm-sounds-for-2024/"><u>Top Web Portals Finding Perfect Alarm Sounds for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-team-synergy-8-social-media-features-from-facebook/"><u>Unlocking Team Synergy: 8 Social Media Features From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-did-sheryl-sandberg-do-at-facebook/"><u>What Did Sheryl Sandberg Do at Facebook?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-navigating-gradual-audio-reduction-in-digital-studios-for-2024/"><u>[Updated] Navigating Gradual Audio Reduction in Digital Studios for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-capturing-life-basic-shots-every-new-director-should-master/"><u>2024 Approved Capturing Life Basic Shots Every New Director Should Master</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-cover-videos-demystified-what-everyone-should-know-for-2024/"><u>FB Cover Videos Demystified What Everyone Should Know for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-watch-nba-live-streams-ultimate-top-10-sites-list-for-basketball-fans/"><u>Free Watch NBA Live Streams - Ultimate Top 10 Sites List for Basketball Fans</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-camtasia-tutorial-implementing-the-classic-ken-burns-effect/"><u>In 2024, Camtasia Tutorial Implementing the Classic Ken Burns Effect</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-revealing-the-best-of-both-worlds-1-tiktoks-on-twitter/"><u>In 2024, Revealing the Best of Both Worlds #1 TikToks on Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrigue-behind-social-media-suspension/"><u>Intrigue Behind Social Media Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-public-trust-by-stopping-online-misleading-facts/"><u>Maintaining Public Trust by Stopping Online Misleading Facts</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-nightmare-all-social-media-downed/"><u>Networking Nightmare: All Social Media Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-technological-progress-spotlight-on-the-top-4-underserved-stories/"><u>Overlooked Technological Progress: Spotlight on the Top 4 Underserved Stories</u></a></li>
+<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-the-money-opportunity-monetizing-on-youtube-through-mobile-devices/"><u>Seize the Money Opportunity Monetizing on YouTube Through Mobile Devices</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-repair-techniques-for-addressing-stereo-mix-problems-in-audio-systems/"><u>Step-by-Step Repair Techniques for Addressing Stereo Mix Problems in Audio Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-online-actions-shape-brand-perceptions/"><u>Your Online Actions Shape Brand Perceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
 </ul></div>
 

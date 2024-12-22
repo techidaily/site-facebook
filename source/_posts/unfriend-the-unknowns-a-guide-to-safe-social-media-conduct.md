@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2024-12-14T19:47:13.729Z
-updated: 2024-12-21T18:46:45.622Z
+date: 2024-12-17T16:38:23.683Z
+updated: 2024-12-21T21:33:24.495Z
 tags:
   - facebook
 categories:
@@ -26,16 +26,12 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  When someone collects personal data and uses it for their own benefits, it's called identity theft. This is how scammers and internet thieves steal your identity online.
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Impairment of the Privacy of Your Friends
 
@@ -57,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Accepting requests from strangers not just gives them access to your content but also to specific information about your friends. Consider a situation where you and your friends tag each other in pictures, check-ins, and stories.
 
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Access to Harmful Links
 
@@ -77,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Becoming friends with strangers allows them to see things like your office, home, shopping hauls, and vacations if you upload their images. If someone dangerous likes what they see, your possessions and finances can come at a risk.
 
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Become Habitual of Isolation From Family
 
@@ -96,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
@@ -106,21 +102,25 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Sometimes it is possible to find genuine people on Facebook who care for you, but you never know who that is.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Possibility of Communication Gap
 
  Even if you become friends with unknown people on Facebook, there is a noticeable lack of communication. This communication gap results in temporary friendships and no mutual respect for one another.
 
  You never know when the other person will get rude or stop respecting you, so it's better to stay away from strangers on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. Chances of Addiction
 
 [Social media addiction is a real thing](https://www.makeuseof.com/what-is-social-media-addiction/) . It can be so distracting that you might waste a lot of time. Once you add strangers on Facebook, they try to chat and interact with you.
 
  This can be a highly destructive activity that keeps you away from completing daily tasks. Even if you give your trustworthy online friends time, it is essential to maintain a balance between online and real-life relations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Increased Chances of Getting Scammed
 
@@ -149,24 +149,19 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-revolutionize-your-room-strategies-to-record-clear-sound/"><u>[New] In 2024, Revolutionize Your Room Strategies to Record Clear Sound</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-igtv-strategies-for-uploading-horizontal-videos-for-2024/"><u>[New] Mastering IGTV Strategies for Uploading Horizontal Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-script-mastery-online-academy/"><u>[Updated] 2024 Approved Script Mastery Online Academy</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/assessing-the-performance-why-you-might-still-want-a-samsung-galaxy-tab-s3/"><u>Assessing the Performance: Why You Might Still Want a Samsung Galaxy Tab S3</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-zte-nubia-z60-ultra-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your ZTE Nubia Z60 Ultra</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-y27s-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y27s Phone that is Locked?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-redmi-a2plus-bootloader-easily-by-drfone-android/"><u>How to Unlock Xiaomi Redmi A2+ Bootloader Easily</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi 14 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Motorola Defy 2? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/journey-into-metas-hub-administering-facebook-and-instagram-profiles/"><u>Journey Into Meta's Hub: Administering Facebook & Instagram Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-paradigms-shifted-unveiling-the-four-main-changes-in-online-society/"><u>Networking Paradigms Shifted: Unveiling the Four Main Changes in Online Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-prying-eyes-german-mandate-against-facebooks-whatsapp-data-invasion/"><u>No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-stealth-mode-concealing-your-facebook-and-instagram-enjoyment/"><u>Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionize-your-social-media-routine-best-fb-configs/"><u>Revolutionize Your Social Media Routine - Best Fb Configs</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-trusted-in-social-trade-essential-marketplace-security-tips/"><u>Stay Trusted in Social Trade: Essential Marketplace Security Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-concealed-count-how-many-more-are-leaving/"><u>The Concealed Count: How Many More Are Leaving?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-guide-to-handling-inactive-accounts-of-the-departed/"><u>The Guide to Handling Inactive Accounts of the Departed</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-fcpx-troubleshooting-resource-2023-edition/"><u>The Ultimate FCPX Troubleshooting Resource 2023 Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitter-and-instagram-again-for-trump/"><u>Twitter and Instagram, Again for Trump?</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-on-the-go-cinematographers-essentials/"><u>[New] 2024 Approved On-the-Go Cinematographer’s Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/7-inspiring-motivations-to-learn-a-second-language/"><u>7 Inspiring Motivations to Learn a Second Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-social-web-mastery-of-facebooks-open-platform-portal/"><u>Clarifying the Social Web: Mastery of Facebook’s Open Platform Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-connectivity-accessing-and-using-facebook-groups/"><u>Community Connectivity: Accessing and Using Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-intentional-facebook-experience-avoiding-reels/"><u>Crafting an Intentional Facebook Experience: Avoiding Reels</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/extreme-days-mean-a-warmer-world-the-real-score/"><u>Extreme Days Mean a Warmer World? The Real Score</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145917232-fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy.</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-htc-u23-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change HTC U23 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-film-like-a-pro-a-beginners-guide-to-high-quality-video-production/"><u>New Film Like a Pro A Beginners Guide to High-Quality Video Production</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-stop-apex-freeze-the-ultimate-guide-for-w11-users/"><u>Strategies to Stop Apex Freeze: The Ultimate Guide for W11 Users</u></a></li>
+<li><a href="https://extra-information.techidaily.com/understanding-and-utilizing-windows-11-auto-hdr-functionality/"><u>Understanding and Utilizing Windows 11 Auto HDR Functionality</u></a></li>
 </ul></div>
 

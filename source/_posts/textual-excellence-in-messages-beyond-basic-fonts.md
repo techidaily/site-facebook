@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-12-17T17:32:21.658Z
-updated: 2024-12-21T16:58:53.261Z
+date: 2024-12-21T05:09:11.522Z
+updated: 2024-12-22T03:15:02.832Z
 tags:
   - facebook
 categories:
@@ -39,20 +39,20 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make Italic Text in Messenger
 
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Use Strikethrough Text in Messenger
 
@@ -62,17 +62,9 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use Monospace Text in Messenger
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
@@ -80,9 +72,17 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -97,7 +97,7 @@ To send text in a block of code:
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
@@ -121,20 +121,16 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-optimize-video-publishing-timing-for-maximum-views/"><u>[New] 2024 Approved Optimize Video Publishing Timing for Maximum Views</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-successfully-record-and-manage-internet-radio/"><u>[New] How to Successfully Record and Manage Internet Radio</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-no-cost-copyright-free-pubg-image-bundles/"><u>[New] In 2024, No-Cost, Copyright-Free PUBG Image Bundles</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-insiders-handbook-to-whatsapp-hidden-features/"><u>[Updated] In 2024, The Insider's Handbook to WhatsApp Hidden Features</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-ultimate-collection-optimal-fb-lite-videos/"><u>2024 Approved Ultimate Collection Optimal FB Lite Videos</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/easy-steps-on-how-to-create-a-new-apple-id-account-on-iphone-12-pro-max-drfone-by-drfone-ios/"><u>Easy Steps on How To Create a New Apple ID Account On iPhone 12 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/exciting-virtual-horizons-6-major-changes-ahead-for-fbs-metaverse/"><u>Exciting Virtual Horizons: 6 Major Changes Ahead for FB’s Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion</u></a></li>
-<li><a href="https://facebook.techidaily.com/fourfold-tailoring-techniques-for-a-unique-social-media-feed/"><u>Fourfold Tailoring Techniques for a Unique Social Media Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-selfie-to-story-designing-an-fb-cover-with-your-avatar/"><u>From Selfie to Story: Designing an FB Cover With Your Avatar</u></a></li>
-<li><a href="https://facebook.techidaily.com/handling-late-friends-online-presence-with-sensitivity-and-care/"><u>Handling Late Friends' Online Presence with Sensitivity and Care</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-interruption-the-impact-of-taking-a-step-back-online/"><u>Instagram Interruption: The Impact of Taking a Step Back Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-void-living-without-online-spaces/"><u>Social Void: Living Without Online Spaces?</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1722901031903-the-risks-of-induction-include-increased-likelihood-of-cesarean-delivery-if-not-managed-properly/"><u>The Risks of Induction Include Increased Likelihood of Cesarean Delivery if Not Managed Properly.</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-missing-mapi32dll-solutions-for-windows-users/"><u>Troubleshooting Missing 'Mapi32.dll': Solutions for Windows Users</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-design-your-digital-joke/"><u>2024 Approved Design Your Digital Joke</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-social-media-fluency-shortcuts-mastery-guide/"><u>Boost Your Social Media Fluency: Shortcuts Mastery Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-dissemination-strategies-sending-reels-from-instagram-to-facebook/"><u>Content Dissemination Strategies: Sending Reels From Instagram to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-unique-visionaries-on-your-fans-feeds-with-facebook-reels/"><u>Crafting Unique Visionaries on Your Fans' Feeds with Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/creators-get-richer-on-instagram-the-new-ways-to-cash-in/"><u>Creators Get Richer on Instagram: The New Ways to Cash In</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-apple-iphone-11-pro-max-to-chromecast-drfone-by-drfone-ios/"><u>How to Cast Apple iPhone 11 Pro Max to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-infinix-hot-40i-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Hot 40i Fingerprint Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147503681-is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-bings-conversational-assistant-the-ultimate-guide-to-navigating-microsofts-innovative-ai-chat-feature/"><u>Mastering Bing's Conversational Assistant: The Ultimate Guide to Navigating Microsoft’s Innovative AI Chat Feature</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/maximizing-gaming-performance-how-cooler-masters-mx-mighty-2800w2000w-psus-can-support-several-nvidia-rtx-4090-gpus/"><u>Maximizing Gaming Performance: How Cooler Master's MX Mighty 2800W/2000W PSUs Can Support Several NVIDIA RTX 4090 GPUs</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleash-the-power-of-pc-graphics-in-your-fortnite-adventures/"><u>Unleash the Power of PC Graphics in Your Fortnite Adventures</u></a></li>
 </ul></div>
 

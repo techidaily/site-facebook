@@ -1,7 +1,7 @@
 ---
 title: Identifying Your Facebook Followers
-date: 2024-12-16T17:26:07.484Z
-updated: 2024-12-21T16:34:31.694Z
+date: 2024-12-20T04:06:20.154Z
+updated: 2024-12-21T20:26:53.502Z
 tags:
   - facebook
 categories:
@@ -24,23 +24,23 @@ thumbnail: https://thmb.techidaily.com/e8207335add140aa41173bc907c1a473d602bd8fa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to See Who Follows You on Facebook on Mobile
 
  The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook profile followers section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-followers-section-1.jpeg)
 
-![Facebook number of followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/-Facebook-number-of-followers.jpeg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Facebook number of followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/-Facebook-number-of-followers.jpeg)
 
 Close
 
@@ -86,19 +86,19 @@ To do this on the desktop browser:
 ![Profile icon options Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/profile-icon-options-facebook-homepage.jpg)
 3. Click**Settings** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
 7. Select**Public** to allow anyone to follow you, including those who aren't your friends on Facebook.  
@@ -110,10 +110,14 @@ To change your followers' preference on the Facebook mobile app:
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -122,10 +126,6 @@ Close
 2. Tap the three**horizontal dots** immediately to the right of**Edit Profile** (below your name).
 3. Select**Follow** **Settings** .
 4. Under**Who Can Follow Me** , tick**Public** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Keep Control Over Your Facebook Followers
 
@@ -148,19 +148,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-optimal-live-video-distributors-suite/"><u>[New] Optimal Live Video Distributors' Suite</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-unlock-igtv-master-video-submission/"><u>2024 Approved Unlock IGTV Master Video Submission</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/ballot-battlegrounds-prime-election-strategy-games/"><u>Ballot Battlegrounds Prime Election Strategy Games</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/browsing-made-memorable-the-leading-screen-recorder-software-for-2024/"><u>Browsing Made Memorable The Leading Screen Recorder Software for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expertly-manipulating-colors-in-video-edits/"><u>In 2024, Expertly Manipulating Colors in Video Edits</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-unleash-artistry-a-curated-list-of-premium-3d-animation-software/"><u>In 2024, Unleash Artistry A Curated List of Premium 3D Animation Software</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/introducing-gpt-4-opening-up-cutting-edge-ai-capabilities-to-all/"><u>Introducing GPT- 4: Opening Up Cutting-Edge AI Capabilities to All</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-drops-trial-rollout-to-insta-and-fb-followers/"><u>Meta Drops Trial Rollout to Insta and FB Followers</u></a></li>
-<li><a href="https://facebook.techidaily.com/moving-forward-portal-gets-portable-with-new-launch/"><u>Moving Forward: Portal Gets Portable with New Launch</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/overcoming-audio-hurdles-how-to-restore-functionality-to-your-steelseries-arctis-7-mic/"><u>Overcoming Audio Hurdles: How to Restore Functionality to Your SteelSeries Arctis 7 Mic</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-social-account-synergy-in-the-xbox-universe/"><u>Seamless Social Account Synergy in the Xbox Universe</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-social-spot-how-to-silence-your-fb-visibility/"><u>The Unseen Social Spot: How to Silence Your FB Visibility</u></a></li>
-<li><a href="https://facebook.techidaily.com/verified-victory-quest-who-reigns-supreme-gold-metas-or-silver-twitters/"><u>Verified Victory Quest: Who Reigns Supreme, Gold Metas or Silver Twitters?</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-users-shielded-germany-stops-facebook-data-collection/"><u>WhatsApp Users Shielded: Germany Stops Facebook Data Collection</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-conquered-by-creatives-from-wmm-to-a-stellar-vimeo-presence/"><u>[New] 2024 Approved Conquered By Creatives From WMM to a Stellar Vimeo Presence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-essential-steps-for-seamless-youtube-video-loops-for-2024/"><u>[Updated] Essential Steps for Seamless YouTube Video Loops for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-affordable-quality-cameras-the-ultimate-buyers-guide/"><u>[Updated] In 2024, Affordable, Quality Cameras The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-clip-narration-devisee/"><u>2024 Approved Clip Narration Devisee</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-mastery-and-inspiration-the-ultimate-list-of-android-drawing-apps/"><u>2024 Approved Mastery & Inspiration The Ultimate List of Android Drawing Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/advanced-messaging-typography-sculpting-your-text/"><u>Advanced Messaging Typography: Sculpting Your Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-if-facebook-has-hit-its-stride-peak/"><u>Assessing if Facebook Has Hit Its Stride Peak</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-metas-status-symbol-a-financial-decision/"><u>Assessing Meta's Status Symbol - A Financial Decision?</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-fb-push-notifications-in-a-flash/"><u>Banishing FB Push Notifications in a Flash</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-web-spaces-for-aging-population-interaction/"><u>Best Web Spaces for Aging Population Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-the-court-home-facebook-and-twitters-game-plan/"><u>Bringing the Court Home: Facebook & Twitter's Game Plan</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/brother-l2740dw-compatible-with-windows-free-driver-download/"><u>Brother L2740DW Compatible with Windows: Free Driver Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/convergence-of-realms-defining-the-metaverse-nexus/"><u>Convergence of Realms: Defining the Metaverse Nexus</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-compelling-and-dynamic-fb-life-story/"><u>Crafting A Compelling and Dynamic FB Life Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrency-spotlight-expect-more-ads/"><u>Cryptocurrency Spotlight: Expect More Ads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/getting-started-in-the-world-of-online-product-evaluation-channels-for-2024/"><u>Getting Started in the World of Online Product Evaluation Channels for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-share-on-apple-iphone-13-drfone-by-drfone-ios/"><u>How to Screen Share on Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-upgrade-your-canon-mg2900-printer-with-latest-drivers-and-firmware/"><u>How to Upgrade Your Canon MG2900 Printer with Latest Drivers & Firmware</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Personalize Your Playlists Anywhere - FB's Mini-Panel Feature, Spotify
-date: 2024-12-15T17:45:16.918Z
-updated: 2024-12-21T17:56:12.789Z
+date: 2024-12-21T01:26:39.440Z
+updated: 2024-12-21T18:07:41.968Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Enjoy Your Favorite Spotify Content on the Facebook App
 
  Before the rollout of this new miniplayer, it was already possible to share Spotify songs on Facebook with friends and family. But whenever you wanted to listen to them, you were automatically redirected to the Spotify app or website.
@@ -37,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
@@ -53,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -64,10 +60,14 @@ thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -77,7 +77,7 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -101,18 +101,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-discover-8-trustworthy-online-content-promoters/"><u>[Updated] 2024 Approved Discover 8 Trustworthy Online Content Promoters</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-discover-the-hits-top-tracks-on-spotify/"><u>2024 Approved Discover the Hits Top Tracks on Spotify</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-setup-instructions-for-epson-et-4550-windows-drivers-speedy-installation-process/"><u>Download and Setup Instructions for Epson ET-4550 Windows Drivers – Speedy Installation Process</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exceptional-display-and-unmatched-flexibility-discovering-the-top-tier-ultrabook-on-zdnet/"><u>Exceptional Display & Unmatched Flexibility: Discovering the Top-Tier Ultrabook on ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/focus-on-friendship-not-politics-in-feeds/"><u>Focus on Friendship, Not Politics in Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/gain-peace-of-mind-with-instagrams-whatsapp-2fa-delivery/"><u>Gain Peace of Mind with Instagram's WhatsApp 2FA Delivery</u></a></li>
-<li><a href="https://howto.techidaily.com/gmail-not-working-on-samsung-galaxy-s23plus-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Samsung Galaxy S23+ 7 Common Problems & Fixes | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-vivo-s17-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Vivo S17 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-iphone-13-pro-max-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with iPhone 13 Pro Max Swipe-Up? Try These 11 Solutions</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/microsofts-latest-contender-how-the-surface-laptop-with-copilot-plus-outperforms-macbook-air-across-three-key-aspects-a-deep-dive-on-zdnet/"><u>Microsoft's Latest Contender: How the Surface Laptop with Copilot + Outperforms MacBook Air Across Three Key Aspects - A Deep Dive on ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-media-livestream-ig-now/"><u>No Media? Livestream IG NOW</u></a></li>
-<li><a href="https://facebook.techidaily.com/peaceful-pages-avoid-political-distractions-on-fb/"><u>Peaceful Pages: Avoid Political Distractions on FB</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hp-envy-27-4k-usb-c-monitor-review/"><u>[New] HP Envy 27 4K USB-C Monitor Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-basic-framework-for-crafting-persuasive-social-media-messages/"><u>[New] In 2024, Basic Framework for Crafting Persuasive Social Media Messages</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-video-descriptions-the-key-to-threefold-success/"><u>[Updated] 2024 Approved Instagram Video Descriptions - The Key to Threefold Success</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-building-your-hyperlapse-filmmaking-toolkit/"><u>[Updated] In 2024, Building Your Hyperlapse Filmmaking Toolkit</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-navigating-the-leading-live-church-broadcast-services-for-2024/"><u>[Updated] Navigating the Leading Live Church Broadcast Services for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-primer-on-establishing-innovative-facebook-gatherings/"><u>A Primer on Establishing Innovative Facebook Gatherings</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-whos-on-your-friend-trail/"><u>Accessing Who's on Your Friend Trail</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-curtain-investigating-facebooks-smartwatch-blueprint/"><u>Behind the Curtain: Investigating Facebook's Smartwatch Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-bond-detach-your-instagram-and-facebook/"><u>Break the Bond: Detach Your Instagram and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dangers-of-duplicating-online-identities-on-fb/"><u>Dangers of Duplicating Online Identities on FB</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-breakthrough-methodology-introducing-chapters-in-your-youtube-videos/"><u>In 2024, Breakthrough Methodology Introducing Chapters in Your YouTube Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-leading-speech-recording-software-for-mac-discovering-our-five-favorites/"><u>In 2024, Leading Speech Recording Software for Mac Discovering Our Five Favorites</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719143988249-innovating-leadership-sheryls-time-at-facebook-inc/"><u>Innovating Leadership: Sheryl’s Time at Facebook Inc.</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/lenovo-thinkpad-x12-review-masterfully-crafted-convertible-tablet-and-laptop-combo-plus-an-impeccable-typing-experience/"><u>Lenovo ThinkPad X12 Review - Masterfully Crafted Convertible Tablet and Laptop Combo Plus, an Impeccable Typing Experience</u></a></li>
+<li><a href="https://solve-info.techidaily.com/resolving-graphics-and-video-card-malfunctions-expert-tips-from-yl-computing/"><u>Resolving Graphics & Video Card Malfunctions: Expert Tips From YL Computing</u></a></li>
 </ul></div>
 

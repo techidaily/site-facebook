@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2024-12-14T17:39:43.216Z
-updated: 2024-12-21T19:24:42.669Z
+date: 2024-12-17T22:32:57.500Z
+updated: 2024-12-22T03:45:34.656Z
 tags:
   - facebook
 categories:
@@ -30,21 +30,21 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -62,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -78,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -87,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -106,6 +102,10 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -119,7 +119,7 @@ Finally, we come to the economic backing to make it all happen.
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
@@ -143,24 +143,20 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-dive-into-broadcasting-proficiency-with-obs-on-youtube-and-twitch/"><u>[New] Dive Into Broadcasting Proficiency with OBS on YouTube and Twitch</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-pro-moviemakers-manual-for-pc-mac-and-mobile-systems/"><u>[Updated] 2024 Approved Pro Moviemaker's Manual for PC, Mac & Mobile Systems</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/comment-localisez-votre-cle-wi-fi-perdu-astuces-utiles-et-conseils/"><u>Comment Localisez Votre Clé Wi-Fi Perdu - Astuces Utiles Et Conseils</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elite-list-best-apps-for-live-basketball-and-international-football-games/"><u>Elite List Best Apps for Live Basketball and International Football Games</u></a></li>
-<li><a href="https://win-answers.techidaily.com/enhanced-battlefield-2042-experience-resolving-the-notorious-pc-lag-and-stuttering-woes/"><u>Enhanced Battlefield 2042 Experience: Resolving the Notorious PC Lag & Stuttering Woes</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclusivitys-edge-three-countries-without-a-facebook-presence/"><u>Exclusivity's Edge: Three Countries without a Facebook Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/fine-tuning-your-facebook-interactions-for-joyfulness/"><u>Fine-Tuning Your Facebook Interactions for Joyfulness</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-google-pixel-7a-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Google Pixel 7a Quickly | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacked-and-helpless-reestablish-your-access-with-ease/"><u>Hacked & Helpless? Reestablish Your Access with Ease</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-secrets-of-snapping-finding-missing-private-images/"><u>In 2024, Secrets of Snapping Finding Missing Private Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastery-over-inaccessible-online-social-networks/"><u>Mastery over Inaccessible Online Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximize-your-health-isbms-innovative-cbt-approach/"><u>Maximize Your Health: ISBM's Innovative CBT Approach</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-sarcasm-facebooks-updated-guidelines/"><u>Navigating Sarcasm: Facebook's Updated Guidelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-your-career-on-facebook-landscape/"><u>Navigating Your Career on Facebook Landscape</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-error-0x887a0006-in-win1011-graphics/"><u>Overcoming Error 0X887A0006 in Win10/11 Graphics</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-guide-solve-the-common-anti-cheat-bug-in-apex-legends/"><u>Quick Guide: Solve the Common Anti-Cheat Bug in Apex Legends</u></a></li>
-<li><a href="https://facebook.techidaily.com/satire-scrutiny-in-social-networks-policies/"><u>Satire Scrutiny in Social Network's Policies</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1722996764922-troubleshooting-anticheat-failure-errors-in-escape-from-tarkov-solved/"><u>Troubleshooting 'Anticheat Failure' Errors in Escape From Tarkov - Solved!</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-an-image-to-text-stylist-facebooks-ai/"><u>Unveiling an Image-to-Text Stylist: Facebook’s AI</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crucial-details-for-deciding-on-a-youtube-tv-subscription/"><u>[New] 2024 Approved Crucial Details for Deciding on a YouTube TV Subscription</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-craft-cinematic-edits-with-ease-and-precision-in-camtasia-9/"><u>[New] Craft Cinematic Edits with Ease and Precision in Camtasia 9</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-designing-the-ideal-youtube-playlist-for-you/"><u>[Updated] 2024 Approved Designing the Ideal YouTube Playlist for You</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-list-of-accessories-to-enhance-your-sj4000/"><u>2024 Approved The Ultimate List of Accessories to Enhance Your SJ4000</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplify-your-brands-reach-unveiling-eight-key-differences-between-profiles-and-pages/"><u>Amplify Your Brand's Reach: Unveiling Eight Key Differences Between Profiles & Pages</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/declutter-your-inbox-easily-using-these-tricks-say-goodbye-to-messy-emails-without-complicated-filters-or-separate-addresses-the-verge/"><u>Declutter Your Inbox Easily Using These Tricks - Say Goodbye to Messy Emails Without Complicated Filters or Separate Addresses | The Verge</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-digital-memories-linger-forever/"><u>Do Digital Memories Linger Forever?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-policy-nuances-at-facebooks-launched-transparency-center/"><u>Exploring Policy Nuances at Facebook’s Launched Transparency Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-obtain-corsairs-h80i-v2-gpu-cooling-system-software-update/"><u>How to Obtain Corsair's H80i v2 GPU Cooling System Software Update</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/iphonepcwhatsapp/"><u>IPhoneからPCへのWhatsAppデータ移行ガイド：初学者用</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/the-beat-of-the-future-top-emerging-raps-on-tiktok/"><u>The Beat of the Future Top Emerging Raps on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-the-virtual-world-12-secrets-for-boosting-fb-engagement/"><u>Thriving in the Virtual World: 12 Secrets for Boosting FB Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-strategies-for-updating-fb-image/"><u>Timely Strategies for Updating FB Image</u></a></li>
 </ul></div>
 

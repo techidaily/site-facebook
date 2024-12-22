@@ -1,7 +1,7 @@
 ---
 title: "The Puzzle: Society's Scorn Towards Online Friendship Groups"
-date: 2024-08-15T18:53:23.562Z
-updated: 2024-08-16T18:53:23.562Z
+date: 2024-12-15T00:08:46.280Z
+updated: 2024-12-21T23:14:21.550Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  So, why do so many people hate Facebook? Here's a look at some of the most common gripes people have with the company and platform.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. The Platform's Overabundance of Features
 
 ![Browsing Facebook on PC and Phone](https://thmb.techidaily.com/c614df743851cde902b9dc7b624e356646f565efb6b83602d7f5ffd347873428.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you've been using Facebook for a long time, you would have noticed what could be considered an obsessive desire to make it "the" social media platform. Twitter is where you share quick thoughts, Snapchat is where you message your friends and TikTok is for short videos. However, Facebook has tried to be everything for everyone and, in doing so, has made the platform confusing and difficult to use.
 
@@ -29,14 +37,12 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  Its constant feature adoption has made it feel like Facebook is just trying to do too much and, in the process, has lost its focus. What really is Facebook for?
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Privacy Concerns
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
@@ -47,18 +53,12 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  This lack of privacy is a big turnoff for many people and is one of the main reasons they hate Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## 3\. Data Breaches
 
  In addition to privacy concerns, Facebook has also had to deal with a number of data breaches. These breaches have exposed the personal information of millions of users and have left people feeling like they can't trust Facebook with their data.
 
  The most recent breach happened in 2021 and exposed the personal information of over 500 million users. This breach was especially concerning because it happened despite Facebook's claims that it had fixed the problems that caused the Cambridge Analytica scandal.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## 4\. Its Addictive Potential
 
  Many people also hate Facebook because it can be addictive. They designed it to keep you engaged for as long as possible. This means that you're constantly being bombarded with notifications, new posts, and ads.
@@ -68,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
  TikTok's rise has reduced some addiction-related criticisms of Facebook, but with its new Reels feature, it looks like the criticisms won't be gone for long.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Fake News
 
 ![fake-news-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/fake-news-2.jpg)
@@ -84,9 +85,6 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## 6\. Perceived Inaction on Hate Speech
 
 ![man holding hate is a virus sign](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/man-holding-hate-is-a-virus-sign.jpg)
@@ -97,20 +95,21 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Making Sense of It All
 
  Many of the reasons people hate Facebook are valid. The platform has serious problems with privacy, fake news, and hate speech. It's also addictive and can be detrimental to your mental health.
 
  However, it's important to remember that Facebook is just a tool. It's how we use it that matters.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +118,26 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/alive-and-well-decoding-facebooks-resistance-to-die-off/"><u>'Alive and Well': Decoding Facebook’s Resistance to Die-Off</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-mirthful-milestones-an-examination-of-goofy-odyssey/"><u>[New] 2024 Approved 'Mirthful Milestones' An Examination of 'Goofy Odyssey'</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-eight-outstanding-models-your-guide-to-5k-monitors/"><u>[New] 2024 Approved Eight Outstanding Models - Your Guide to 5K Monitors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-picture-in-picture-on-safaris-ecosystem/"><u>[Updated] Navigating Picture-in-Picture on Safari's Ecosystem</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamlined-sharing-the-best-shortened-link-apps-for-youtubers/"><u>[Updated] Streamlined Sharing The Best Shortened Link Apps for Youtubers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-addressing-the-myself-glitch-on-social-media-platforms/"><u>2024 Approved Addressing the 'Myself' Glitch on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-call-for-action-facebook-and-google-must-tackle-online-scams-head-on/"><u>A Call for Action: Facebook & Google Must Tackle Online Scams Head-On</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-different-look-at-online-connectivity-metrics/"><u>A Different Look at Online Connectivity Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-algorithm-behind-photodna-technology/"><u>Decoding the Algorithm Behind PhotoDNA Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/directive-mechanisms-for-leading-facebook-group-discussions/"><u>Directive Mechanisms for Leading Facebook Group Discussions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/echovideo-capture-toolkit-for-fb-for-2024/"><u>EchoVideo Capture Toolkit for FB for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-techniques-for-funimate-video-extraction/"><u>Essential Techniques for Funimate Video Extraction</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-fake-news-keeping-users-informed-amidst-outbreak/"><u>Fighting Fake News: Keeping Users Informed Amidst Outbreak</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/get-lost-in-a-good-story-find-out-which-are-this-years-top-8-ereader-applications-2/"><u>Get Lost in a Good Story - Find Out Which Are This Year's Top 8 eReader Applications (2#)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-switch-between-facebook-accounts/"><u>How to Quickly Switch Between Facebook Accounts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-effortless-offline-access-best-youtube-playlist-downloaders/"><u>In 2024, Effortless Offline Access Best YouTube Playlist Downloaders</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/legitimate-methods-vs-chatbots-for-secure-win-11-passwords/"><u>Legitimate Methods Vs. Chatbots for Secure Win 11 Passwords</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmart-facebook-scams-find-the-14-predicaments-quickly/"><u>Outsmart Facebook Scams: Find the 14 Predicaments Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-access-after-deleting-your-facebook-login/"><u>Restoring Access After Deleting Your Facebook Login</u></a></li>
+</ul></div>
 

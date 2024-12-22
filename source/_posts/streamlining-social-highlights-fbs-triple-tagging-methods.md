@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Social Highlights: FB's Triple Tagging Methods"
-date: 2024-08-23T02:14:05.508Z
-updated: 2024-08-24T02:14:05.508Z
+date: 2024-12-15T23:56:19.862Z
+updated: 2024-12-22T01:06:46.216Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ Wondering how to tag someone on Facebook?
 
  Just be aware that if your post privacy is set to**Friends** , tagging someone makes your post visible to their friends as well. You'll see the post privacy button change to**Friends (+)** to reflect this---see[our guide to Facebook symbols](https://www.makeuseof.com/tag/guide-facebook-symbols/) if this is new to you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Tag Who You Were With
 
  Facebook allows you to add several elements to your posts, including feelings, location check-ins, and similar. One of these lets you mention that you were with certain friends.
@@ -43,11 +47,16 @@ Wondering how to tag someone on Facebook?
 
 ![Facebook With Friends Tag](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-with-friends-tag.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The above method of tagging people makes the most sense when mentioning someone in what your status says or making sure they see it. This option is more useful for letting people know your friends were actually with you.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Photo Tagging
 
 [Tagging friends in Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) will add their name to a**With** line in the photo's description. It also lets others easily identify them by mousing over their face in the picture.
@@ -59,8 +68,9 @@ Wondering how to tag someone on Facebook?
 ![Tag Facebook Photo Example](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/tag-facebook-photo-example.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Depending on the privacy settings of the person you tagged and the owner of the photo, they may have to approve the tag manually. And you might not see the tag option at all on other people's photos if they have disabled the option to let other people tag their images.
 
  If you want to add tags to your own photo when you upload it, click the**Edit** button at the top-left of the image when you have the post open. Click**Tag photo** from the left side, then follow the same steps to click on faces and enter names.
@@ -68,25 +78,20 @@ Wondering how to tag someone on Facebook?
 ![Facebook Tag New Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-tag-new-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
+
 ## Facebook Tagging Made Easy
 
  The above three methods are the main ways to use the tagging feature on Facebook. Use the**@name** method anywhere you want to highlight a friend or bring their attention to a post. Don't forget that you can always share a link to public Facebook posts if you want them to see something, too.
 
  Meanwhile, you might want to make sure your own Facebook privacy settings are set up so you don't get unnecessary tags.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +100,21 @@ Wondering how to tag someone on Facebook?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tech-updates-forgotten-the-top-4-innovations-to-remember/"><u>Essential Tech Updates Forgotten: The Top 4 Innovations to Remember</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-group-dynamics-in-social-media-giants/"><u>Exploring the Group Dynamics in Social Media Giants</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-oppo-a2-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Oppo A2 Activity | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-a05-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy A05 Activity | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-value-in-the-marketplace-for-quality-cost-effective-microphones/"><u>In 2024, Best Value in the Marketplace for Quality, Cost-Effective Microphones</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/inside-look-apples-latest-innovation-with-the-m3-macbook-air-and-its-best-in-class-traits-zdnet/"><u>Inside Look: Apple's Latest Innovation with the M3 MacBook Air and Its Best-In-Class Traits | ZDNET</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-online-identity-consequences-free/"><u>Is Online Identity Consequences-Free?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-social-id-check-unveiling-on-fb/"><u>Meta's Social ID Check - Unveiling on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-messaging-innovations-roll-out-on-fb-messenger-and-instagram/"><u>New Messaging Innovations Roll Out on FB Messenger & Instagram</u></a></li>
+<li><a href="https://some-skills.techidaily.com/taking-the-leap-secrets-for-free-fcp-acquisition-for-2024/"><u>Taking the Leap Secrets for Free FCP Acquisition for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unleashing-iphones-potential-for-dynamic-shots-for-2024/"><u>Unleashing iPhone’s Potential for Dynamic Shots for 2024</u></a></li>
+</ul></div>
 

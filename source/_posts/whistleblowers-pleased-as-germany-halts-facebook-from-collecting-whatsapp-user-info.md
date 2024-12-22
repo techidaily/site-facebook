@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-12-16T16:14:08.081Z
-updated: 2024-12-21T19:33:44.311Z
+date: 2024-12-19T20:30:05.462Z
+updated: 2024-12-21T21:50:15.210Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,16 +81,21 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-and-science-of-hand-movement-tracking/"><u>[New] The Art and Science of Hand Movement Tracking</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capture-and-record-a-new-era-of-iphoneipad-recording/"><u>[Updated] 2024 Approved Capture & Record A New Era of iPhone/iPad Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/epic-failures-in-digital-worlds-biggest-players/"><u>Epic Failures in Digital World's Biggest Players</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/concept-to-screen-channel-yt-for-pioneering-filmmaking-techniques-for-2024/"><u>From Concept to Screen Channel YT for Pioneering Filmmaking Techniques for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/furtive-features-fb-like-privacy-settings-guide/"><u>Furtive Features: FB Like Privacy Settings Guide</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-from-iphone-13-pro-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock from iPhone 13 Pro</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/is-chatgpt-an-oracle-of-accuracy/"><u>Is ChatGPT an Oracle of Accuracy?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-sleep-mode-a-step-by-step-guide/"><u>Mastering Messenger Kids' Sleep Mode: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-envisions-a-new-era-potentially-undermining-facebookinsta-eu-status/"><u>Meta Envisions a New Era, Potentially Undermining Facebook/Insta EU Status</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ottimizzazione-digitale-con-digiarty-professionalisti-della-conversione-e-conservazione-video-and-dvd/"><u>Ottimizzazione Digitale Con Digiarty – Professionalisti Della Conversione E Conservazione Video & DVD</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/the-recorders-report-card-best-in-class-rated-for-2024/"><u>The Recorder's Report Card Best in Class Rated for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discovering-best-paid-and-free-srt-translation-tools/"><u>[New] 2024 Approved Discovering Best Paid & Free SRT Translation Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-unleash-creativity-top-screencast-tools-recommended-by-experts/"><u>[New] Unleash Creativity Top Screencast Tools Recommended by Experts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-chromesafari-blank-screens-here-are-9-tips-to-restore-your-video/"><u>[Updated] Chrome/Safari Blank Screens? Here Are 9 Tips to Restore Your Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-reasons-you-should-be-worried-about-the-facebook-metaverse/"><u>3 Reasons You Should Be Worried About the Facebook Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-social-media-killed-online-forums/"><u>6 Reasons Social Media Killed Online Forums</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/access-the-latest-version-of-amd-radeon-drivers-for-windows-8-without-cost/"><u>Access the Latest Version of AMD Radeon Drivers for Windows 8 Without Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/adaptive-timing-for-profile-picture-evolution/"><u>Adaptive Timing for Profile Picture Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/basketball-clubs-refuse-social-media-access/"><u>Basketball Clubs Refuse Social Media Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-life-to-chats-with-augmented-reality-updates-from-fb/"><u>Bringing Life to Chats with Augmented Reality Updates From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-securityfbcom/"><u>Checking the Legitimacy of FB's Safety Mail Address: security@fb.com</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/commanding-machine-consciousness-towards-goodness/"><u>Commanding Machine Consciousness Towards Goodness</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-prevent-doom-eternal-from-suddenly-crashing/"><u>How to Prevent Doom Eternal From Suddenly Crashing?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-itel-p55plus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Itel P55+ to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/1725285882266-iphonedvd/"><u>IPhoneにフィットするDVDの視聴:様々な手段で簡単に楽しむ方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154597437-secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/top-10-video-restoration-tools-ultimate-guide-for-windows-and-mac-users/"><u>Top 10 Video Restoration Tools: Ultimate Guide for Windows & Mac Users</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-12-19T17:58:09.031Z
-updated: 2024-12-21T19:37:24.546Z
+date: 2024-12-20T00:18:53.140Z
+updated: 2024-12-22T05:12:02.438Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,20 +61,17 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ow-to-find-your-niche-and-style-a-starters-guide/"><u>[New] How to Find Your Niche and Style - a Starter's Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-troubleshoot-and-eliminate-green-screen-issues-on-mac/"><u>[Updated] 2024 Approved Troubleshoot and Eliminate Green Screen Issues on Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-transform-videos-with-easy-to-use-sound-effects/"><u>[Updated] Transform Videos with Easy-to-Use Sound Effects</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-chromium-connection-pixel-phone-rhythms/"><u>2024 Approved The Chromium Connection Pixel Phone Rhythms</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-itel-s23-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-reviews-by-tom-on-top-electronic-devices/"><u>Comprehensive Reviews by Tom on Top Electronic Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-factors-for-buying-a-facebook-smart-hub/"><u>Essential Factors for Buying a Facebook Smart Hub</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-retire-your-facebook-business-profile-without-astonishment/"><u>How to Retire Your Facebook Business Profile Without Astonishment</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-complexities-of-social-media-service-links-in-fb/"><u>Navigating the Complexities of Social Media Service Links in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-dangerous-trade-tide-scam-spotting-and-safeguarding-tips-for-facebook/"><u>Navigating the Dangerous Trade Tide – Scam Spotting & Safeguarding Tips for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/portals-new-journey-begins-with-launch-of-go-model/"><u>Portal’s New Journey Begins with Launch of Go Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-archive-blueprint-for-facebook-history/"><u>The Ultimate Archive Blueprint for Facebook History</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unleash-your-productivity-save-big-with-the-10-in-1-docking-station-at-35-off-today-exclusive-deal-on-zdnet/"><u>Unleash Your Productivity: Save Big with the 10-in-1 Docking Station at 35% Off Today - Exclusive Deal on ZDNet!</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-on-the-horizon-facebooks-new-story-panel-features/"><u>What's on the Horizon? Facebook's New Story Panel Features?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erfecting-yt-thumbnails-quick-and-simple-guide-for-2024/"><u>[New] Perfecting YT Thumbnails Quick & Simple Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagrams-peak-performance-with-these-top-8-planning-tools-for-2024/"><u>[Updated] Instagram's Peak Performance with These Top 8 Planning Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-clean-up-your-facebook-account/"><u>5 Ways to Clean Up Your Facebook Account</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/a-step-by-step-approach-to-fixing-the-0x80070570-problem-in-windows/"><u>A Step-by-Step Approach to Fixing the '0X80070570' Problem in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-hidden-chat-photos-messenger-screen-shot-triggers/"><u>Alert for Hidden Chat Photos: Messenger Screen Shot Triggers</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brand-image-with-standout-timeline-images/"><u>Building a Brand Image with Standout Timeline Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-methods-to-reset-and-protect-your-fb-password/"><u>Critical Methods to Reset and Protect Your Fb Password</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diagnosing-and-fixing-pc-crashes-during-stardew-valley-gameplay/"><u>Diagnosing and Fixing PC Crashes During Stardew Valley Gameplay</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/goprowindows-pcandroid-smartphone/"><u>GoPro映像編集用ソフトウェア＆アプリ「Windows PC/Android Smartphone」</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-14-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi 14 Pro to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/m4a-a-wav-convertito-online-e-gratuitamente-con-movavi/"><u>M4A a WAV Convertito Online E Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210851650-9783988313416-mindfulness-for-beginners/"><u>MINDFULNESS FOR BEGINNERS | Free Book</u></a></li>
 </ul></div>
 

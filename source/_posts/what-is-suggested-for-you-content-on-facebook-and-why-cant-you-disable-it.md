@@ -1,7 +1,7 @@
 ---
 title: What Is “Suggested for You” Content on Facebook, and Why Can’t You Disable It?
-date: 2024-08-23T02:10:02.869Z
-updated: 2024-08-24T02:10:02.869Z
+date: 2024-12-16T19:43:00.854Z
+updated: 2024-12-21T21:26:28.366Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,10 @@ Hence, the content you see as suggestions is based on the following:
 
  Facebook content creators can benefit significantly from these suggestions, which[increase the reach and engagement of Facebook posts](https://www.makeuseof.com/how-to-increase-facebook-engagement-posts/) . However, these can sometimes be annoying for users—especially if the content they see is irrelevant. Sadly, Facebook doesn't allow users to disable these suggestions. The question is, why?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Can't You Turn Off "Suggested for You" Content on Facebook?
 
 ![A phone with the Facebook app open and social media spelled out in Scrabble tiles](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/facebook-social-media.jpg)
@@ -48,8 +52,9 @@ Hence, the content you see as suggestions is based on the following:
  Simply put, Facebook doesn't want you to stop these suggestions but tailor them to your liking. This way, its algorithm could keep you on the app longer, and you can enjoy relevant content you might not have noticed otherwise. Let's take a look at how you can customize these suggestions.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Tailor the "Suggested for You" Content on Facebook
 
  There is no direct way to customize what you see as suggested content on Facebook. Instead, you will have to hide or snooze all posts containing irrelevant content separately. You can let Facebook know what you do not want to see as suggestions, so it will only suggest relevant content.
@@ -64,10 +69,11 @@ Hence, the content you see as suggestions is based on the following:
 
 ![Hiding a Suggest for You Post in Facebook News Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/hiding-a-suggest-for-you-post-in-facebook-news-feed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Facebook app users can also tailor content suggestions the same way on their iOS and Android devices. You'll find the same options to manage content suggestions here as you do on the Facebook website.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tips to See Relevant Content in the "Suggested for You" Section
 
@@ -77,21 +83,20 @@ Hence, the content you see as suggestions is based on the following:
 * If irrelevant content appears multiple times in suggestions, even after hiding it, it is best to unfollow or block that Facebook page. To unfollow a Facebook page, click on its name in the suggested post and click the**Following** button. To block the Facebook page, click on its name from the suggested post, click on the**three horizontal dots** , and then click**Block** .  
 ![Click on the Block Option to Block the Facebook Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/click-on-the-block-option-to-block-the-facebook-page.jpg)
 * Leave the group you're part of if it shares content that goes against your values. To leave the group, click**Joined** below the group name and then click**Leave group** .  
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Leave the Facebook Group by Clicking on the Leave Group Button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/leave-the-facebook-group-by-clicking-on-the-leave-group-button.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Take a look at a few[other ways to customize your Facebook feed](https://www.makeuseof.com/how-to-customize-facebook-feed/) . When you let Facebook know you don't like seeing irrelevant posts and only engage with desired ones, it will always keep relevant posts in content suggestions.
 
  But is there any alternative to stop seeing all content suggestions on Facebook's news feed and clean it up? There is, and that is to use third-party extensions. However, considering its security risks, we strongly advise against it.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Don't Use Third-Party Extensions
 
 ![Dice with leters on them spelling out the word Risk](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/risk-letters.jpg)
@@ -102,23 +107,17 @@ Hence, the content you see as suggestions is based on the following:
 * Even if third-party extensions claim not to collect user data, there is no guarantee that they will adhere to their privacy policies. They could collect sensitive information from you that would pose a severe security threat.
 * The use of third-party extensions can interfere with Facebook's source code, which could result in you experiencing countless issues when using the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Customize Facebook Content Suggestions
 
  Seeing irrelevant content as suggestions on Facebook can be annoying. And if it contradicts our values, it's even worse.
 
  Hopefully, you now better understand how Facebook's content suggestions work and how to tailor them. If you follow the tips discussed above, the content you find in your suggestions will be more relevant.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,19 @@ Hence, the content you see as suggestions is based on the following:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-make-a-youtube-trailer/"><u>[Updated] 2024 Approved How To Make a YouTube Trailer</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-fundamentals-of-synchronizing-audio-and-video-in-screencasts-for-2024/"><u>[Updated] The Fundamentals of Synchronizing Audio and Video in Screencasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-digital-assistants-dialling-into-personal-preferences/"><u>Are Digital Assistants Dialling Into Personal Preferences?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capturing-stunning-hdr-portraits-step-by-step-instructions/"><u>Capturing Stunning HDR Portraits Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-breakdown-major-social-media-failure/"><u>Communication Breakdown: Major Social Media Failure</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-face-in-the-facebook-ecosystem/"><u>Designing Your Face in the Facebook Ecosystem</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On iPhone 14 Plus</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-stabilizing-armored-core-6-rubicons-flames-on-windows-pc-edition/"><u>Troubleshooting Steps for Stabilizing Armored Core 6: Rubicon's Flames on Windows - PC Edition</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-lava-yuva-2-pro-by-drfone-android/"><u>Universal Unlock Pattern for Lava Yuva 2 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-these-five-economical-ways-to-time-your-fb-updates/"><u>Unlock These Five Economical Ways to Time Your FB Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebooks-audience-is-diminishing-dramatically/"><u>Why Facebook's Audience Is Diminishing Dramatically</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/44or44k944kz44oz44gn44k544og44od44ox44oq44kk44k544og44od44ox6zplusz5aow5luy44gn55s75yop5l2c5oiq5rov/"><u>パソコンでステップバイステップ音声付き画像作成法</u></a></li>
+</ul></div>
 

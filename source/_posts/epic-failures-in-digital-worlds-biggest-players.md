@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2024-12-17T18:15:57.433Z
-updated: 2024-12-21T18:16:52.181Z
+date: 2024-12-15T00:08:16.616Z
+updated: 2024-12-21T23:15:01.635Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,21 +51,24 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ras-endwatchers-top-youtube-viewership/"><u>[New] Era's Endwatchers Top YouTube Viewership</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-exclusive-mac-high-res-screen-and-audio-recorder/"><u>[New] Exclusive Mac High-Res Screen & Audio Recorder</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-how-to-stream-your-podcast-with-a-click-for-2024/"><u>[New] How to Stream Your Podcast with a Click for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-velocity-ventures-discover-the-freshest-5-virtual-race-titles-for-2024/"><u>[New] Velocity Ventures Discover the Freshest 5 Virtual Race Titles for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-9-fb-scraper-apps-for-films/"><u>2024 Approved Top 9 FB Scraper Apps for Films</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-adopts-a-prompt-for-informed-thoughtful-sharing/"><u>Facebook Adopts a Prompt for Informed, Thoughtful Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-face-legal-scrutiny-by-amazon/"><u>Facebook's Group Administrators Face Legal Scrutiny by Amazon</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-latest-drivers-for-your-insignia-thunderbolt-to-lan-cable-here/"><u>Get the Latest Drivers for Your Insignia Thunderbolt to LAN Cable Here!</u></a></li>
-<li><a href="https://win-trending.techidaily.com/high-resolution-floral-backdrop-illustrations-professional-image-library-by-yl-computing/"><u>High-Resolution Floral Backdrop Illustrations - Professional Image Library by YL Computing</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Samsung Galaxy S23 Tactical Edition? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-for-self-why-a-digital-detour-is-in-our-best-interest/"><u>Instagram for Self: Why a Digital Detour Is in Our Best Interest?</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/practical-steps-for-smooth-recording-of-remote-workshops-on-windowsapple-systems-for-2024/"><u>Practical Steps for Smooth Recording of Remote Workshops on Windows/Apple Systems for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/rift-for-reboot-the-costly-measure-to-fix-a-hacked-facebook-account/"><u>Rift for Reboot: The Costly Measure to Fix a Hacked Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-encouraging-user-generated-content-boosting-likesshares/"><u>The Art of Encouraging User-Generated Content: Boosting Likes/Shares</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-choosing-a-business-ppage-over-individual-profiles-for-effective-branding/"><u>Top 8: Choosing a Business Ppage over Individual Profiles for Effective Branding</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-content-into-currency-with-instagrams-latest-upgrades/"><u>Transform Your Content Into Currency with Instagram’s Latest Upgrades</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-laughloop-app-a-hub-for-humor-enthusiasts/"><u>[New] 2024 Approved LaughLoop App - A Hub for Humor Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-visual-storytelling-for-online-platforms-for-2024/"><u>[New] The Art of Visual Storytelling for Online Platforms for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-guide-to-action-hunting-gear-for-2024/"><u>[New] The Ultimate Guide to Action Hunting Gear for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-motorcycle-video-magic-best-cam-hats-of-2023-selection-for-2024/"><u>[Updated] Motorcycle Video Magic Best Cam Hats of 2023 Selection for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-no-cost-strategies-for-managing-fb-post-timing/"><u>5 No-Cost Strategies for Managing FB Post Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/adding-text-to-social-photos-effectively/"><u>Adding Text to Social Photos Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-legal-strategy-targeting-fb-group-managers/"><u>Amazon's Legal Strategy Targeting FB Group Managers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audiophiles-guide-selecting-prime-tools-for-vtuber-voice-alteration/"><u>Audiophile's Guide Selecting Prime Tools for VTuber Voice Alteration</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-engaging-fb-polls-for-pages-and-groups/"><u>Building Engaging FB Polls for Pages & Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-friends-through-visual-identification-on-whatsapp/"><u>Connecting with Friends Through Visual Identification on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-inviting-online-persona-with-a-new-page/"><u>Crafting an Inviting Online Persona with a New PAGE</u></a></li>
+<li><a href="https://facebook.techidaily.com/curate-with-confidence-facebook-eases-your-newsfeed-edit/"><u>Curate with Confidence: Facebook Eases Your Newsfeed Edit</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145420800-deliberations-continue-expected-decision-from-platforms-oversight-board/"><u>Deliberations Continue: Expected Decision From Platform’s Oversight Board</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/cing-your-youtube-content-basic-premiere-pro-edits/"><u>Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-agni-2-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Agni 2 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcome-pc-issues-in-marvels-guardians-of-the-galaxy-a-guide-to-8-effective-fixes/"><u>Overcome PC Issues in 'Marvel’s Guardians of the Galaxy': A Guide to 8 Effective Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153152787-privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages.</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/ultimate-guide-how-to-transfer-music-from-apple-iphone-13-pro-max-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>Ultimate Guide, How to Transfer Music From Apple iPhone 13 Pro Max to iPhone | Dr.fone</u></a></li>
 </ul></div>
 

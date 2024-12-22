@@ -1,7 +1,7 @@
 ---
 title: "Social Networks Rethink Content: The Path to Informed Sharing"
-date: 2024-12-14T17:51:57.694Z
-updated: 2024-12-21T18:31:13.054Z
+date: 2024-12-20T05:01:05.770Z
+updated: 2024-12-21T18:03:20.540Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Prods Users to Read Before Sharing
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -73,24 +73,24 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-facetune-photos-app-complete-review-and-guide/"><u>[New] Facetune Photos App Complete Review and Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-simplified-steps-for-capturing-google-voice-calls/"><u>2024 Approved Simplified Steps for Capturing Google Voice Calls</u></a></li>
-<li><a href="https://program-issues.techidaily.com/cyberpunk-277-stutter-and-stall-heres-how-you-can-get-the-game-running-smoothly-again/"><u>Cyberpunk 2#77 Stutter and Stall? Here's How You Can Get the Game Running Smoothly Again</u></a></li>
-<li><a href="https://win-premium.techidaily.com/due-metodi-facile-per-spostare-windows-10-da-un-ssd-a-un-altro/"><u>Due Metodi Facile per Spostare Windows 10 Da Un SSD a Un Altro</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/empower-your-professional-network-the-ultimate-10-step-chatgpt-approach-for-linkedin-success/"><u>Empower Your Professional Network: The Ultimate 10-Step ChatGPT Approach for LinkedIn Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-impact-on-the-evolving-digital-frontier/"><u>Facebook's Impact on the Evolving Digital Frontier</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-longer-tracked-eliminating-your-facebook-history/"><u>No Longer Tracked: Eliminating Your Facebook History</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-net-no-ease-assessing-post-social-impact/"><u>No Net, No Ease? Assessing Post-Social Impact</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-lost-access-post-facebook-disconnections-unpredictably/"><u>Regaining Lost Access Post Facebook Disconnections Unpredictably</u></a></li>
-<li><a href="https://facebook.techidaily.com/report-protocol-for-child-created-accounts-on-fb/"><u>Report Protocol for Child-Created Accounts on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/setting-boundaries-on-social-media-images/"><u>Setting Boundaries on Social Media Images</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/silence-is-not-golden-fixing-lost-audio-during-fortnite-play/"><u>Silence Is Not Golden: Fixing Lost Audio During Fortnite Play</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-tutorial-on-adding-soundtracks-to-instagram-footage/"><u>Step-by-Step Tutorial on Adding Soundtracks to Instagram Footage</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/steve-ballmer-microsofts-former-leader-reveals-lack-of-boldness-insights-from-zdnet/"><u>Steve Ballmer, Microsoft's Former Leader, Reveals Lack of Boldness – Insights From ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dark-and-bright-sides-of-the-social-network/"><u>The Dark and Bright Sides of the Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-for-sharing-in-various-languages-on-facebook/"><u>Tips for Sharing in Various Languages on Facebook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-cutter-mkv-facile-decoupage-des-fichiers-mkv-avec-controle-minimal-sur-le-son-et-limage/"><u>Top Cutter MKV: Facile Découpage Des Fichiers MKV Avec Contrôle Minimal Sur Le Son Et L'Image</u></a></li>
-<li><a href="https://facebook.techidaily.com/trust-in-big-tech-wanes-facebook-under-scrutiny/"><u>Trust in Big Tech Wanes; Facebook Under Scrutiny</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploiting-b-roll-for-visual-impact-on-projects/"><u>[Updated] Exploiting B Roll for Visual Impact on Projects</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-tactical-approach-to-effortless-ipad-screen-records/"><u>2024 Approved Tactical Approach to Effortless iPad Screen Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-apple-iphone-8-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing Apple iPhone 8 Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/discovering-the-exceptional-flexibility-an-in-depth-review-of-dell-inspiron-top-contender-from-zdnet/"><u>Discovering the Exceptional Flexibility: An In-Depth Review of Dell Inspiron – Top Contender From ZDNet</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-xs-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover iPhone XS Data From iTunes? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-the-digital-dialogue-12-essential-techniques-for-facebook/"><u>Ignite the Digital Dialogue: 12 Essential Techniques for Facebook</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-meizu-21-pro-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Meizu 21 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://win-community.techidaily.com/losung-fur-lacie-festplatten-probleme-sichtbarkeit-in-windows-11-beheben/"><u>Lösung Für LaCie Festplatten Probleme - Sichtbarkeit in Windows 11 Beheben</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-reality-gain-or-loss-perspectives/"><u>Offline Reality: Gain or Loss Perspectives?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionizing-gaming-exploring-ais-role-in-future-game-creation/"><u>Revolutionizing Gaming: Exploring AI's Role in Future Game Creation</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-tutorial-successfully-downloading-and-updating-windows-drivers-for-your-dell-latitude-e6430/"><u>Step-by-Step Tutorial: Successfully Downloading & Updating Windows Drivers for Your Dell Latitude E6430</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-profile-a-comprehensive-guide/"><u>Tailoring Your Profile: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-event-design-and-promotion-on-facebook/"><u>The Essentials of Event Design & Promotion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vast-majority-of-iphone-users-are-opting-out-of-app-tracking/"><u>The Vast Majority of iPhone Users Are Opting Out of App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/through-a-screen-analyzing-modern-lifes-negative-effects/"><u>Through a Screen: Analyzing Modern Life's Negative Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-hubs-for-seeking-freelance-opportunities/"><u>Top 5 Hubs for Seeking Freelance Opportunities</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-seek-sanctuary-from-iphones-tracks/"><u>Users Seek Sanctuary From iPhones’ Tracks</u></a></li>
 </ul></div>
 

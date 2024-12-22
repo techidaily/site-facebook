@@ -1,7 +1,7 @@
 ---
 title: FB's $5M Investment Seeks to Outshine Substack Amongst Authors
-date: 2024-08-23T02:11:03.403Z
-updated: 2024-08-24T02:11:03.403Z
+date: 2024-12-16T02:27:55.378Z
+updated: 2024-12-22T05:50:40.354Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157f
 
  In its efforts to compete against the burgeoning trend of email newsletters, epitomized by the success of Substack, Facebook is trying to recruit journalists to its platform to publish. According to[Reuters](https://www.reuters.com/technology/facebook-pay-5-mln-local-journalists-newsletter-push-2021-04-29/) , Facebook is spending $5 million paying local journalists in multi year deals.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Growing the Independent Creator Space
 
  The publishing platform was initially announced by Facebook in March. Among its features for writers is a free, self-publishing tool for creating and sending newsletters, integration with Facebook Pages, the ability for journalists to create Facebook Groups to grow community support, a dashboard to help writers understand how their content is performing, and more.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157f
 
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's News Drive
 
  Whether Facebook can make a success of this new venture remains to be seen. The social networking giant says that it will be investing $1 billion in news over the next three years, of which this current $5 million is just a tiny percentage.
@@ -39,14 +47,11 @@ thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157f
 
  Recently, Facebook clashed with the Australian government over whether it should be paying news outlets for content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -55,22 +60,24 @@ thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-10-best-photo-grid-apps-to-make-your-pictures-stand-out/"><u>[Updated] 2024 Approved 10 Best Photo Grid Apps to Make Your Pictures Stand Out</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-get-1k-followers-every-month-on-instagram/"><u>[Updated] How to Get 1K Followers Every Month on Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-elevating-selfies-to-artistic-levels-via-ios-11-features/"><u>[Updated] In 2024, Elevating Selfies to Artistic Levels via iOS 11 Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/bury-not-show-how-to-keep-fb-posts-from-others-eyes/"><u>Bury Not Show: How to Keep FB Posts From Others' Eyes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/convert-mxf-files-on-macos-top-3-methods-including-mp4-and-mov/"><u>Convert MXF Files on macOS: Top 3 Methods Including MP4 and MOV</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/downloadable-media-editor-easily-transform-3gp-videos-into-mpeg-format-by-movavi-for-free/"><u>Downloadable Media Editor: Easily Transform 3GP Videos Into MPEG Format by Movavi for Free!</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortless-resolution-of-error-0x800f0831-with-simple-windows-update-steps/"><u>Effortless Resolution of Error 0X800f0831 with Simple Windows Update Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-secure-social-media-options/"><u>Exploring Secure Social Media Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-will-reevaluate-trumps-suspension-in-january-2023/"><u>Facebook Will Reevaluate Trump's Suspension in January 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/friends-across-platforms-embodying-your-social-media-self-on-whatsapp/"><u>Friends Across Platforms: Embodying Your Social Media Self on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-previous-facebook-stories/"><u>Uncovering Previous Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150126533-unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-mystery-of-missing-wi-fi-on-devices-proven-solutions/"><u>Unlocking the Mystery of Missing Wi-Fi on Devices: Proven Solutions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveil-the-quickest-ways-to-transform-your-game-characters-speech-in-pubg/"><u>Unveil the Quickest Ways to Transform Your Game Characters' Speech in PUBG</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-facebooks-structural-vision/"><u>What Lies Beneath: Facebook's Structural Vision</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-digital-hangout-vote-here/"><u>Your Ultimate Digital Hangout - Vote Here</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-subscriber-chart-5-most-subscribed-youtuber-for-2024/"><u>YouTube Subscriber Chart - 5 Most Subscribed YouTuber for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->

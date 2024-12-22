@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-12-14T16:33:44.507Z
-updated: 2024-12-21T18:52:35.324Z
+date: 2024-12-21T02:12:40.286Z
+updated: 2024-12-22T05:05:30.096Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
  Facebook's primary source of revenue is selling advertising space on its social media platforms.
@@ -61,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Facebook's Official Stance on App Tracking Transparency?
@@ -72,17 +68,25 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
 
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -127,24 +127,14 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-chorus-and-content-music-magic-on-social-media-stories/"><u>[New] In 2024, Chorus & Content Music Magic on Social Media Stories</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-optimal-obs-configurations-on-budget-computers/"><u>[Updated] 2024 Approved Optimal OBS Configurations on Budget Computers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-transforming-teams-visuals-for-flawless-video-meetings/"><u>2024 Approved Transforming Teams' Visuals for Flawless Video Meetings</u></a></li>
-<li><a href="https://discover-help.techidaily.com/a-detailed-overview-of-windows-defender-security-suite-tools-provided-by-yl-software-solutions/"><u>A Detailed Overview of Windows Defender Security Suite Tools Provided by YL Software Solutions</u></a></li>
-<li><a href="https://win-top.techidaily.com/comparacao-entre-resolucoes-4k-e-1080p-as-vantagens-de-upscaling-para-visualizacao-otimizada/"><u>Comparação Entre Resoluções 4K E 1080P - As Vantagens De Upscaling Para Visualização Otimizada</u></a></li>
-<li><a href="https://article-helps.techidaily.com/crafting-magnetic-content-with-personalized-animated-gifs-for-2024/"><u>Crafting Magnetic Content with Personalized Animated GIFs for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/gamers-guide-to-affordable-performance-the-top-2024-graphic-card-reviews/"><u>Gamers' Guide to Affordable Performance: The Top 2024 Graphic Card Reviews</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-cuts-ties-with-fbs-id-what-lies-ahead/"><u>Meta Cuts Ties With FB’s ID: What Lies Ahead?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-the-world-of-sound-effects-in-youtube-videos/"><u>Navigating the World of Sound Effects in YouTube Videos</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/safe-investing-in-cryptocurrency-avoid-scams-with-yl-computings-expert-advice/"><u>Safe Investing in Cryptocurrency: Avoid Scams with YL Computing's Expert Advice</u></a></li>
-<li><a href="https://facebook.techidaily.com/scrutinizing-securityfbcom-is-it-real-fb-safety-email/"><u>Scrutinizing @security@fb.com: Is It Real FB Safety Email?</u></a></li>
-<li><a href="https://facebook.techidaily.com/smartwatch-innovation-fbs-possible-double-camera-design/"><u>Smartwatch Innovation: FB's Possible Double-Camera Design</u></a></li>
-<li><a href="https://facebook.techidaily.com/succeed-with-meta-top-4-business-analytics-tools/"><u>Succeed with META: Top 4 Business Analytics Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-back-control-identifying-and-fixing-your-fb-breach/"><u>Taking Back Control: Identifying and Fixing Your FB Breach</u></a></li>
-<li><a href="https://facebook.techidaily.com/taming-the-trending-political-chaos/"><u>Taming the Trending Political Chaos</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-hashtags-effectiveness-in-building-online-communities-on-facebook/"><u>Understanding Hashtags' Effectiveness in Building Online Communities on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-shifts-in-symbolic-meaning-on-facebook-pages/"><u>Understanding the Shifts in Symbolic Meaning on Facebook Pages</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unveiling-secrets-top-strategies-for-advanced-srt-tweaks-on-apple-for-2024/"><u>Unveiling Secrets Top Strategies for Advanced SRT Tweaks on Apple for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/video-ventures-and-value-creation-the-impact-of-metric-mastery-on-content-creator-moneyflows/"><u>Video Ventures & Value-Creation: The Impact of Metric Mastery on Content Creator Moneyflows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-maximize-your-podcast-earning-potential/"><u>[New] How to Maximize Your Podcast Earning Potential</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-expressive-leadership-examination-refined-no-8/"><u>[Updated] Expressive Leadership Examination - Refined No. 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-fb-avatar-inclusion-in-whatsapp-discussions/"><u>A Guide to FB Avatar Inclusion in WhatsApp Discussions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/achieving-optimal-performance-reaching-120-fps-gameplay-on-your-playstation-5/"><u>Achieving Optimal Performance: Reaching 120 FPS Gameplay on Your PlayStation 5</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-accuses-10000-group-leaders-of-misconduct-on-social-media/"><u>Amazon Accuses 10,000 Group Leaders of Misconduct on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-alternative-vision-not-embracing-metaverse-now/"><u>Apple’s Alternative Vision: Not Embracing Metaverse Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-the-latest-facebook-portable-gadgets/"><u>Comparing the Latest Facebook Portable Gadgets</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-8-plus-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 8 Plus Apple ID and Apple Pay</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/why-does-your-pc-performance-drop-with-an-underperforming-processor-discover-answers-from-yl-computing-and-software/"><u>Why Does Your PC Performance Drop with an Underperforming Processor? Discover Answers From YL Computing & Software</u></a></li>
 </ul></div>
 

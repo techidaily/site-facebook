@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2024-12-17T16:28:32.590Z
-updated: 2024-12-21T18:40:00.646Z
+date: 2024-12-17T01:25:51.660Z
+updated: 2024-12-22T02:01:48.810Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Surveillance Capitalism?
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
@@ -44,17 +40,9 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  It's important to understand that while surveillance capitalism has its advantages, it essentially thrives in an environment where human beings are not believed to have intrinsic value. In layman's terms, it creates a system wherein a person's value is directly equated to their expected profitability.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Does Surveillance Capitalism Work?
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Granular Data Gathering
 
@@ -78,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
  With this, we know that this willingness to pay can sometimes be rooted in darker places, which are not of necessity. So while platforms like social media do a lot to connect people, they also counterintuitively create toxic environments.
@@ -86,13 +78,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -108,6 +100,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
@@ -117,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -145,21 +145,19 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-navigating-new-realities-metaverse-meets-omniverse/"><u>[New] 2024 Approved Navigating New Realities Metaverse Meets Omniverse</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-the-smart-guide-for-spawning-share-worthy-memes-in-9gag/"><u>[New] In 2024, The Smart Guide for Spawning Share-Worthy Memes in 9GAG</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-contrasting-copyright-clauses-in-youtube-and-the-freedom-of-cc/"><u>[Updated] In 2024, Contrasting Copyright Clauses in Youtube & the Freedom of CC</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-premiere-guide-uploading-vids-for-youtube/"><u>[Updated] Premiere Guide Uploading Vids for YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-decoding-monetization-how-much-creators-earn-per-ad-on-youtube/"><u>2024 Approved Decoding Monetization How Much Creators Earn Per Ad on YouTube?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-find-old-posts-on-your-facebook-timeline/"><u>How to Find Old Posts on Your Facebook Timeline</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-from-live-to-recorded-a-discord-journey/"><u>In 2024, From Live to Recorded A Discord Journey</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-riddle-me-this-the-ultimate-room-conundrums/"><u>In 2024, Riddle Me This The Ultimate Room Conundrums</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-approaches-for-striking-fb-cover-pics/"><u>Innovative Approaches for Striking FB Cover Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/receive-instagram-2fa-codes-directly-on-whatsapp/"><u>Receive Instagram 2FA Codes Directly on WhatsApp</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-pioneer-leaves-facebook/"><u>Social Media Pioneer Leaves Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-experts-guide-unveiling-hidden-online-communities/"><u>The Expert's Guide: Unveiling Hidden Online Communities</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-poco-m6-pro-4g-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Poco M6 Pro 4G</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ultimate-guide-creating-stunning-slideshows-on-facebook-with-our-step-by-step-tutorial/"><u>Ultimate Guide: Creating Stunning Slideshows on Facebook with Our Step-by-Step Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-shadowban-strategies-for-avoidance/"><u>Understanding Shadowban: Strategies for Avoidance</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-future-social-spaces-the-potential-of-facebooks-metaverse/"><u>Unveiling Future Social Spaces: The Potential of Facebook's Metaverse</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-deep-dive-into-the-core-functionalities-of-zdsoft/"><u>2024 Approved Deep Dive Into the Core Functionalities of ZDSoft</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-imitation-ingenuity-generating-parodies-of-films/"><u>2024 Approved Imitation Ingenuity Generating Parodies of Films</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/crop-companions-best-farming-games-to-gather-with-buddies/"><u>Crop Companions Best Farming Games to Gather with Buddies</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/cyber-monday-alert-secure-your-apple-m2-macbook-air-at-record-low-prices-exclusive-findings/"><u>Cyber Monday Alert: Secure Your Apple M2 MacBook Air at Record Low Prices - Exclusive Findings</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-future-possibsilities-four-must-have-features-for-gpt-5/"><u>Exploring Future Possibsilities: Four Must-Have Features for GPT-5</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-your-hands-on-gaming-and-online-connectivity-on-xbox/"><u>Harmonizing Your Hands-On Gaming and Online Connectivity on Xbox</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-samsung-galaxy-a14-4g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Samsung Galaxy A14 4G online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-on-detaching-spotify-accounts-from-facebook-sites/"><u>Instructions on Detaching Spotify Accounts From Facebook Sites</u></a></li>
+<li><a href="https://win-forum.techidaily.com/1722915258477-navigating-the-giants-of-social-networking-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Social Networking: Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/quieten-facebook-eyes-off-facebook-hub-knowledge/"><u>Quieten Facebook Eyes - Off-Facebook Hub Knowledge</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-made-easier-intelligent-photo-captioning-systems/"><u>Social Media Made Easier: Intelligent Photo Captioning Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ever-relevant-platform-6-continuous-uses-of-facebook-to-note/"><u>The Ever-Relevant Platform: 6 Continuous Uses of Facebook to Note</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-8-solutions-for-eliminating-the-bluish-hue-on-your-television-display/"><u>Top 8 Solutions for Eliminating the Bluish Hue on Your Television Display</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unmissable-savings-premier-laptop-bargains-for-july-24-revealed-techbargains/"><u>Unmissable Savings: Premier Laptop Bargains for July '24 Revealed | TechBargains</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Report: Facebook's First Smartwatch Could Feature Two Detachable Cameras"
-date: 2024-08-23T02:11:47.802Z
-updated: 2024-08-24T02:11:47.802Z
+date: 2024-12-20T06:14:48.226Z
+updated: 2024-12-22T05:17:58.636Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
  While most companies tend to design smartwatches to complement smartphones with their functionality, Facebook is taking a different approach. The company reportedly wants its smartwatch to be used in a similar fashion as smartphones.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Smartwatch Could Feature Two Detachable Cameras
 
  A report from[The Verge](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) claims that Facebook's smartwatch will have two detachable cameras, one at the front and another at the back. The front camera will be primarily used for video calling purposes.
@@ -29,9 +33,17 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 ![facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ui.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook's smartwatch will run a customized version of Android. The company will be working with its partners and offer its own suite of apps to deliver a feature-rich user experience. It will launch a companion smartphone app for the watch as well.
 
  The report is light on the smartwatch's health tracking feature, but it will feature a heart rate monitor.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Could Still Scrap Its Smartwatch
 
@@ -46,22 +58,24 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 ![Transfer Facebook posts and notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/transfer-posts-notes-facebook-featured.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## This Will Be an Uphill Battle for Facebook
 
  Facebook CEO Mark Zuckerberg wants the company to focus more on consumer products to bypass the various regulations and limitations in products from Apple and Google.
 
  However, this will be an uphill battle for Facebook since many people are not comfortable sharing too much data with the company, given its[handling of user data in the past](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) . Many consumers might not be too comfortable with a Facebook smartwatch having access to their health data and other key metrics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +84,22 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-navigating-the-journey-fb-videos-and-whatsapp-conversion/"><u>[New] Navigating the Journey FB Videos & WhatsApp Conversion</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-becoming-a-wealthy-beauty-channel-host/"><u>[Updated] Becoming a Wealthy Beauty Channel Host</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-pro-tips-for-efficient-and-effective-use-of-siri-on-tiktok/"><u>[Updated] In 2024, Pro Tips for Efficient and Effective Use of Siri on TikTok</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/capture-with-confidence-canon-elph-190-unveiled/"><u>Capture with Confidence: Canon ELPH 190 Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-success-in-social-media-marketing-on-fb/"><u>Decoding #Success in Social Media Marketing on FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/economical-and-sturdy-design-testing-the-cheetah-arms/"><u>Economical and Sturdy Design: Testing the Cheetah Arms</u></a></li>
+<li><a href="https://os-tips.techidaily.com/effective-strategies-resolving-issues-with-itunes-match/"><u>Effective Strategies: Resolving Issues with iTunes Match</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-phony-facebook-account-creation-schemes/"><u>Exploring Phony Facebook Account Creation Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-authorities-step-up-to-protect-whatsapp-users-from-facebook-spying/"><u>German Authorities Step Up to Protect WhatsApp Users From Facebook Spying</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-sony-xperia-1-v-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Sony Xperia 1 V Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-root-of-hostility-towards-virtual-community-spaces/"><u>Investigating the Root of Hostility Towards Virtual Community Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-neighborhoods-purpose-and-participants/"><u>Navigating Facebook Neighborhoods: Purpose & Participants</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-monitor-and-record-teen-activity-online-fb-focused/"><u>Strategies to Monitor and Record Teen Activity Online, FB-Focused</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-senior-centric-digital-hubs/"><u>Superior Senior-Centric Digital Hubs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-realme-narzo-n55-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Realme Narzo N55 Device</u></a></li>
+</ul></div>
 

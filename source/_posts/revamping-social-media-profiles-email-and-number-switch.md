@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2024-12-17T19:19:13.704Z
-updated: 2024-12-21T17:03:58.994Z
+date: 2024-12-16T23:41:03.283Z
+updated: 2024-12-21T20:54:24.166Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Update Your Email or Phone Number on Facebook?
 
 ![Photo of someone using Facebook on their laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/pexels-luca-sammarco-6162932-(1).jpg)
@@ -36,15 +32,15 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
 
 Here's how...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Update Your Email Address and Phone Number on Mobile
 
@@ -75,12 +71,20 @@ Here's how to do this:
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
 Close
 
 1. Tap on the email or phone number on the**Manage Contact Info** page.
 2. Hit**Remove** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Change Your Contact Details on the Facebook Website
 
@@ -92,28 +96,24 @@ Close
 3. Click on**Settings & Privacy** \>**Settings** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
 4. Click on**Account Settings** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
@@ -135,24 +135,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-tags-a-must-read-before-uploading/"><u>[New] In 2024, Mastering Tags A Must-Read Before Uploading</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-prime-editor-shortlist-top-10-for-instagram-reel-brilliance/"><u>[New] In 2024, The Prime Editor Shortlist Top 10 for Instagram Reel Brilliance</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-boost-your-photo-skills-with-these-top-pixlr-tricks/"><u>[Updated] In 2024, Boost Your Photo Skills with These Top Pixlr Tricks</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-mastering-desktop-and-mobile-capturing-team-video-conferences/"><u>[Updated] In 2024, Mastering Desktop & Mobile Capturing Team Video Conferences</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-castwithease-how-to-make-livestreaming-your-podcast-effortless/"><u>2024 Approved CastWithEase How to Make Livestreaming Your Podcast Effortless</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-how-to-record-gameplay-on-windows-11/"><u>2024 Approved How to Record Gameplay on Windows 11</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/achieving-the-pinnacle-of-color-accuracy-in-11-crucial-edits-for-2024/"><u>Achieving the Pinnacle of Color Accuracy in 11 Crucial Edits for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/elusive-engagement-keeping-fb-content-out-of-public-view/"><u>Elusive Engagement: Keeping Fb Content Out of Public View</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-your-well-be-points-without-facebooks-presence/"><u>Enhancing Your Well-Be Points Without Facebook's Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/fencing-leagues-withdraw-online-presence/"><u>Fencing Leagues Withdraw Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-protection-system-features-on-facebook-platform/"><u>Harnessing Protection System Features on Facebook Platform</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-effortless-voice-memo-creation-on-apple-devices/"><u>In 2024, Effortless Voice Memo Creation on Apple Devices</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-lightened-transition-tactics/"><u>In 2024, Lightened Transition Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-labyrinth-of-meta-social-control-center/"><u>Navigating the Labyrinth of Meta Social Control Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-your-entire-facebook-experience/"><u>Navigating Through Your Entire Facebook Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-evolution-continues/"><u>Social Media's Evolution Continues</u></a></li>
-<li><a href="https://facebook.techidaily.com/stream-your-favorites-spotify-mini-panel-right-from-facebook/"><u>Stream Your Favorites: Spotify Mini Panel, Right From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-biggest-blunders-of-the-tech-world-this-year/"><u>The Biggest Blunders of the Tech World This Year</u></a></li>
-<li><a href="https://games-able.techidaily.com/when-to-reinitialize-your-playstation-5-controller/"><u>When to Reinitialize Your PlayStation 5 Controller</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-deciphering-genuine-connections-in-social-networks/"><u>[New] 2024 Approved Deciphering Genuine Connections in Social Networks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-are-you-prepared-for-the-changed-facebook-algorithm-in-2024/"><u>[New] Are You Prepared for the Changed Facebook Algorithm, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-channel-transformation-from-zero-to-thousand-followers/"><u>[New] In 2024, Channel Transformation From Zero to Thousand Followers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-easy-window-recorder-w10-edition/"><u>[Updated] 2024 Approved Easy Window Recorder - W10 Edition</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-navigating-skypes-ecosystem-essential-free-and-paid-recording-methods-windowsmac/"><u>[Updated] Navigating Skype's Ecosystem Essential Free and Paid Recording Methods (Windows/Mac)</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-milestone-facebook-messengers-security-enhancement/"><u>E2EE Milestone: Facebook Messenger's Security Enhancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150747284-facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-issues-with-the-oculus-quest-2-headsets-microphone/"><u>Fixing Issues with the Oculus Quest 2 Headset's Microphone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-affluent-animator-architects/"><u>In 2024, Affluent Animator Architects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-enhance-and-write-on-photos-with-top-tools/"><u>In 2024, Enhance and Write on Photos with Top Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-analysis-of-emoji-and-icon-usage-on-facebook-messenger/"><u>In-Depth Analysis of Emoji & Icon Usage on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-our-networked-world-with-six-key-advantages-of-facebook/"><u>Navigating Our Networked World with Six Key Advantages of Facebook</u></a></li>
+<li><a href="https://article-helps.techidaily.com/perfect-windows-photos-implementing-sound-and-visual-filters-guide/"><u>Perfect Windows Photos Implementing Sound & Visual Filters Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-share-of-facebooks-massive-725m-settlement-fund/"><u>Seize Share of Facebook's Massive $725M Settlement Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-into-meta-facebooks-strategic-rebranding-move/"><u>Transforming Into Meta: Facebook's Strategic Rebranding Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-role-in-effective-event-coordination/"><u>Unveiling Facebook's Role in Effective Event Coordination</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-offers-a-digital-bitcoin-goat-parody/"><u>Zuckerberg Offers: A Digital Bitcoin-Goat Parody?</u></a></li>
 </ul></div>
 

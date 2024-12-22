@@ -1,7 +1,7 @@
 ---
 title: Skillful Use of Chat Apps without Facebook Linkage
-date: 2024-08-23T02:12:03.040Z
-updated: 2024-08-24T02:12:03.040Z
+date: 2024-12-16T20:19:17.242Z
+updated: 2024-12-22T04:24:04.200Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/078ec5c6b19df307c3d053f03815c7d21ecece8ed
 
 ![download facebook messenger service app store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook remains a social media giant, but its popularity is waning. Why? Some are turning to other means of contact. Younger generations are turning to Snapchat and TikTok to keep in touch. Some prefer just to talk to people face-to-face or use traditional SMS.
 
  Some refuse to use Facebook on principle, wary of any conglomerates. Others don't like social platform staples like political debates, pyramid schemes, and pointless status updates.
@@ -46,8 +50,9 @@ thumbnail: https://thmb.techidaily.com/078ec5c6b19df307c3d053f03815c7d21ecece8ed
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Download Messenger Without an Active Facebook Account
 
  Things used to be simpler. The process of using Facebook Messenger without having Facebook itself was easy: you could sign up using your phone number. Sorted. But Facebook quietly phased this option out in 2019, so now, you have to have a Facebook account. But don't panic: you can work around this.
@@ -58,9 +63,6 @@ thumbnail: https://thmb.techidaily.com/078ec5c6b19df307c3d053f03815c7d21ecece8ed
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Next, you need to know how to sign up for Messenger.
 
  When you open the app for the first time, it will encourage you to log into a Facebook account using either your email address or phone number. Instead, click on**Create New Account** . This will redirect you into creating a Facebook account.
@@ -69,9 +71,6 @@ Next, you need to know how to sign up for Messenger.
 
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## How to Set Up Messenger Without an Active Facebook Account
 
  After you activate your account, there are still a few settings to finalize so that you can take full advantage of the app.
@@ -80,9 +79,6 @@ Next, you need to know how to sign up for Messenger.
 
  How can you add friends to Messenger? You can do this via your Facebook account if you want to, but you'll probably need to explain to them that this is temporary, because you're only doing it to interact with them on Messenger. If you want to connect solely on Messenger via your smartphone, you can click on your profile picture in the top-left of your interface. Then go to**Phone contacts > Upload contacts** . This will sync the app with your phone book.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Can You Have Messenger Without Using Facebook?
 
  You still have the main problem you wanted to avoid: you have a Facebook profile, simply to use Messenger. So what can you do?
@@ -91,9 +87,17 @@ Next, you need to know how to sign up for Messenger.
 
  However, you cannot delete Facebook without also deleting Messenger.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Happens to Messenger if You Delete or Deactivate Facebook?
 
 ![how to delete or deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Deactivate-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Don't make this decision lightly. Before you begin the process, you need to know what it means when you[deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
@@ -107,9 +111,6 @@ Next, you need to know how to sign up for Messenger.
 
  You'll see your two options with warnings about what happens when you follow either method. Select**Deactivate account** so you can still use Messenger on your smartphone.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Can I Use Messenger Without Facebook on my PC?
 
  Sadly, you can only use Messenger via your browser if you've got an active Facebook account.
@@ -119,22 +120,20 @@ Next, you need to know how to sign up for Messenger.
  If you're concerned about too many people finding you,[you can toggle your privacy settings](https://www.makeuseof.com/how-to-manage-facebook-privacy-settings-for-specific-posts/) . And if you're troubled by the amount of data Facebook can find out about you, you really need to limit what goes onto your Facebook page, including who can actually post to it and tag you in status updates or photos.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## And That's How You Can Download Messenger Without Using Facebook
 
  The apps are intrinsically tied to each other, so you can't actually use Messenger without a Facebook account anymore. That doesn't mean the latter has to be**active** , though.
 
  Nonetheless, because this little loophole allows you to carry on using Messenger even after deactivating your main Facebook profile, it's not the end of the world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +142,23 @@ Next, you need to know how to sign up for Messenger.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bridging-platforms-instagrams-new-whatsapp-2fa-strategy/"><u>Bridging Platforms: Instagram's New WhatsApp 2FA Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-back-the-bells-and-whistles-resetting-facebook-passwords/"><u>Bring Back the Bells & Whistles - Resetting Facebook Passwords</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-your-facebook-footprint-on-android/"><u>Clearing Your Facebook Footprint on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deterrents-enhanced-sanctions-to-halt-misinformation/"><u>Digital Deterrents: Enhanced Sanctions to Halt Misinformation</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-elgato-drivers-fast-a-simple-step-by-step-tutorial/"><u>Download Elgato Drivers Fast: A Simple Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-strives-for-educated-user-engagement-with-new-prompt/"><u>Facebook Strives for Educated User Engagement with New Prompt</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-audio-cleanup-tips-and-tricks-for-removing-unwanted-sounds/"><u>FCPX Audio Cleanup Tips and Tricks for Removing Unwanted Sounds</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/imagerefixer-pro-the-ultimate-guide-to-reviving-corrupt-jpeg-pictures-flawlessly/"><u>Imagerefixer Pro: The Ultimate Guide to Reviving Corrupt JPEG Pictures Flawlessly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-silent-transitions/"><u>In 2024, The Ultimate Guide to Silent Transitions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-raspberry-pi-sets-for-the-new-year-discover-the-ultimate-picks-of-2/"><u>Leading Raspberry Pi Sets for the New Year: Discover the Ultimate Picks of 2</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/masterpiece-makers-exceptional-android-collage-apps/"><u>Masterpiece Makers – Exceptional Android Collage Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-neutrality-right-to-suspend-trump-but-for-how-long/"><u>Networking Neutrality: Right to Suspend Trump, But for How Long?</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/prevent-crashes-correct-windowsminecraft-driver/"><u>Prevent Crashes: Correct Windows/Minecraft Driver</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-pics-that-promote-prospects-and-peers/"><u>Profile Pics that Promote Prospects and Peers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/troubleshooting-guide-stop-god-of-war-from-closing-unexpectedly-on-windows/"><u>Troubleshooting Guide: Stop God of War From Closing Unexpectedly On Windows</u></a></li>
+</ul></div>
 

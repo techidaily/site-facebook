@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-12-18T18:52:11.599Z
-updated: 2024-12-21T23:26:18.846Z
+date: 2024-12-26T18:48:33.181Z
+updated: 2024-12-27T18:17:11.654Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,16 +79,20 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-orientation-overhaul-instagrams-video-rotation-secret-for-2024/"><u>[Updated] Orientation Overhaul Instagram's Video Rotation Secret for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-echoes-in-the-stream-full-year-tweet-video-analysis/"><u>2024 Approved Echoes in the Stream - Full Year Tweet Video Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/alleged-ban-of-ethical-marketing-claims-surface-at-fb/"><u>Alleged Ban of Ethical Marketing Claims Surface at FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-tech-companies-reading-your-mental-dialogues/"><u>Are Tech Companies Reading Your Mental Dialogues?</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-distances-leveraging-your-facebook-portal-tvs-capabilities/"><u>Bridging Distances: Leveraging Your Facebook Portal TV's Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/continuity-of-functionality-on-whatsapp-without-policy-consent/"><u>Continuity of Functionality on WhatsApp WITHOUT Policy Consent</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/get-ready-for-the-future-of-android-a-step-by-step-guide-to-downloading-and-installing-android-13-beta-1-plus-tips-on-when-to-upgrade/"><u>Get Ready for the Future of Android: A Step-by-Step Guide to Downloading & Installing Android 13 Beta 1 - Plus, Tips on When to Upgrade!</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-effortlessly-edit-podcasts-best-practices-with-garageband/"><u>In 2024, Effortlessly Edit Podcasts Best Practices with GarageBand</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo Y27s? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-create-stunning-gif-loops-with-these-free-makers-for-2024/"><u>New Create Stunning GIF Loops with These Free Makers for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-repairing-your-pathfinder-game-controller-when-keys-fail/"><u>Troubleshooting Tips: Repairing Your Pathfinder Game Controller When Keys Fail</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unlock-the-power-of-any-video-with-these-free-online-editors/"><u>[Updated] 2024 Approved Unlock the Power of Any Video With These Free Online Editors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-unseen-virtues-of-vector-graphics-mastery/"><u>[Updated] The Unseen Virtues of Vector Graphics Mastery</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-online-anonymity-with-these-7-methods-fb/"><u>Enhance Your Online Anonymity with These 7 Methods (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-insider-info-on-facebooks-rebranding-plans/"><u>Exploring Insider Info on Facebook's Rebranding Plans</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exposing-fabrications-debunking-9-prevalent-myths-surrounding-ai-chat-technology/"><u>Exposing Fabrications: Debunking 9 Prevalent Myths Surrounding AI Chat Technology</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-oppo-a78-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Oppo A78 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-selection-prime-auto-tracking-tech-review/"><u>In 2024, Expert Selection Prime Auto Tracking Tech Review</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-14-pro-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone 14 Pro Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-recovery-plan-tools-and-methods-for-deleting-images/"><u>Instagram Recovery Plan: Tools & Methods for Deleting Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-strategy-evolution-on-social-platforms-fb-and-insta/"><u>Marketing Strategy Evolution on Social Platforms – FB and Insta</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761388-9780593579367-racial-wellness/"><u>Racial Wellness | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-amplifying-your-facebook-post-reach/"><u>Strategies for Amplifying Your Facebook Post Reach</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-resolving-the-dreaded-blackout-during-facetime-calls/"><u>Ultimate Guide: Resolving the Dreaded Blackout During FaceTime Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-account-protection-effective-use-of-2fa-on-major-mail-services/"><u>Unlocking Account Protection: Effective Use of 2FA on Major Mail Services</u></a></li>
 </ul></div>
 

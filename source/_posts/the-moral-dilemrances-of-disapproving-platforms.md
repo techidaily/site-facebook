@@ -1,7 +1,7 @@
 ---
 title: The Moral Dilemrances of Disapproving Platforms
-date: 2024-08-15T18:51:10.535Z
-updated: 2024-08-16T18:51:10.535Z
+date: 2024-12-20T16:55:24.904Z
+updated: 2024-12-27T17:55:41.295Z
 tags:
   - facebook
 categories:
@@ -17,15 +17,16 @@ thumbnail: https://thmb.techidaily.com/900dc848292f751f63b27f646fc76a619bc7384a4
 
  Is there a place for dislike buttons in social media as we know it today? Do dislikes even serve a purpose? When examining the most prominent social media platforms widely used today, you get mixed results.Facebook and Instagram do not have a dislike button. Reddit has a downvote button, and YouTube a dislike one. Twitter doesn't have a dislike button, but that could change soon as it ran a test allowing some users to downvote.Let's examine some pros and cons to platforms and their dislike button.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros to the Dislike Button Hiding Its Numbers
 
  YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
 
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Hate Campaigns Leave Less of an Impact
 
  A major reason YouTube shared for[hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
@@ -53,9 +54,6 @@ thumbnail: https://thmb.techidaily.com/900dc848292f751f63b27f646fc76a619bc7384a4
 ### It Helps Your Mental Health
 
 ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
@@ -73,11 +71,16 @@ What's more, it goes beyond affecting only the poster.
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### You Can't Discern Helpfulness
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
@@ -88,9 +91,6 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### You Can't Tell if It's Worth Seeing
 
 ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
@@ -102,8 +102,9 @@ What's more, it goes beyond affecting only the poster.
  Many YouTube viewers use the like-to-dislike ratio to decide whether to watch a video or move on to another. When you can't use that ratio to make your judgment, you might get duped into watching something that wastes your time.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is It the Right Move to Have or Hide Dislikes?
 
  Another important matter to consider is whether having a dislike button is even right for the platform.
@@ -123,8 +124,9 @@ What's more, it goes beyond affecting only the poster.
  The company also ensured that this was only a test to see what people wanted, and it hasn't been decided whether the change would follow or the company would hold off on it. If you don't like a post, you have the option to skip over it and not like it, or you can reply or quote retweet it and share your opinion on it. So, does a dislike button make sense at all?
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### You Can't Imagine the Platform Without It
 
  How can you not have a dislike button if it's an integral part of the platform?
@@ -137,23 +139,17 @@ What's more, it goes beyond affecting only the poster.
 
  Reddit needs the balance of both upvotes and downvotes to be the platform people signed up to use. So, instead of removing the button entirely, it chose to hide the count of both buttons it offers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Are Hidden Dislikes the Future?
 
  YouTube and Reddit took the path of hiding the dislike count. Twitter is looking to introduce a dislike system. Facebook had a dislike button but chose to remove it.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +158,23 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-the-ultimate-gaming-escape-lgs-virtual-reality-journey/"><u>[New] In 2024, The Ultimate Gaming Escape LG's Virtual Reality Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-guide-mp3-to-youtube-live-streaming-3-phases-for-2024/"><u>[New] Step-By-Step Guide MP3 to YouTube Live Streaming [3 Phases] for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-zooming-in-an-intensive-guide-to-youtube-live-stream-success-for-2024/"><u>[New] Zooming In An Intensive Guide to YouTube Live Stream Success for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-expert-tips-for-effortless-access-to-youtube-comments/"><u>[Updated] 2024 Approved Expert Tips for Effortless Access to YouTube Comments</u></a></li>
+<li><a href="https://win11.techidaily.com/boosting-media-stream-efficiency-taming-vlc-lags/"><u>Boosting Media Stream Efficiency: Taming VLC Lags</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-architectural-essence-of-facebook/"><u>Decoding the Architectural Essence of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-irony-facebooks-latest-policy/"><u>Detecting Irony: Facebook's Latest Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-reality-unbound-facebooks-pursuit-of-the-metaverse/"><u>Digital Reality Unbound: Facebook's Pursuit of the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-why-apple-prefers-originality-over-virtual-realms/"><u>Discover Why Apple Prefers Originality over Virtual Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-campaigns-8-crowdfire-features-worth-mastering/"><u>Elevate Your Campaigns: 8 Crowdfire Features Worth Mastering</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-connect-and-troubleshoot-your-realtek-high-def-speakers/"><u>How To Connect and Troubleshoot Your Realtek High-Def Speakers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-y100-5g-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo Y100 5G</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-a78-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo A78 Devices | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/newly-integrated-edit-tools-in-dall-e-3-demand-further-refinement/"><u>Newly Integrated Edit Tools in DALL-E 3 Demand Further Refinement</u></a></li>
+</ul></div>
 

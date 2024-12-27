@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2024-12-20T00:18:53.140Z
-updated: 2024-12-22T05:12:02.438Z
+date: 2024-12-24T18:50:34.004Z
+updated: 2024-12-27T18:11:07.475Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,17 +61,20 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/erfecting-yt-thumbnails-quick-and-simple-guide-for-2024/"><u>[New] Perfecting YT Thumbnails Quick & Simple Guide for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-instagrams-peak-performance-with-these-top-8-planning-tools-for-2024/"><u>[Updated] Instagram's Peak Performance with These Top 8 Planning Tools for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-ways-to-clean-up-your-facebook-account/"><u>5 Ways to Clean Up Your Facebook Account</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/a-step-by-step-approach-to-fixing-the-0x80070570-problem-in-windows/"><u>A Step-by-Step Approach to Fixing the '0X80070570' Problem in Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-for-hidden-chat-photos-messenger-screen-shot-triggers/"><u>Alert for Hidden Chat Photos: Messenger Screen Shot Triggers</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-brand-image-with-standout-timeline-images/"><u>Building a Brand Image with Standout Timeline Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/critical-methods-to-reset-and-protect-your-fb-password/"><u>Critical Methods to Reset and Protect Your Fb Password</u></a></li>
-<li><a href="https://win-answers.techidaily.com/diagnosing-and-fixing-pc-crashes-during-stardew-valley-gameplay/"><u>Diagnosing and Fixing PC Crashes During Stardew Valley Gameplay</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/goprowindows-pcandroid-smartphone/"><u>GoPro映像編集用ソフトウェア＆アプリ「Windows PC/Android Smartphone」</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-14-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi 14 Pro to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/m4a-a-wav-convertito-online-e-gratuitamente-con-movavi/"><u>M4A a WAV Convertito Online E Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851650-9783988313416-mindfulness-for-beginners/"><u>MINDFULNESS FOR BEGINNERS | Free Book</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-films-best-shot-techniques-top-5-essentials/"><u>[New] Film's Best Shot Techniques Top 5 Essentials</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-xiaomi-redmi-a2plus-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Xiaomi Redmi A2+ to Roku | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-dialogue-implementing-facebook-stories-surveys/"><u>Fostering Dialogue: Implementing Facebook Stories Surveys</u></a></li>
+<li><a href="https://program-issues.techidaily.com/half-life-alyx-how-to-overcome-lag-and-frame-rate-issues-for-a-seamless-gaming-experience-on-pc/"><u>Half-Life: Alyx - How to Overcome Lag and Frame Rate Issues for a Seamless Gaming Experience on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-block-people-or-dates-in-facebooks-on-this-day-memories/"><u>How to Block People or Dates in Facebook's On This Day Memories</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-leave-a-life360-group-on-xiaomi-redmi-k70e-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Xiaomi Redmi K70E Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-overcome-chromes-video-troubles-in-seconds/"><u>In 2024, Overcome Chrome's Video Troubles in Seconds</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/live-the-experience-top-4-ways-to-preserve-your-gaming-adventures-for-2024/"><u>Live the Experience Top 4 Ways to Preserve Your Gaming Adventures for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mute-the-mainstream-political-madness/"><u>Mute the Mainstream Political Madness</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-giants-gridlock-lasting-six-hours/"><u>Online Giants' Gridlock Lasting Six Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/purging-clutter-a-facebook-transformation/"><u>Purging Clutter: A Facebook Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-solutions-to-privacy-concerns/"><u>Seeking Solutions to Privacy Concerns</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/the-ultimate-guide-to-integrating-emojis-with-discord-statuses-for-2024/"><u>The Ultimate Guide to Integrating Emojis with Discord Statuses for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-daily-life-replay-facebook-guide/"><u>Unlocking Daily Life Replay: Facebook Guide</u></a></li>
 </ul></div>
 

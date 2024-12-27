@@ -1,7 +1,7 @@
 ---
 title: Protests Push 1-Star Rating, Sour Social Network's Reputation
-date: 2024-08-15T18:46:38.561Z
-updated: 2024-08-16T18:46:38.561Z
+date: 2024-12-22T19:07:14.934Z
+updated: 2024-12-27T18:18:41.240Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
  Facebook may be sitting at the top of the Social Networking category on Apple's App Store, but that doesn't necessarily mean that people are content with it—just that they're downloading it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Mobile App Rating Takes a Nosedive
 
  Pro-Palestinian activists are running a coordinated campaign to lower Facebook's mobile app rating on the Apple and Google app stores.
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 ![Facebook open in a mobile browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-in-mobile-browser.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The team behind Facebook is reportedly taking this issue very seriously—they've marked it as "SEV1" or "severity 1," which is a descriptor used internally when there is a high-priority issue with the site.
 
  The only type of issue that would take higher priority than this is a "SEV0," which is used when site is down.
@@ -40,13 +48,15 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
@@ -57,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
  Facebook might be the prime example of the phrase "all publicity is good publicity." It's a platform that everyone seems to hate, and yet, we stay on it anyway.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,4 +80,22 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-dreaming-through-the-viewfinder-inspiring-photo-ideas/"><u>[New] Dreaming Through the Viewfinder Inspiring Photo Ideas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-demystifying-youtube-premium-membership-benefits/"><u>[Updated] In 2024, Demystifying YouTube Premium Membership Benefits</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premiere-ready-text-configurations/"><u>[Updated] Premiere-Ready Text Configurations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-infographic-spectacle-of-youtubes-2017-data/"><u>[Updated] The Infographic Spectacle of YouTube's 2017 Data</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-new-era-of-visual-clarity-the-10-list-of-top-monitors-for-macs/"><u>2024 Approved A New Era of Visual Clarity The #10 List of Top Monitors for Macs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-story-viewers-uncharted-territory-explored/"><u>2024 Approved Instagram Story Viewers Uncharted Territory Explored</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723002309141-hp-visual-output-issues-heres-how-you-can-resolve-them/"><u>HP Visual Output Issues? Here's How You Can Resolve Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-strangers-amongst-your-gadgets/"><u>Identifying Strangers Amongst Your Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-identity-without-partisanship-or-faiths-marks/"><u>Online Identity Without Partisanship or Faiths' Marks</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-facebooks-inaccessible-profile-issue/"><u>Overcoming Facebook's Inaccessible Profile Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-selection-curate-your-facebook-feed-with-ease/"><u>Simplified Selection - Curate Your Facebook Feed with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/six-visionaries-sparring-over-techs-future/"><u>Six Visionaries Sparring Over Tech's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-interaction-boost-crafting-fb-stories-polls/"><u>Social Interaction Boost: Crafting FB Stories Polls</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-dall-e-3-on-microsoft-bing-techniques-for-generating-art-without-expense/"><u>Unlocking DALL-E 3 on Microsoft Bing: Techniques for Generating Art Without Expense</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebook-fakes-identify-these-14-common-scams/"><u>Unravel Facebook Fakes: Identify These 14 Common Scams</u></a></li>
+</ul></div>
 

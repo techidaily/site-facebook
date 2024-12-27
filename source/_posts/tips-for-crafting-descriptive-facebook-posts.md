@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2024-12-16T00:46:42.712Z
-updated: 2024-12-21T16:08:15.235Z
+date: 2024-12-24T17:09:32.011Z
+updated: 2024-12-27T16:55:37.813Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Why Should I Add Alt Text to My Facebook Photos?
 
  The alt text (full form: alternative text) of a picture is a brief written description of it that makes sense of the image when someone can't see it.
@@ -40,23 +36,19 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
  Related:[How to Use Poll Games on Messenger to Learn More About Your Friends](https://www.makeuseof.com/how-to-use-poll-games-facebook-messenger/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Add Alt Text to Images You Upload on Facebook
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
@@ -73,13 +65,13 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Add Alt Text to Facebook Images on the Web
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -93,17 +85,21 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -117,6 +113,10 @@ Close
  Using the web version of Facebook, the process is very similar—just look out for the ellipsis when you view the image you want to add alt text to.
 
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Make Your Facebook Photos More Accessible
 
@@ -139,21 +139,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-resolving-live-stream-pause-issues-on-fb/"><u>[New] 2024 Approved Resolving Live Stream Pause Issues on FB</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-conquer-the-crowd-reach-your-goal-of-1k-insta-admirers-monthly-for-2024/"><u>[New] Conquer the Crowd Reach Your Goal of 1K Insta Admirers Monthly for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-beyond-flat-canvas-elevating-text-to-new-heights/"><u>[New] In 2024, Beyond Flat Canvas Elevating Text to New Heights</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-iphones-secret-to-quick-cost-free-red-eye-removal-revealed/"><u>[Updated] In 2024, IPhone's Secret to Quick, Cost-Free Red-Eye Removal Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-essential-elements-to-feature-on-your-snapshots/"><u>6 Essential Elements to Feature on Your Snapshots</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieving-digital-wellness-utilize-facebooks-break-timer/"><u>Achieving Digital Wellness: Utilize Facebook’s Break Timer</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-the-gap-image-descriptions-on-social-networking-sites/"><u>Bridging the Gap: Image Descriptions on Social Networking Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-thriving-network-on-facebook-for-professional-growth/"><u>Building a Thriving Network on Facebook for Professional Growth</u></a></li>
-<li><a href="https://facebook.techidaily.com/counteract-facebook-account-compromise-with-these-steps/"><u>Counteract Facebook Account Compromise with These Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-the-ideal-fb-avatar/"><u>Crafting the Ideal FB Avatar</u></a></li>
-<li><a href="https://games-able.techidaily.com/hps-gaming-powerhouse-the-victus-15l-pc-slashes-price-to-480-for-labor-day-extravaganza-dont-miss-out-cnet-reviews/"><u>HP's Gaming Powerhouse, the Victus 15L PC, Slashes Price to $480 for Labor Day Extravaganza – Don’t Miss Out! | CNET Reviews</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-techniques-for-creating-stellar-valorant-thumbnail-images/"><u>In 2024, Step-by-Step Techniques for Creating Stellar Valorant Thumbnail Images</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/jolt-dampening-snapcam-accessory-kit-for-2024/"><u>Jolt Dampening SnapCam Accessory Kit for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/scrutinizing-the-advanced-features-of-dji-phantom-3/"><u>Scrutinizing the Advanced Features of DJI Phantom 3</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-secret-to-exceptional-instagram-reels/"><u>The Secret to Exceptional Instagram Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149247223-unveiling-secure-digital-conversation-tools-facebooks-instagram-and-messenger-now-offer-encrypted-services/"><u>Unveiling Secure Digital Conversation Tools: Facebook’s Instagram & Messenger Now Offer Encrypted Services</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-seamless-integration-making-your-youtube-videos-available-on-facebook/"><u>[New] 2024 Approved Seamless Integration Making Your YouTube Videos Available on Facebook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/iving-into-viral-video-dialogues/"><u>[New] Diving Into Viral Video Dialogues</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-detailed-breakdown-complete-test-of-gecata-tracker/"><u>[Updated] 2024 Approved Detailed Breakdown Complete Test of Gecata Tracker</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-affordable-high-performance-gaming-keyboards-listed-for-2024/"><u>[Updated] Affordable High-Performance Gaming Keyboards Listed for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2023-linking-tweets-to-facebook-videos-effortlessly-for-2024/"><u>2023 Linking Tweets to Facebook Videos Effortlessly for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-directly-connecting-tvs-to-fb-video-streaming/"><u>2024 Approved Directly Connecting TVs to Fb Video Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-online-presence-facebook-vs-twitter-identities/"><u>Exploring Online Presence: Facebook vs Twitter Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-app-tutorial-for-seamless-spotify-listening/"><u>Facebook App Tutorial for Seamless Spotify Listening</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-navigate-the-complex-world-of-fb-friendship-changes/"><u>How To Navigate The Complex World of FB Friendship Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/improving-non-responsive-facebook-alerts-and-updates/"><u>Improving Non-Responsive Facebook Alerts & Updates</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/in-depth-solutions-eliminating-the-pain-of-code-28-errors-on-pc/"><u>In-Depth Solutions: Eliminating the Pain of Code 28 Errors on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723203811582-regain-bluetooth-connectivity-in-windows-10-fast-and-straightforward-methods/"><u>Regain Bluetooth Connectivity in Windows 10: Fast & Straightforward Methods</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-infinix-note-30i-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Infinix Note 30i on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/resilience-in-rebellion-facebooks-sanctioned-sect-of-deniers/"><u>Resilience in Rebellion: Facebook’s Sanctioned Sect of Deniers</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solve-your-iphone-safari-picture-problems-effective-strategies-and-techniques/"><u>Solve Your iPhone Safari Picture Problems: Effective Strategies & Techniques</u></a></li>
 </ul></div>
 

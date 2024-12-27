@@ -1,7 +1,7 @@
 ---
 title: "Evolving Identity Online: Changing Your Facebook Username"
-date: 2024-08-15T18:49:55.949Z
-updated: 2024-08-16T18:49:55.949Z
+date: 2024-12-21T16:19:57.421Z
+updated: 2024-12-27T16:53:16.140Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,6 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
 
 The process differs slightly on the website versus the app.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### On the Web
 
 To change your name on the Facebook website, do the following:
@@ -39,15 +36,18 @@ To change your name on the Facebook website, do the following:
 5. Enter what you want to use for first name, optional middle name, and last name, and click **Review Change.**  
 **![Changing your Facebook name on web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/change-facebook-name-on-web.png)**
 6. Facebook will prompt you to choose how you want your name to appear.
-7. Make your selection, enter your password, and click**Save Changes** .  
-![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+7. Make your selection, enter your password, and click**Save Changes** .  
+![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### On the Facebook App
 
 ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
@@ -55,6 +55,10 @@ To change your name on the Facebook website, do the following:
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
 ![facebook name change page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-name-change-page-ios.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -73,9 +77,6 @@ Close
 
  Read More:[How to Delete Facebook Notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Add Additional Names to Your Facebook Profile
 
  By default, you can only add a maximum of three names to your Facebook profile. But what if you have more than three?
@@ -87,11 +88,12 @@ Close
  To do this, follow the procedure highlighted above and on the name change page, tap**Add other names** or**Add a nickname, a birth name etc.,** under**Other names** .
 
 ![creating additional names facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/01-creating-additional-names-facebook-mobile.jpg)
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 
 ![enter additional name facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/02-creating-additional-names-facebook-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -101,9 +103,6 @@ Close
 
  Read More:[How to Untag Yourself From Facebook Photos](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Restrictions on Changing Your Facebook Name
 
  So what are the restrictions that Facebook has put in place when changing your name on the platform? You can see a list below...
@@ -122,20 +121,21 @@ Close
 
  However, Facebook also accepts other non-government IDs like a bank statement, health insurance, credit card, and so on as long as it shows your official names.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## More Things To Try on Facebook
 
  After you change your name on Facebook, you might also want to try a few other Facebook tools and features.
 
  Consider trying out Facebook's privacy tools to do an overhaul of your account settings.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +144,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tags-to-amplify-your-youtube-gaming-channel/"><u>[New] 2024 Approved Essential Tags to Amplify Your YouTube Gaming Channel</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-screensnap-it-all-high-quality-netflix-on-mac/"><u>[New] 2024 Approved ScreenSnap It All High-Quality Netflix on Mac</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-direct-data-delivery-fast-file-pathways-to-desktop/"><u>[Updated] 2024 Approved Direct Data Delivery Fast File Pathways to Desktop</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-irecorder-unleashed-a-review-revealed/"><u>[Updated] IRecorder Unleashed A Review Revealed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/celebrating-digiartys-milestone-special-plans-for-the-18-year-jubilee/"><u>Celebrating Digiarty's Milestone - Special Plans for the 18-Year Jubilee</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-f14-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy F14 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-virtual-reality-to-messaging-on-fb-platform/"><u>Introducing Virtual Reality to Messaging on FB Platform</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/overcoming-issues-with-the-spell-check-feature-in-your-outlook-email-client/"><u>Overcoming Issues with the Spell Check Feature in Your Outlook Email Client</u></a></li>
+<li><a href="https://facebook.techidaily.com/sounds-for-stories-using-facebooks-new-messenger-features/"><u>Sounds for Stories: Using Facebook's New Messenger Features</u></a></li>
+<li><a href="https://win11.techidaily.com/swiftly-solve-the-non-operational-escape-button-on-your-desktop/"><u>Swiftly Solve the Non-Operational Escape Button on Your Desktop</u></a></li>
+<li><a href="https://facebook.techidaily.com/unified-media-presence-transferring-instagram-reels-to-facebook-feed/"><u>Unified Media Presence: Transferring Instagram Reels to Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-metaai-and-can-it-compete-with-other-chatbots/"><u>What Is MetaAI? And Can It Compete With Other Chatbots?</u></a></li>
+</ul></div>
 

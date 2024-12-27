@@ -1,7 +1,7 @@
 ---
 title: Meta's Privacy Features Versus Facebook in Oculus Quest
-date: 2024-08-15T18:45:45.133Z
-updated: 2024-08-16T18:45:45.133Z
+date: 2024-12-20T16:13:09.620Z
+updated: 2024-12-27T17:54:19.607Z
 tags:
   - facebook
 categories:
@@ -25,28 +25,30 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
 
 ![The Meta Quest 2 controller still featuring the Oculus logo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/artifacts-of-oculus.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Oculus still exists as an entity and does Meta’s VR software development. When they were their own company, there was such a thing as an “Oculus account” required to sign into the headsets. Some kind of account is necessary to do things like buy and manage apps, after all. However, Meta retired the Oculus account in lieu of a Facebook login requirement.
 
  Seeing the problems above, including vocal pushback from users, Meta[stopped requiring a Facebook login](https://www.meta.com/help/accounts/?utm%5Fsource=www.bing.com&utm%5Fmedium=dollyredirect) in August 2022\. Instead, they need a “Meta account.” But, if Meta owns Facebook, isn’t having a Meta account at least as bad as having a Facebook account from a privacy perspective?
 
  Some argue that there’s no real difference between using a Meta account and using a Facebook account from a privacy perspective. Others believe that the Meta account requirement is better than a Facebook account requirement. Trying to decide who’s right is less rewarding than presenting both sides of the discussion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Meta Account Requirement Is Not Better
 
  There are a few strong pillars holding up this position. Whether you support it or not, the common ground we all walk on is that Meta owns Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Meta Gets Your Info Either way
 
  There are a lot of[reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
 
  Suppose that you know someone that you see at work as well as socially. There’s something you’re afraid to tell this person, so you tell them at work. This person might keep your secret around friends (or might not) but either way they still have the information. So, giving your information to Meta might just be giving your information to Facebook wearing a different hat.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Two Accounts for Double the Info
 
  Not only does Meta still get the information, but they also get information that you might not have given Facebook. For example, because most Quest 2 apps and games aren’t free, you’re more likely to enter payment information into your Quest account than your Facebook account (unless you use your credit card to buy bonuses in Candy Crush).
@@ -57,18 +59,6 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
 
  It could be argued that these are moot points as far as the Meta account is concerned. After all, these things are required for a VR headset and ecosystem. So, they aren’t new concerns since Meta accounts appeared, as they’ve been true since Facebook bought Oculus. They’ve even been true since Meta replaced the Oculus login with a Facebook login.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Meta Requirement Is Better
 
  Despite all of the criticisms of the move, Facebook accounts and Meta accounts are different. Yes, that does make a difference.
@@ -78,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  Think about the information that you enter into Facebook. Your name, your family and friends, probably where you work and went to school. Maybe what you think and believe. Maybe payment info, maybe not. This information has to be input accurately and honestly for the platform to work as intended.
 
 ![Personal information fields for a Meta account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/How-much-do-you-share.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Now, think about the information that you enter into a VR account – arguably about the same as you enter into a game console at this point. Maybe your real name, maybe not. Maybe your personal friends, maybe not. Payment info, probably. Probably not your family. Probably not where you work. Probably not what you think and believe.
@@ -87,8 +78,9 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  Friend suggestions were a good example of this in the days of the Facebook requirements. When a Facebook friend linked their accounts to a Quest, other Quest users in their Facebook network got notifications. This doesn’t happen when you sign in with a Meta account because your Meta account doesn’t know (or pretends not to know) who your Facebook friends are.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### You Don’t Need a Facebook Account
 
  So far, we’ve been weighing the cons of a Meta account against the cons of a Facebook account. However, since the Meta account option, you don’t need a Facebook account to use a Quest.
@@ -96,22 +88,20 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
  If you want to use a Quest but[deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Pick Your Poison
 
  For most people, this is an academic exercise. Most people don’t think twice about giving data in exchange for services because that’s just how the world works these days. If you’re more discerning, you have some thinking to do.
 
  It’s true that using a VR headset means giving some of your info to someone. And it’s true that, if you want to use Quest, that means giving some of your info to Meta. However, giving info to Meta no longer means giving your info to Facebook. That’s particularly true if you use Meta and Facebook in ways that are mindful of your data privacy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,4 +110,18 @@ thumbnail: https://thmb.techidaily.com/494747ec004285de2aadee4c9fc771562b4f42ca2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-successful-patch-obs-full-screen-functionality/"><u>[New] 2024 Approved Successful Patch OBS Full Screen Functionality</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/amplifying-graphical-performance-in-windows-11s-safeguard-feature/"><u>Amplifying Graphical Performance in Windows 11'S Safeguard Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-amazons-lawsuit-intricacies-regarding-facebook-groups/"><u>Exploring Amazon’s Lawsuit Intricacies Regarding Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-self-safety-measures-on-facebook-platform/"><u>Implementing Self-Safety Measures on Facebook Platform</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-y100t-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo Y100t Phones</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-mobile-apps-for-luts/"><u>Mastering Mobile Apps for LUTs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/methods-and-steps-to-delete-your-chatgpt-trail/"><u>Methods and Steps to Delete Your ChatGPT Trail</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-quality-swiftest-android-substitutes/"><u>Quick Quality: Swiftest Android Substitutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-security-rankings/"><u>Social Network Security Rankings</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-stuck-facebook-video-top-10-solutions/"><u>Troubleshooting: Stuck Facebook Video – Top 10 Solutions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-upload-avi-mpeg-wmv-formats-to-ipad-effortlessly-with-winx-video-converter-pro/"><u>Ultimate Guide: Upload AVI, MPEG, WMV Formats to iPad Effortlessly with WinX Video Converter Pro</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Hide Unwanted Persons From Your Facebook Memory Lens
-date: 2024-08-15T18:48:44.870Z
-updated: 2024-08-16T18:48:44.870Z
+date: 2024-12-25T17:10:33.608Z
+updated: 2024-12-27T20:15:56.916Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/36f771b0e455ffd27a9b597a4a43e9338a94fa4ef
 
 ![An elderly woman showing a photo of herself on her smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-yaroslav-shuraev-8087571.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook Memories is actually a pretty cool feature, and 90% of the time, it's a great way to take a look at your social life. It will find who you made friends with in years past, and it will show you goofy photos from that epic party two years ago. Facebook pushes these as notifications in your news feed.
 
  But you have to remember that this is a machine generating all those moments. It can't feel, and it can't understand emotions, so it's going to make mistakes. Your past is a part of who you are today. And often, there is some baggage that you have learned to deal with and live with, but you might not want to be reminded of it suddenly. Unfortunately, that's what Facebook Memories does.
@@ -33,11 +37,16 @@ thumbnail: https://thmb.techidaily.com/36f771b0e455ffd27a9b597a4a43e9338a94fa4ef
 
  As Meyer pointed out, there is an algorithm failing here, but there is also a human failing. The human failing was that Facebook pushed this to users without giving them a way to opt-out. But the social site has since introduced ways to do this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Block People in Facebook's 'On This Day'
 
 ![Screenshot of Memories on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/memories-home-facebook.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Facebook now lets you hide memories of your friends or anyone else on Facebook if don't want to see reminders associated with that person, like an ex after a bad breakup. Here's how to do it.
@@ -51,13 +60,15 @@ thumbnail: https://thmb.techidaily.com/36f771b0e455ffd27a9b597a4a43e9338a94fa4ef
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Block Dates or Date Ranges in Facebook Memories
 
 ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
@@ -69,15 +80,9 @@ thumbnail: https://thmb.techidaily.com/36f771b0e455ffd27a9b597a4a43e9338a94fa4ef
 
  That's it, memories from that particular date range won't show up.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Turn Off Facebook Memories Notifications
 
 ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 
  You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
@@ -89,21 +94,15 @@ thumbnail: https://thmb.techidaily.com/36f771b0e455ffd27a9b597a4a43e9338a94fa4ef
 
  If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Learn to Live with Your Past
 
  You might not want to give up on Facebook, so these filters for Memories should let you use the social network without unnecessary issues. More often than not, the Facebook Memories feature actually ends up with pretty boring memories. But you can control what it does and doesn't show you.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,4 +111,26 @@ thumbnail: https://thmb.techidaily.com/36f771b0e455ffd27a9b597a4a43e9338a94fa4ef
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-enhancing-customer-engagement-with-personalized-marketing-strategies/"><u>[New] 2024 Approved Enhancing Customer Engagement with Personalized Marketing Strategies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapshot-savvy-learn-to-pin-on-snapchat/"><u>[New] 2024 Approved Snapshot Savvy Learn to Pin on Snapchat</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-exclusive-list-of-premium-video-downloader-apps/"><u>[Updated] 2024 Approved Exclusive List of Premium Video Downloader Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-zero-degrees-to-glory-peak-sports-in-cold-climates/"><u>[Updated] 2024 Approved Zero Degrees to Glory Peak Sports in Cold Climates</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-xsplit-sourcebook-exclusive-split-and-review-content/"><u>[Updated] In 2024, XSplit Sourcebook Exclusive Split & Review Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-speedy-to-steady-on-iphone-a-compreomed-guide-for-slowed-down-visuals/"><u>2024 Approved From Speedy to Steady on iPhone A Compreomed Guide for Slowed-Down Visuals</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-unveiling-3dr-a-personal-perspective-on-printing-alone/"><u>2024 Approved Unveiling '3DR' A Personal Perspective on Printing Alone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/analyzing-the-roi-of-sns-hdr-pro-vs-other-hdr-tools/"><u>Analyzing the ROI of SNS HDR Pro Vs. Other HDR Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-learn-the-top-30-smart-words-and-abbreviations-in-social-media/"><u>Engage with Ease: Learn the Top 30 SMART Words and Abbreviations in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-facebook-insights-for-smarter-business-ads/"><u>Exploring New Facebook Insights for Smarter Business Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-locating-privatized-social-media-files/"><u>Hidden in Plain Sight: Locating Privatized Social Media Files</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagram-reels-expertise-from-a-ninja-perspective/"><u>In 2024, Instagram Reels Expertise From a Ninja Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-content-curation-insights-from-user-experiences-survey/"><u>Personalizing Content Curation: Insights From User Experiences Survey</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/picsart-edge-bringing-facial-movement-into-the-digital-realm/"><u>Picsart Edge Bringing Facial Movement Into the Digital Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-personal-info-with-facebooks-updated-privacy-options/"><u>Securing Personal Info with Facebook’s Updated Privacy Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-dynamics-redefined-identifying-4-platform-driven-societal-alterations/"><u>Social Dynamics Redefined: Identifying 4 Platform-Driven Societal Alterations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dominance-trio-that-terrifies-us/"><u>The Dominance Trio That Terrifies Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-everyone-in-messenger-chats/"><u>Turn Off @Everyone in Messenger Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-messengers-ar-capabilities-by-facebook/"><u>Unveiling Messenger's AR Capabilities by Facebook</u></a></li>
+</ul></div>
 

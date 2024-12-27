@@ -1,7 +1,7 @@
 ---
 title: "Social Network Pursues Accuracy: New FB Misinfo Penalties"
-date: 2024-12-17T19:19:18.300Z
-updated: 2024-12-22T02:14:20.809Z
+date: 2024-12-22T16:34:05.333Z
+updated: 2024-12-27T17:09:39.697Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Makes Misinformation Less Attractive
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  This means that anyone who is friends with or follows that user will really have to dig through their News Feed in order to find that person's posts, whether they contain misinformation or not. Facebook's new penalty might be a bit extreme, but the platform clearly believes that this will put a stop to the spread of misinformation.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is Also Pushing New Notifications
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 ![Facebook Pages misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-misinformation-pages.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 ![Fact checker notification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fact-checker-notification.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
  The notification also warns users that people "who repeatedly share false information might have their posts moved lower in News Feed so other people are less likely to see them." Users will then have the choice to either delete their post, or they can click a link to find out more about Facebook's fact-checking policies.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook's Strict Misinformation Policies Pay Off?
@@ -91,17 +91,21 @@ thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-art-of-concluding-your-videos-powerfully/"><u>[New] 2024 Approved The Art of Concluding Your Videos Powerfully</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-binge-on-the-best-tiktoks-viral-video-collection/"><u>[New] In 2024, Binge on the Best TikTok's Viral Video Collection</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-real-world-application-perfecting-your-instagram-livestream-with-obs-for-2024/"><u>[Updated] Real-World Application Perfecting Your Instagram Livestream with OBS for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-uncovering-your-individual-playlist-sanctuary-on-youtube/"><u>[Updated] Uncovering Your Individual Playlist Sanctuary on Youtube</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-million-donation-boosts-worldwide-covid-19-fight/"><u>$5 Million Donation Boosts Worldwide COVID-19 Fight</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-preserving-your-digital-self-narrative-on-facebook/"><u>A Guide to Preserving Your Digital Self-Narrative on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/activists-cause-chaos-provoke-one-star-reviews-on-social-network/"><u>Activists Cause Chaos: Provoke One-Star Reviews on Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/chronicle-of-significant-events-from-google/"><u>Chronicle of Significant Events From Google</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-removal-its-impact-on-privacy-and-safety-for-facebook-users/"><u>Data Removal – Its Impact on Privacy and Safety for Facebook Users</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/master-program-harmony-in-os-with-win-pct-wisdom/"><u>Master Program Harmony in OS with Win-PCT Wisdom</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/rejuvenating-corrupt-video-files-via-qt-player/"><u>Rejuvenating Corrupt Video Files via QT Player</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/take-flight-with-djis-robomaster-s1-a-thrilling-tank-drone-experience-that-boosts-coding-skills-and-offers-strategic-battles/"><u>Take Flight with DJI's RoboMaster S1 - A Thrilling Tank Drone Experience that Boosts Coding Skills and Offers Strategic Battles</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ideal-mac-recording-solutions-for-efficient-documentation/"><u>[New] Ideal Mac Recording Solutions for Efficient Documentation</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-harmonize-with-holiness-choosing-christian-chimes/"><u>[New] In 2024, Harmonize with Holiness – Choosing Christian Chimes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-secrets-revealed-a-detailed-look-at-google-podcasting/"><u>2024 Approved Secrets Revealed A Detailed Look at Google Podcasting</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-14-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 14</u></a></li>
+<li><a href="https://techidaily.com/cookiebot-driven-web-analytics-enhancing-user-experience-with-smart-tracking/"><u>Cookiebot-Driven Web Analytics: Enhancing User Experience with Smart Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-balance-in-your-online-world-through-facebook-alerts/"><u>Finding Balance in Your Online World Through Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-fringe-to-fortune-the-power-of-reels-creators-and-the-metric-marketplace/"><u>From Fringe to Fortune: The Power of Reels, Creators & the Metric Marketplace</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-install-the-newest-epson-wf-7720-printer-software-on-your-pc/"><u>How to Install the Newest Epson WF-7720 Printer Software on Your PC</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-lenovo-screenshots-made-quickly-and-easy/"><u>In 2024, Lenovo Screenshots Made Quickly and Easy</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-optimal-hue-refiner-app/"><u>In 2024, Optimal Hue Refiner App</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-potential-for-professional-client-connections/"><u>Maximizing Facebook's Potential for Professional Client Connections</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mw3-not-starting-heres-your-guide-to-overcoming-boot-errors-in-modern-warfare-3/"><u>MW3 Not Starting? Here's Your Guide to Overcoming Boot Errors in Modern Warfare 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/phishing-proof-your-social-life-on-facebook/"><u>Phishing-Proof Your Social Life on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-reactivate-account-wo-phone-for-fb-2fa/"><u>Quick Guide: Reactivate Account W/O Phone for FB 2FA</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-platform-integrity-properly-banned-trump-but-not-permanently/"><u>Tech Platform Integrity: Properly Banned Trump, but Not Permanently</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-some-content-is-allowed-on-facebook/"><u>Why Some Content Is Allowed on Facebook</u></a></li>
 </ul></div>
 

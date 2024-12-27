@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-12-16T21:37:57.641Z
-updated: 2024-12-22T05:54:55.759Z
+date: 2024-12-26T16:25:50.479Z
+updated: 2024-12-27T16:33:15.398Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Restricted List on Facebook?
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -57,13 +57,13 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -87,21 +87,18 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-learn-how-to-add-descriptive-texts-to-your-youtube-videos/"><u>[New] Learn How to Add Descriptive Texts to Your YouTube Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-engagement-the-list-of-todays-hot-instagram-hashtags/"><u>[Updated] Elevate Engagement The List of Today's Hot Instagram Hashtags</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-web-that-wounds-10-harmful-effects-of-social-connectivity/"><u>A Web That Wounds: 10 Harmful Effects of Social Connectivity</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/expert-insight-on-the-samsung-galaxy-a71-5g-savvy-substitute-for-high-end-flagships/"><u>Expert Insight on the Samsung Galaxy A71 5G - Savvy Substitute for High-End Flagships</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/inaugural-zooid-creations-ranked-for-2024/"><u>Inaugural Zooid Creations Ranked for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-newsfeed-narrative-with-customization-choices/"><u>Mastering the Newsfeed Narrative with Customization Choices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-samsung-galaxy-a54-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Samsung Galaxy A54 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-privacy-on-facebook-a-handy-list-of-7-steps/"><u>Navigating Privacy on Facebook: A Handy List of 7 Steps</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-how-to-create-video-with-music-for-free/"><u>New How to Create Video with Music for FREE</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-decreasing-unsolicited-fb-messages/"><u>Strategies for Decreasing Unsolicited FB Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-beyond-words-interpreting-icons-and-symbols-on-fb/"><u>The Language Beyond Words: Interpreting Icons and Symbols on FB</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-solution-for-overcoming-stability-problems-in-jurassic-world-evolution-gameplay/"><u>Ultimate Solution for Overcoming Stability Problems in Jurassic World Evolution Gameplay</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlocking-global-availability-a-guide-to-using-chatgpt-anytime-anywhere-with-chatgpt-everywhere/"><u>Unlocking Global Availability: A Guide to Using ChatGPT Anytime, Anywhere with ChatGPT Everywhere</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-does-fb-activity-hit-its-apex/"><u>When Does FB Activity Hit Its Apex?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-could-be-opening-a-retail-store-near-you-soon/"><u>Why Facebook Could Be Opening a Retail Store Near You Soon</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-cash-flow-of-creative-content-youtubers-earnings-per-sponsored-video/"><u>[New] 2024 Approved The Cash Flow of Creative Content Youtuber's Earnings per Sponsored Video?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pixel-perfection-combining-computer-photos/"><u>[New] Pixel Perfection Combining Computer Photos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-pocket-guide-retaining-twitter-media-on-your-cellphone-for-2024/"><u>[New] Pocket Guide Retaining Twitter Media on Your Cellphone for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ideal-tactic-fusing-gopro-footage-into-a-unified-360-video-experience/"><u>[Updated] Ideal Tactic Fusing GoPro Footage Into a Unified 360 Video Experience</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-treasure-trove-of-e-commerce-the-hottest-sites-for-mystery-boxes-for-2024/"><u>A Treasure Trove of E-Commerce The Hottest Sites for Mystery Boxes for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-tutorial-for-3d-lut-creators/"><u>In 2024, Ultimate Tutorial for 3D LUT Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-pursuit-aiming-for-a-social-media-revolution-in-europe/"><u>Meta's Pursuit: Aiming for a Social Media Revolution in Europe</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-marketplace-with-confidence-and-caution/"><u>Navigating the Marketplace with Confidence and Caution</u></a></li>
+<li><a href="https://win-info.techidaily.com/redownloading-and-setting-up-windows-operating-system-a-guide-from-yl-software-experts/"><u>Redownloading and Setting Up Windows Operating System: A Guide From YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-avoiding-intrusive-social-media-popups/"><u>Strategies for Avoiding Intrusive Social Media Popups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-scale-of-power-governments-vs-techs-mighty-empire/"><u>The Scale of Power: Governments Vs. Tech's Mighty Empire</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-resource-for-creating-professional-impactful-videodumps/"><u>The Ultimate Resource for Creating Professional, Impactful Videodumps</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwinding-the-facebook-tiktok-rivalry-with-reel-innovation/"><u>Unwinding the Facebook-TikTok Rivalry with Reel Innovation</u></a></li>
 </ul></div>
 

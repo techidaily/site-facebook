@@ -1,7 +1,7 @@
 ---
 title: Marketing Maven Resigns From Top Social Media Post
-date: 2024-08-15T18:45:41.909Z
-updated: 2024-08-16T18:45:41.909Z
+date: 2024-12-23T19:51:09.532Z
+updated: 2024-12-27T19:16:47.946Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Loses Its Top Ad Executive
 
  Carolyn Everson, now former vice president of Facebook's Global Business Group, has[posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
  "I am extremely proud of what we set out to accomplish but way more proud of my team and the support we showed each other, especially in difficult times," Everson writes. "I am very much looking forward to starting a new chapter."
 
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
@@ -44,13 +52,15 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
@@ -59,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
  It's a role with a lot of responsibilities, and thus, a lot of stress. We'll have to wait and see whether this'll cause any major changes to the company's operations.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,4 +82,24 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instavision-twists-the-art-of-creating-instagram-loops/"><u>[New] 2024 Approved InstaVision Twists The Art of Creating Instagram Loops</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-top-10-fb-video-downloader-tools-firefox-compatible/"><u>[New] 2024 Approved Top 10 FB Video Downloader Tools, Firefox Compatible</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/opyright-laws-and-screencasting-of-online-video-platforms-youtube-for-2024/"><u>[New] Copyright Laws and Screencasting of Online Video Platforms (YouTube) for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quick-quill-the-best-caption-apps-for-your-photos-iosandroid/"><u>[New] Quick Quill The Best Caption Apps for Your Photos (iOS/Android)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/gratis-webbaserad-vidoverforare-mp4-till-wav-movavis-vidkonverteringskonstablerande/"><u>Gratis Webbaserad Vidoverförare: MP4 Till WAV - Movavi's Vidkonverteringskonstablerande</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-ratings-facebooks-app-store-scores-tank-under-activist-pressure/"><u>Hacked Ratings: Facebook's App Store Scores Tank Under Activist Pressure</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-logiteche-g-pro-x-mic-issues-comprehensive-troubleshooting-guide/"><u>How to Fix Logiteche G PRO X Mic Issues - Comprehensive Troubleshooting Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-demystify-video-editing-with-free-vimeo-resources/"><u>In 2024, Demystify Video Editing with Free Vimeo Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/refined-networking-smartly-reducing-fb-communication/"><u>Refined Networking: Smartly Reducing FB Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-streamlining-the-growth-of-facebook-to-meta/"><u>Social Streamlining: The Growth of Facebook to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-update-your-social-media-login-passphrase/"><u>Steps to Update Your Social Media Login Passphrase</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-breakdown-of-facebooks-new-privacy-interface/"><u>The Complete Breakdown of Facebook's New Privacy Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-facebook-app-adjustments-for-improved-use/"><u>Top 10 Facebook App Adjustments for Improved Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-features-for-data-driven-decision-making/"><u>Top 8 CrowdFlower Features for Data-Driven Decision Making</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transform-your-iphone-display-with-night-time-settings-heres-how/"><u>Transform Your iPhone Display with Night Time Settings – Here's How!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transitioning-to-win-11-with-confident-system-setup/"><u>Transitioning to Win 11 with Confident System Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-is-threatening-to-kill-facebook-and-instagram-in-europe/"><u>Why Meta Is Threatening to Kill Facebook and Instagram in Europe</u></a></li>
+</ul></div>
 

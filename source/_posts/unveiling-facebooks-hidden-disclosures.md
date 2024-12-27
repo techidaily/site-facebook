@@ -1,7 +1,7 @@
 ---
 title: Unveiling Facebook's Hidden Disclosures
-date: 2024-08-15T18:51:16.021Z
-updated: 2024-08-16T18:51:16.021Z
+date: 2024-12-22T20:34:00.207Z
+updated: 2024-12-27T20:10:11.455Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/f3b5fbbb41ff3e0e15766362f9082ba5609c00b84
 
  The documents provide unparalleled insight into Facebook's inner workings, detailing internal policies, arguments, complaints, worries about the direction of the platform, its involvement with spreading hatred and political violence, and much, much more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  In late September 2021, The Wall Street Journal began publishing a series of articles containing information from a series of internal Facebook documents.
@@ -36,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/f3b5fbbb41ff3e0e15766362f9082ba5609c00b84
  The video below is Haugen's interview on 60 Minutes, where she details many of the revelations found in the Facebook Papers.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Zuckerberg Believes It's an Attack on the Company
 
  Despite the damning nature of the documents, Facebook CEO Mark Zuckerberg[described](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q3/FB-Q3-2021-Earnings-Call-Transcript.pdf) the leaked documents as a coordinated effort to attack the company.
@@ -47,8 +52,9 @@ thumbnail: https://thmb.techidaily.com/f3b5fbbb41ff3e0e15766362f9082ba5609c00b84
  He goes on to talk about how the polarization of US politics and indeed, society at large, began long before he was born, and that Facebook will never solve these issues on its own.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is This the End for Facebook?
 
  Despite claims that Facebook ignores user safety, puts profits over everything else, contributes to political violence and civil unrest, and much more, there are very few indications that this is the end of Facebook.
@@ -57,14 +63,11 @@ thumbnail: https://thmb.techidaily.com/f3b5fbbb41ff3e0e15766362f9082ba5609c00b84
 
  The wider backdrop might see even more users leave the platform, with Facebook already struggling to attract the younger audience who view the platform as outdated and full of misinformation. Despite Facebook's enormous clout, massive revelations like this will hurt its image in the long run, especially with a younger audience growing up in a socially aware world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,4 +76,24 @@ thumbnail: https://thmb.techidaily.com/f3b5fbbb41ff3e0e15766362f9082ba5609c00b84
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-insiders-secret-to-viral-tiktok-edits/"><u>[New] The Insider's Secret to Viral TikTok Edits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-capture-the-moment-enhancing-and-cutting-video-for-instagram-impact/"><u>[Updated] Capture the Moment Enhancing and Cutting Video for Instagram Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-multimedia-designers-space/"><u>[Updated] Multimedia Designer's Space</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-easy-steps-to-screen-recording-across-oses-and-devices/"><u>2024 Approved Easy Steps to Screen Recording Across OSes & Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-photo-pinnacle-top-tripods-for-android-and-iphones/"><u>2024 Approved Photo Pinnacle Top Tripods for Android & iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-language-of-data-insights-from-whistleblowers-release/"><u>Deciphering the Language of Data: Insights From Whistleblower's Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-signals-whats-next-for-facebook/"><u>Deciphering the Signals: What's Next for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-your-fb-blocked-network-list/"><u>Decoding Your Fb Blocked Network List</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-fbcta-and-user-privacy/"><u>Demystifying FBCTA and User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-a-facebook-incident-cause-your-number-to-go-public/"><u>Did A Facebook Incident Cause Your Number to Go Public?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-for-youths-facebook-proposes-break-from-instagram/"><u>Digital Detox for Youths? Facebook Proposes Break From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-in-app-browsing-on-facebook-platform/"><u>Disabling In-App Browsing on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-management-selecting-the-ideal-page-administrator/"><u>Efficient Management: Selecting the Ideal Page Administrator</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-narzo-60x-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme Narzo 60x 5G</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-10-innovative-4k-mirrorless-photographic-tools/"><u>Top 10 Innovative 4K Mirrorless Photographic Tools</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-13-pro-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On iPhone 13 Pro?</u></a></li>
+</ul></div>
 

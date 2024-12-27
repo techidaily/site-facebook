@@ -1,7 +1,7 @@
 ---
 title: The Best Privacy Practices to Adopt on Facebook Today
-date: 2024-08-15T18:45:54.742Z
-updated: 2024-08-16T18:45:54.742Z
+date: 2024-12-26T19:04:14.200Z
+updated: 2024-12-27T16:19:35.541Z
 tags:
   - facebook
 categories:
@@ -19,15 +19,16 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 
  Many people prefer limiting their Facebook accounts to protect their privacy. It would help if you took some extra steps to protect your private information on Facebook. Here are seven simple and effective ways to do so.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Avoid Befriending Strangers
 
  Let's start with the basics. It is an[unsaid rule not to add strangers on Facebook](https://www.makeuseof.com/reasons-shouldnt-add-strangers-facebook/) because we never know their intentions or real identity. The best practice is to only add people you know personally and in real life.
 
  Apart from unknowns, you should try not to add people from your professional setup. Let's keep the colleagues away—they don't have to see the pictures you took on your last trip. Try to meet a person several times before making them friends on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Don't Upload All Your Information
 
  Facebook has a dedicated section where users can add personal information, education, and work details. But is adding that info really necessary? Do Facebook and other users need to know where you went to middle school?
@@ -37,9 +38,9 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
  Facebook allows its users to add a status update with the location. If you wish to keep your whereabouts private, avoid uploading that for the general public.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Customize Your Post Privacy
 
  Every post you share has the option to edit the privacy and make it visible to a particular audience. For instance, users can upload a profile picture and change its privacy settings to**Friends** or**Only me** .
@@ -54,16 +55,12 @@ To change the privacy of your Facebook post:
 4. Tap**Done** .
 
 ![Post a Facebook Status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Post-a-Facebook-Status.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-post-audience.JPG)
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -77,9 +74,6 @@ Close
 ![Create a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Create-a-Facebook-Story.JPG)
 
 ![Facebook Story privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Story-privacy.JPG)
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -96,11 +90,12 @@ To lock your Facebook profile:
 3. From the menu, select**Lock profile** and tap the**Lock your profile** button.
 
 ![Facebook-Menu-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Menu-on-mobile.JPG)
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook-user-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-user-profile.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Lock Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Lock-Facebook-profile.JPG)
 
@@ -117,19 +112,24 @@ Close
 3. Review the devices shown in the**Where you're logged in** section.
 
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy.JPG)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
 
 ![Check where you are logged in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Check-where-you-are-logged-in.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  Only log in on the devices you use and log out from the rest. From the same screen, you can enable extra precautionary measures like[Facebook two-factor authorization](https://www.makeuseof.com/tag/how-to-use-facebook-login-approvals-code-generator-android/) or checking[if someone else is using your Facebook account](https://www.makeuseof.com/tag/check-accessing-facebook-account/) .
 
  Do not save your Facebook account information on devices you do not own to ensure that you are only logged in where necessary.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Only Give Necessary Permissions to Facebook
 
@@ -146,22 +146,20 @@ Close
 5. Toggle off the**Allow Tracking** option.
 
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-app-settings.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Turn off Allow Tracking option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Turn-off-Allow-Tracking-option.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
 
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -182,16 +180,14 @@ To conduct the Facebook privacy checkup:
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy-1.JPG)
 
 ![Take a privacy checkup on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Take-a-privacy-checkup-on-Facebook.JPG)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Keep Your Facebook Account Private and Safe
 
@@ -201,14 +197,11 @@ Close
 
  Lastly, users must keep tabs on logged-in devices and perform regular privacy checks to ensure a safe experience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,4 +210,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-the-linksys-ea8300-wireless-router-multi-device-connectivity-explored/"><u>Comprehensive Guide to the Linksys EA8300 Wireless Router: Multi-Device Connectivity Explored</u></a></li>
+<li><a href="https://program-issues.techidaily.com/elden-rings-partner-quest-unleashed-step-by-step-solutions-to-online-play-challenges/"><u>Elden Ring's Partner Quest Unleashed: Step-by-Step Solutions to Online Play Challenges</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-sites-and-locales-for-job-hunting-freelancer/"><u>Essential Sites & Locales for Job Hunting (Freelancer)</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-twitter-will-both-stream-wnba-games-this-season/"><u>Facebook and Twitter Will Both Stream WNBA Games This Season</u></a></li>
+<li><a href="https://facebook.techidaily.com/framing-the-future-self-setting-up-a-social-media-space-with-your-avatar-as-the-main-attraction/"><u>Framing the Future Self: Setting up a Social Media Space with Your Avatar as the Main Attraction</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-convert-any-audio-into-custom-ringtones-for-ios-devices-web-and-app/"><u>Free Convert Any Audio Into Custom Ringtones for iOS Devices - Web & App</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-anonymous-informant-in-60-minutes-story/"><u>Identifying the Anonymous Informant in 60 Minutes Story</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-academic-avenue-leading-educators-on-youtube/"><u>In 2024, Academic Avenue Leading Educators on YouTube</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-edit-like-a-pro-top-vertical-video-apps-for-mobile-devices/"><u>In 2024, Edit Like a Pro Top Vertical Video Apps for Mobile Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Oppo A78? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-into-the-world-of-youtube-transcription-a-comprehensive-no-fee-guide/"><u>In 2024, Step Into the World of YouTube Transcription A Comprehensive No-Fee Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-celebrated-as-10-in-apples-educational-app-list/"><u>Mondly Celebrated as #10 in Apple’s Educational App List</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-bridging-aiff-and-mp3-techniques-for-high-quality-audio-conversion/"><u>New 2024 Approved Bridging AIFF and MP3 Techniques for High-Quality Audio Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-snooping-german-decree-blocks-facebook-from-whatsapp-user-data/"><u>No More Snooping: German Decree Blocks Facebook From WhatsApp User Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-rift-expense-a-new-avenue-for-restoring-hacked-logins/"><u>Oculus Rift Expense: A New Avenue for Restoring Hacked Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/prepare-yourself-upcoming-turmoil-in-fb-headlines/"><u>Prepare Yourself: Upcoming Turmoil in FB Headlines</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-a-second-round-at-instagrams-table/"><u>The Case for a Second-Round at Instagram's Table</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-fixing-connection-issues-for-your-microsoft-wireless-display-adapter-on-windows-11/"><u>Troubleshooting and Fixing Connection Issues for Your Microsoft Wireless Display Adapter on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-benefits-8-reasons-to-prefer-a-business-facebook-ppage/"><u>Unveiling the Benefits: 8 Reasons to Prefer a Business Facebook Ppage</u></a></li>
+</ul></div>
 

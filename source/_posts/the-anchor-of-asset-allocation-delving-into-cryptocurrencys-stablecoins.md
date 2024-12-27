@@ -1,7 +1,7 @@
 ---
 title: "The Anchor of Asset Allocation: Delving Into Cryptocurrency's Stablecoins"
-date: 2024-08-15T18:46:27.337Z
-updated: 2024-08-16T18:46:27.337Z
+date: 2024-12-21T19:04:37.690Z
+updated: 2024-12-27T18:51:02.918Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/1621022f15bae9f90515e95f15edd431dd0fad0e7
 
  Where's the fun in that? What's the point? Where's the profit? Read on to find out what a stablecoin is and why you might want to use one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are Stablecoins?
 
  This may surprise you, but cryptocurrencies were conceived to be used as currencies. Right now, people speculate on their notoriously volatile prices more than they use these digital assets to buy and sell goods and services, but it's not supposed to be that way.
@@ -33,6 +37,10 @@ That's where stablecoins come in.
 
  Stablecoins are blockchain-based digital currencies just like Bitcoin or Ethereum, but they are designed to maintain a consistent price over time, usually by being pegged to the value of another currency or being backed by a trusted agency.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do Stablecoins Work?
 
  Volatility aside, there are a number of great use cases for cryptocurrencies. These include greater transaction transparency, security, and the potential privacy of users.
@@ -42,8 +50,9 @@ That's where stablecoins come in.
  Stablecoins try to maintain these benefits and bring benefits of their own, which we'll get into in a moment. However, stablecoins do this without bringing along all of the price volatility that makes other cryptocurrencies difficult and intimidating to use in regular transactions.
 
 ![Tether logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/Tether_full_logo_dm.png)
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image Credit: Tether
@@ -63,38 +72,31 @@ Image Credit: Tether
  While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## More Stablecoin Examples and Use Cases
 
  The benefits of using a stable coin often depend on the coin as well as who issues it. There are several stablecoins already out there, including those that have already been discussed in this article. However, some proposed stablecoins could offer even more utility in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### CBDCs Could Help Governments Regulate and Issue Currency
 
  Stablecoins, specifically CBDCs, have a huge draw for governments for many reasons, including giving the central bank more direct control over the currency. CBDCs could also reduce or eliminate the need for the government to print and maintain physical money.
 
  While China uses its CBDC as a surveillance tool, U.S. Fed Chair Jerome Powell has said that the private nature of cryptocurrencies is a reason for the U.S. not to build a CBDC.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ### Stablecoins Could Provide Financial Infrastructure to the Unbanked
 
 ![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
 
  People without easy access to physical banks or who don't trust banking institutions could access secure financial services through stablecoins. Stablecoins other than CBDCs can be used by individuals as a store of value when their own local currency was in flux, as discussed above, or by people who live in areas where multiple currencies are used.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Stablecoins Improve Online Transactions
 
  Cryptocurrencies are naturally suited to online transactions in terms of their digital infrastructure. Their decentralized nature and ease of use also make them ideal for people conducting international transactions. Cryptocurrency transactions are also faster, more reliable, and potentially less expensive than conventional bank transactions.
@@ -107,14 +109,11 @@ Image Credit: Tether
 
  If you like the sound of digital currencies but don't like the sound of the price volatility of coins like Bitcoin and Ethereum, stablecoins might be right for you. While solutions like Facebook's Diem and CBDCs still exist on paper for most readers, coins like USDC and Tether are available and traded on most exchanges.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +122,24 @@ Image Credit: Tether
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-get-to-know-the-pros-of-engaging-with-asmr/"><u>[New] Get to Know the Pros of Engaging with ASMR</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-tomorrows-examination-innovative-approaches/"><u>[Updated] 2024 Approved Tomorrow’s Examination Innovative Approaches</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-discover-iphones-top-9-photo-watermarking-software/"><u>[Updated] Discover iPhone's Top 9 Photo Watermarking Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-video-montages-on-mobile-devices-a-8-must-have-list/"><u>[Updated] Top Video Montages on Mobile Devices A 8 Must-Have List</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbcta-and-its-broader-effects/"><u>Exploring FBCTA and Its Broader Effects</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-honor-magic-5-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Honor Magic 5 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-5-leading-resources-to-masterfully-add-text-flair-online/"><u>In 2024, 5 Leading Resources to Masterfully Add Text Flair Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-an-avatar-with-personal-touch-on-fb/"><u>Initiating an Avatar with Personal Touch on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-legacy-irreversible/"><u>Is Social Media Legacy Irreversible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-tide-of-disenchanted-users-online/"><u>Navigating Through the Tide of Disenchanted Users Online</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-guide-to-removing-tiktok-watermarks-for-free-for-2024/"><u>New The Ultimate Guide to Removing TikTok Watermarks for Free for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-tweaking-your-kiddos-messenger-settings/"><u>Step-by-Step: Tweaking Your Kiddo's Messenger Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-firms-content-moderation-under-legal-scrutiny/"><u>Tech Firms' Content Moderation Under Legal Scrutiny</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-of-the-tale-dispelling-common-social-media-misconceptions/"><u>The Truth of the Tale: Dispelling Common Social Media Misconceptions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-samsung-galaxy-f54-5g-by-drfone-android/"><u>Universal Unlock Pattern for Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwelcome-visitor-alert-detecting-facebook-security-issues/"><u>Unwelcome Visitor Alert: Detecting Facebook Security Issues</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnets-ultimate-guide-to-the-leading-printers/"><u>ZDNet's Ultimate Guide to the Leading Printers</u></a></li>
+</ul></div>
 

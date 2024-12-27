@@ -1,7 +1,7 @@
 ---
 title: "Social Connectivity’s Surprising Benevolence: 7 Aspects"
-date: 2024-12-16T02:47:49.874Z
-updated: 2024-12-22T04:08:42.167Z
+date: 2024-12-22T17:35:45.707Z
+updated: 2024-12-27T19:06:17.239Z
 tags:
   - facebook
 categories:
@@ -25,16 +25,12 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Social Media Makes It Easier to Make Friends
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -45,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
  It's entirely possible to have hundreds or even thousands of friends on Facebook. They may not be friends you spend time with in the real world, but they're friends nonetheless. There are several people I consider friends who I have never met in real life, but that doesn't lessen the connection we have thanks to our interactions on social media.
 
 **Social media can help you make and keep friends.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Social Media Fosters Empathy
 
@@ -69,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 ## 3\. Social Media Allows for Speedy Communication
 
 ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
@@ -95,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 **Social media has made the world a much smaller place.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Social Media Helps You Build Relationships
@@ -117,7 +113,7 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
@@ -146,6 +142,10 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
@@ -165,24 +165,18 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-breakthrough-methods-in-logging-whatsapp-communication/"><u>[Updated] Breakthrough Methods in Logging WhatsApp Communication</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-ios-recording-tools-guide/"><u>[Updated] In 2024, IOS Recording Tools Guide</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-shrouded-screen-images-techniques-for-redacting-info-for-2024/"><u>[Updated] Shrouded Screen Images Techniques for Redacting Info for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-step-by-step-obs-skype-screen-recording-for-2024/"><u>[Updated] Step-by-Step OBS Skype Screen Recording for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149968116-anticipated-ruling-by-social-medias-governance-authority-on-trump/"><u>Anticipated Ruling by Social Media’s Governance Authority on Trump.</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-unseen-by-facebooks-monitoring-tech/"><u>Be Unseen by Facebook's Monitoring Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-friend-spotting-the-top-3-tagging-strategies-on-fb/"><u>Breaking Down Friend Spotting: The Top 3 Tagging Strategies on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/celebrating-all-inclusive-groups-on-facebook-statuses/"><u>Celebrating All: Inclusive Groups on Facebook Statuses</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-analysis-of-the-amazonbasics-flat-antenna-for-economical-high-def-tv-streams/"><u>Comprehensive Analysis of the AmazonBasics Flat Antenna for Economical High-Def TV Streams</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-custom-face-for-facebook-profile/"><u>Crafting a Custom Face for Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-content-with-care-social-media-ethics-revealed/"><u>Crafting Content with Care: Social Media Ethics Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivating-goodwill-during-your-group-disassociation-journey/"><u>Cultivating Goodwill During Your Group Disassociation Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-wellness-wakeup-call-avoid-these-social-shares/"><u>Cyber Wellness Wakeup Call: Avoid These Social Shares</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-original-pfp-concepts-to-make-your-tiktok-presence-unforgettable/"><u>In 2024, Original PFP Concepts to Make Your TikTok Presence Unforgettable</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://win-news.techidaily.com/mastering-bi-directional-file-synchronization-on-windows-tips-and-techniques-from-vista-to-11/"><u>Mastering Bi-Directional File Synchronization on Windows: Tips and Techniques From Vista to 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-nokia-c32-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Nokia C32 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-infinix-smart-8-hd-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Infinix Smart 8 HD Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152836104-zucks-goat-a-monetary-metaphor-in-animal-form/"><u>Zuck's Goat: A Monetary Metaphor in Animal Form.</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-5-good-book-trailer-examples/"><u>[Updated] 2024 Approved 5 Good Book Trailer Examples</u></a></li>
+<li><a href="https://win11.techidaily.com/recmp4/"><u>簡単に! .RECをMP4フォーマットに切り替える方法と、パワフルな再生体験</u></a></li>
+<li><a href="https://common-error.techidaily.com/acer-mute-mystery-unraveled-how-to-restore-audio-functionality/"><u>Acer Mute Mystery Unraveled: How to Restore Audio Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/faster-and-more-efficient-android-lite-app-picks/"><u>Faster & More Efficient: Android Lite App Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-data-tips-against-phishing-on-social-sites/"><u>Guard Your Data: Tips Against Phishing on Social Sites</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-webcam-safety-the-best-cam-cover-picks/"><u>In 2024, Webcam Safety The Best Cam Cover Picks</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-no-budget-no-problem-9-free-online-movie-makers/"><u>New In 2024, No Budget, No Problem 9 Free Online Movie Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-secrets-to-stronger-fb-security/"><u>Protect Your Digital Life: Secrets to Stronger FB Security</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-vivo-s18-pro-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Vivo S18 Pro</u></a></li>
+<li><a href="https://win11.techidaily.com/the-7-best-windows-11-widgets-for-productivity/"><u>The 7 Best Windows 11 Widgets for Productivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-gateway-evaluating-its-effectiveness-in-user-login-across-platforms/"><u>The Facebook Gateway: Evaluating Its Effectiveness in User Login Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-need-for-increased-vigilance-against-deceptive-online-content-by-facebook-and-google/"><u>The Need for Increased Vigilance Against Deceptive Online Content by Facebook & Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-facebook-profiles-in-whatsapp-conversations/"><u>Utilizing Facebook Profiles in WhatsApp Conversations</u></a></li>
 </ul></div>
 

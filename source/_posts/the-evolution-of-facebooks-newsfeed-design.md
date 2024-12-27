@@ -1,7 +1,7 @@
 ---
 title: The Evolution of Facebook's Newsfeed Design
-date: 2024-08-15T18:46:15.219Z
-updated: 2024-08-16T18:46:15.219Z
+date: 2024-12-26T16:31:40.147Z
+updated: 2024-12-27T18:05:17.437Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/c196f6b4394e95f28b75708e950be08411857a7cc
 
  Now, they have made yet another change that will definitely impact how you experience the app. Here are the details.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Splits Feed Into Two Tabs
 
  In this[Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
@@ -37,21 +41,20 @@ thumbnail: https://thmb.techidaily.com/c196f6b4394e95f28b75708e950be08411857a7cc
 
  However, some overlap will happen as your friends’ posts will occasionally appear in both the Feeds tab and the Home tab from time to time, whereas the Feeds tab will show you ads just like the Home tab.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Why Has Facebook Split the News Feed in Two?
 
 ![Lady using Macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/lady.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There are at least two major reasons why this has happened.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Give Users More Control
 
  According to Mark Zuckerberg, the goal is to make it easier for you to control what content you see and discover on Facebook.
@@ -61,13 +64,15 @@ There are at least two major reasons why this has happened.
  According to a[Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and[personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Fight Back Against TikTok
 
 ![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
@@ -78,9 +83,6 @@ There are at least two major reasons why this has happened.
 
  After[finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Meta Will Continue to Innovate, With a Close Eye on TikTok
 
  Meta has responded to the TikTok threat by becoming more like TikTok. For example, Instagram recently launched the new “Following” and “Favorites” feeds, which show the latest posts from your followers and favorite accounts in chronological order.
@@ -89,14 +91,11 @@ There are at least two major reasons why this has happened.
 
  Therefore, if beating TikTok at its own game is the only way for Meta to ensure the survival of its existing platforms while it builds the Metaverse, then so be it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +104,24 @@ There are at least two major reasons why this has happened.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-pinnacle-nintendo-switch-fighting-game-index-max-156/"><u>[New] 2024 Approved Pinnacle Nintendo Switch Fighting Game Index (Max 156)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-learn-to-leverage-kinemasters-features-for-maximum-gaming-fun-then-compare-for-2024/"><u>[New] Learn to Leverage KineMaster's Features for Maximum Gaming Fun, Then Compare for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-quantum-hdr-unveiled-industry-insights-for-2024/"><u>[New] Quantum HDR Unveiled Industry Insights for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-srt-guide-everything-you-should-know-about-srt/"><u>[Updated] In 2024, SRT Guide Everything You Should Know About SRT</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/controlling-who-can-use-specific-applications-on-your-windows/"><u>Controlling Who Can Use Specific Applications on Your Windows</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/detailed-slomo-app-review-future-predictions/"><u>Detailed SloMo App Review - Future Predictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-what-facebook-chooses-to-show-you/"><u>Exploring What Facebook Chooses to Show You</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-forgotten-here-are-10-reasons-to-disconnect-and-refocus-your-life/"><u>Facebook Forgotten? Here Are 10 Reasons to Disconnect and Refocus Your Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-destination-understanding-the-top-6-shifts-in-its-metaverse-vision/"><u>Facebook's Next Destination: Understanding the Top 6 Shifts in Its Metaverse Vision</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-unlinking-on-facebook-pictures/"><u>Guide to Unlinking on Facebook Pictures</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-copyright-protection-apply-to-ai-innovations-and-creations/"><u>How Does Copyright Protection Apply to AI Innovations and Creations?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-10-revealed-tips-for-texting-triumph/"><u>Room 10 Revealed: Tips for Texting Triumph</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-10-best-free-apps-for-managing-your-social-accounts/"><u>The 10 Best Free Apps for Managing Your Social Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-chambers-secrets-for-communication-novices/"><u>Unlocking the Chamber's Secrets for Communication Novices</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-top-10-explainer-video-tools-to-boost-your-brand/"><u>Updated Top 10 Explainer Video Tools to Boost Your Brand</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-when-you-deactivate-your-facebook-account/"><u>What Happens When You Deactivate Your Facebook Account</u></a></li>
+</ul></div>
 

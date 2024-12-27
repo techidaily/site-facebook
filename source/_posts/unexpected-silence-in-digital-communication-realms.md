@@ -1,7 +1,7 @@
 ---
 title: Unexpected Silence in Digital Communication Realms
-date: 2024-12-19T16:31:26.238Z
-updated: 2024-12-22T05:38:47.413Z
+date: 2024-12-22T18:58:40.639Z
+updated: 2024-12-27T20:21:39.917Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,21 +51,20 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-harvesting-hits-and-heads-how-to-profit-from-your-youtube-presence-without-ads/"><u>[New] 2024 Approved Harvesting Hits and Heads How to Profit From Your YouTube Presence Without Ads</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-go-viral-on-youtube-with-minimal-effort/"><u>[Updated] 2024 Approved How to Go Viral on YouTube with Minimal Effort</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-10-best-action-adventure-games-of-all-time/"><u>[Updated] In 2024, 10 Best Action-Adventure Games of All Time</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-10-hidden-photoshop-photo-editing-tips-for-beginners/"><u>2024 Approved 10 Hidden Photoshop Photo Editing Tips for Beginners</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145823817-bitcoin-named-as-zucks-unconventional-goat-companion/"><u>Bitcoin Named as Zuck's Unconventional Goat Companion</u></a></li>
-<li><a href="https://facebook.techidaily.com/explore-our-favorite-online-spaces/"><u>Explore Our Favorite Online Spaces</u></a></li>
-<li><a href="https://driver-install.techidaily.com/how-to-manually-update-drivers-in-windows-8-81/"><u>How to Manually Update Drivers in Windows 8, 8.1</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-assessment-of-the-enhanced-amazon-kindle-paperwhite-2018-edition-a-new-era-in-reading/"><u>In-Depth Assessment of the Enhanced Amazon Kindle Paperwhite (2018 Edition): A New Era in Reading</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/itel-a70-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Itel A70 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-audience-interaction-on-fb/"><u>Maximizing Audience Interaction on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinvigorating-your-fb-profiles-digital-space/"><u>Reinvigorating Your FB Profile's Digital Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-excising-extraneous-comments-in-fb-groups/"><u>Strategies for Excising Extraneous Comments in FB Groups</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/top-15-open-world-games-to-beat-the-climb-in-2024/"><u>Top 15 Open World Games to Beat the Climb, In 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Oppo A79 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unpacking-the-mechanics-behind-music-royalties-on-facebook/"><u>Unpacking the Mechanics Behind Music Royalties on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-10k-groups-might-cause-amazon-to-sue/"><u>Why 10K Groups Might Cause Amazon to Sue</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-ideal-voice-modification-programs-for-dynamic-virtual-personalities/"><u>[New] Ideal Voice-Modification Programs for Dynamic Virtual Personalities</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-gif-making-software-showdown/"><u>[New] In 2024, The Ultimate GIF Making Software Showdown</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-more-views-on-youtube-with-pro-tag-optimization/"><u>[New] In 2024, Unleash More Views on YouTube with Pro Tag Optimization</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-authenticating-your-youtube-username-and-email/"><u>[Updated] In 2024, Authenticating Your YouTube Username & Email</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/y-youtube-audio-extraction-methods-free-and-secure-for-2024/"><u>3 Easy YouTube Audio Extraction Methods Free & Secure for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-intrusion-stops-with-germany-ordering-halt-in-whatsapp-data-harvesting/"><u>Facebook’s Privacy Intrusion Stops with Germany Ordering Halt in WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-passive-posts-to-active-conversations-12-innovative-ideas-for-fb/"><u>From Passive Posts to Active Conversations: 12 Innovative Ideas for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-approach-minor-user-behavior-on-web-platforms/"><u>How to Approach Minor User Behavior on Web Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-decoding-the-revised-youtube-earnings-criteria/"><u>In 2024, Decoding the Revised YouTube Earnings Criteria</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-leading-sites-boosting-youtube-viewership/"><u>In 2024, Leading Sites Boosting YouTube Viewership</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-platforms-fight-against-viral-disinformations/"><u>Interactive Platforms' Fight Against Viral Disinformations</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/maximizing-youtube-income-lessons-from-sourav-joshi/"><u>Maximizing YouTube Income Lessons From Sourav Joshi</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-in-redefined-spheres-on-facebook/"><u>Networking in Redefined Spheres on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/selecting-the-perfect-facebook-portal-device/"><u>Selecting the Perfect Facebook Portal Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-identities-online-adjusting-your-facebook-identity/"><u>Shifting Identities Online: Adjusting Your Facebook Identity</u></a></li>
 </ul></div>
 

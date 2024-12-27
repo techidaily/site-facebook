@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2024-12-17T01:46:23.394Z
-updated: 2024-12-22T01:14:36.772Z
+date: 2024-12-20T17:42:53.912Z
+updated: 2024-12-27T16:10:52.263Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Does Meta Want End-to-End Encryption?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -85,16 +85,16 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-uncomplicated-video-snip-for-win10-users-for-2024/"><u>[New] Uncomplicated Video Snip for Win10 Users for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-beginners-guide-how-to-create-a-youtube-channel-and-make-money/"><u>[Updated] 2024 Approved Beginners’ Guide How To Create a YouTube Channel and Make Money</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-revolutionize-your-social-media-game-personalizing-twitter-video-images/"><u>[Updated] In 2024, Revolutionize Your Social Media Game Personalizing Twitter Video Images</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-xiaomi-redmi-13c-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Xiaomi Redmi 13C 5G</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/delving-deep-into-windows-iscsi-initiator-mechanics/"><u>Delving Deep Into Windows iSCSI Initiator Mechanics</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/designing-mythic-universes-via-chatgpt/"><u>Designing Mythic Universes via ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacking-for-justice-pal-activist-efforts-impact-fb-store-scores/"><u>Hacking for Justice? Pal-Activist Efforts Impact FB Store Scores</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stay-ahead-finding-the-most-trendy-fb-groups/"><u>How to Stay Ahead: Finding the Most Trendy FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-key-strategies-for-elevating-content-exposure-on-fb/"><u>The Key Strategies for Elevating Content Exposure on FB</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/0-historical-youtube-hubs-essential-viewing-for-students-and-enthusiasts/"><u>Top 10 Historical YouTube Hubs Essential Viewing For Students & Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-connectivity-unveiling-six-revolutionary-facts-of-facebooks-future-sphere/"><u>Virtual Connectivity: Unveiling Six Revolutionary Facts of Facebook's Future Sphere</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-defeating-dissidence-a-guide-for-content-makers/"><u>[Updated] In 2024, Defeating Dissidence A Guide for Content Makers</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-fixes-for-keeping-your-audio-technica-drivers-current/"><u>Easy Fixes for Keeping Your Audio Technica Drivers Current</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-depth-exploration-how-to-closely-inspect-roblox-environments-for-2024/"><u>In-Depth Exploration How to Closely Inspect Roblox Environments for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-untagging-on-social-networks/"><u>Mastering the Art of Untagging on Social Networks</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-expert-recommendations-best-ipad-video-editors/"><u>New Expert Recommendations Best iPad Video Editors</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/streamline-your-tasks-with-chatgpt-the-comprehensive-manual-for-ai-assisted-work-management/"><u>Streamline Your Tasks with ChatGPT - The Comprehensive Manual for AI Assisted Work Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-process-to-disband-a-digital-fellowship/"><u>The Essential Process to Disband a Digital Fellowship</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-of-trends-for-fb-timeline-images/"><u>The Ultimate List of Trends for Fb Timeline Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ups-and-downs-of-life-with-facebook/"><u>The Ups and Downs of Life with Facebook</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-s-top-rated-free-wmv-video-concatenation-software/"><u>Updated 2024 Approved S Top-Rated Free WMV Video Concatenation Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/welcome-to-metavetted-accounting-in-the-states/"><u>Welcome to Metavetted Accounting in the States</u></a></li>
 </ul></div>
 

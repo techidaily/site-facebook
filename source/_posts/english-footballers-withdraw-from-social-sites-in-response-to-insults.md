@@ -1,7 +1,7 @@
 ---
 title: English Footballers Withdraw From Social Sites in Response to Insults
-date: 2024-08-15T18:46:45.114Z
-updated: 2024-08-16T18:46:45.114Z
+date: 2024-12-21T19:32:40.547Z
+updated: 2024-12-27T18:54:49.784Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
  The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Top English Soccer Teams Take a Social Media Stand
 
@@ -44,9 +48,9 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -65,14 +69,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,4 +82,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-detailed-exploration-lightroom-app-on-the-android-platform-for-2024/"><u>[New] Detailed Exploration Lightroom App on the Android Platform for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-top-5-game-ready-keyboards-under-100-a-comparison/"><u>[Updated] 2024 Approved Top 5 Game-Ready Keyboards Under $100 – A Comparison</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-instagram-video-performance-desktop/"><u>[Updated] Enhancing Instagram Video Performance (Desktop)</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-maximizing-fb-ad-success-a-step-by-step-animated-guide/"><u>[Updated] In 2024, Maximizing FB Ad Success A Step-by-Step Animated Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-security-with-updated-login-details-in-facebook/"><u>Enhance Security with Updated Login Details in Facebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-the-best-of-both-worlds-premium-screen-quality-with-enduring-performance-on-a-leading-laptop-revealed-by-zdnet/"><u>Exploring the Best of Both Worlds – Premium Screen Quality with Enduring Performance on a Leading Laptop, Revealed by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-disappearance-to-recurrence-the-instagram-paradox/"><u>From Disappearance to Recurrence: The Instagram Paradox</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oneplus-ace-2-pro-by-drfone-android/"><u>How To Fix OEM Unlock Missing on OnePlus Ace 2 Pro?</u></a></li>
+<li><a href="https://win11.techidaily.com/mastery-over-system-written-to-err-on-the-proper-side/"><u>Mastery Over System' Written to Err on the Proper Side</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-xbox-error-fixing-the-stranded-phenomenon-in-windows/"><u>Overcoming Xbox Error: Fixing the ‘Stranded’ Phenomenon in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-content-sharing-instagram-reels-on-your-facebook-wall/"><u>Seamless Content Sharing: Instagram Reels on Your Facebook Wall</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-paradigm-shifts-exploring-4-media-induced-changes/"><u>Social Paradigm Shifts: Exploring 4 Media-Induced Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-shun-the-habit-of-constant-reel-consumption-on-fb/"><u>Steps to Shun the Habit of Constant Reel Consumption on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-impactful-tech-personalities-sparking-debate/"><u>The Biggest Impactful Tech Personalities Sparking Debate</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ultimate-tutorial-on-winning-spotify-advertising/"><u>The Ultimate Tutorial on Winning Spotify Advertising</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Justification Behind Facebook Supporting Dual Profiles Per User
-date: 2024-08-15T18:50:15.664Z
-updated: 2024-08-16T18:50:15.664Z
+date: 2024-12-26T17:55:31.218Z
+updated: 2024-12-27T17:50:25.397Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
 
  Yet social media allows everyone to see what you are saying or doing with your friends, unless you take steps to restrict your account. In order to address this, Meta is testing a feature that will allow users to maintain up to five separate profiles under the same Facebook account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Coming Soon: One Facebook Account, 5 Profiles
 
 ![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta prohibits users from having more than one Facebook account. However, the company is testing a way for users to have more than one profile connected to their account, as first reported by[Bloomberg](https://www.bloomberg.com/news/articles/2022-07-14/meta-to-start-letting-facebook-users-have-up-to-five-profiles) .
 
@@ -36,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
  Your overall account will also remain subject to Facebook's disciplinary procedures should any of the profiles violate Facebook's rules.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Now Allowing Multiple Profiles?
 
  According to Lam, the feature will "help people tailor their experience based on interests and relationships."
@@ -51,31 +60,20 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
  Multiple profiles may help Facebook to stop[bleeding young users](https://www.makeuseof.com/why-facebook-is-losing-users/) to rivals like TikTok, who don't necessarily want their parents, relatives, strangers, or co-workers to see everything they are doing online with their friends.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Boost to Privacy
 
  This new feature, when fully rolled out, should help users experience Facebook more discreetly, which should be a boost to online privacy.
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -84,4 +82,21 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-cutting-edge-editors-scouting-the-ultimate-tools-for-youtube-shorts/"><u>[Updated] 2024 Approved Cutting Edge Editors Scouting the Ultimate Tools for YouTube Shorts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-androidios-video-cutting-edge-8-top-montage-tools-revealed/"><u>2024 Approved Android/iOS Video Cutting-Edge 8 Top Montage Tools Revealed</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/correcting-damaged-ram-issues-on-your-pc-a-step-by-step-guide-yl-tech-solutions/"><u>Correcting Damaged RAM Issues on Your PC: A Step-by-Step Guide - YL Tech Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expanded-vr-communication-with-mondly-for-oculus-quest/"><u>Expanded VR Communication with Mondly for Oculus Quest</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-real-time-to-leisurely-iphone-methods-for-slow-motion-video-for-2024/"><u>From Real Time to Leisurely IPhone Methods for Slow Motion Video for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-ensure-fair-payment-for-artists/"><u>How Does Facebook Ensure Fair Payment for Artists?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Xiaomi Redmi 13C? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-gold-vs-twitter-silver-true-status-comparison/"><u>Meta Gold Vs. Twitter Silver: True Status Comparison</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-winhttpdll-file-not-found-comprehensive-troubleshooting-guide/"><u>Resolving 'Winhttp.dll' File Not Found: Comprehensive Troubleshooting Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-scams-in-social-swapping-platforms-protective-guidelines-revealed/"><u>Spotting Scams in Social Swapping Platforms – Protective Guidelines Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tidbit-facebook-prototype-smartwatch-features-dual-lenses/"><u>Tech Tidbit: Facebook Prototype Smartwatch Features Dual Lenses?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-home-entertainment-with-facebook-portals-for-videocalls/"><u>Transforming Home Entertainment with Facebook Portals for Videocalls</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide/"><u>Updated Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnb-in-your-feeds-facebook-twitter-join-forces/"><u>WNB in Your Feeds: Facebook, Twitter Join Forces</u></a></li>
+</ul></div>
 

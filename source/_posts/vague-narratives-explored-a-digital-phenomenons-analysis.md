@@ -1,7 +1,7 @@
 ---
 title: "Vague Narratives Explored: A Digital Phenomenon's Analysis"
-date: 2024-08-15T18:46:51.595Z
-updated: 2024-08-16T18:46:51.595Z
+date: 2024-12-20T17:04:10.077Z
+updated: 2024-12-27T17:10:37.955Z
 tags:
   - facebook
 categories:
@@ -32,37 +32,37 @@ But what is vaguebooking?
  And that's the point of vaguebooking. While the majority of us will only post on social media when we have something specific to say, vaguebookers take great delight in beating around the metaphorical bush. Seeking attention while giving away very little in terms of detail.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Examples of Vaguebooking
 
  The easiest way to answer the question, "what is vaguebooking?" is to give examples. So here are some examples of vaguebooking which will help you recognize it when you see it. And ultimately avoid doing it yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Expressing an Emotion Without Providing Context
 
  This is an expression of emotion in its most basic form. On this occasion it's anger, but other emotions can replace anger quite easily. Instead of, "I'm so angry right now. Arrggh!," it could be, "I'm so confused right now. Waagh!" or "I'm so miserable right now. Boohoo!"
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### 2\. Why Me? This Could Only Happen to Me
 
  This is a classic, and one of the most annoying forms of vaguebooking. It's about as vague as it gets while still using words. With "Why? Only me..." you're imparting the fact that something (likely bad) has happened that you need someone to ask you about.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Question Marks: The Purest Form of Vaguebooking
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. When a GIF Is Meant to Sum Everything Up
 
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
@@ -78,8 +78,9 @@ But what is vaguebooking?
  Related:[Tips to Avoid (Spreading) Fake News During a Crisis](https://www.makeuseof.com/tag/quickly-avoid-fake-news-unfolding-crisis/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Vaguebooking Harmless or Something More?
 
  Vaguebooking is definitely annoying. Of that there can be no argument. But is it merely annoying or a sign of something more worrying?
@@ -92,6 +93,10 @@ But what is vaguebooking?
 
  Related:[The Best Therapy and Counseling Apps for Mental Health](https://www.makeuseof.com/tag/mental-health-apps-people-cant-see-therapist/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Avoid Vaguebooking
 
  It's actually very simple to avoid vaguebooking. Just don't post anything vague on social media. That's it. That's the golden rule.
@@ -102,21 +107,15 @@ But what is vaguebooking?
 
  And if you're struggling mentally, maybe avoid social media altogether and talk to someone offline. Having a one-to-one conversation with someone who can actually offer practical help and/or advice is a much better idea than vaguebooking in the hopes someone will notice you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## How to Fight the Scourge of Vaguebooking
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,4 +124,19 @@ But what is vaguebooking?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-ultimate-list-of-top-voice-change-programs/"><u>[New] Ultimate List of Top Voice-Change Programs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-discovering-depth-with-zooms-in-meeting-focus-features/"><u>[Updated] Discovering Depth with Zoom's In-Meeting Focus Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-someone-been-using-your-pc-is-someone-using-your-emails-heres-how-to-tell/"><u>Has Someone Been Using Your PC? Is Someone Using Your Emails? Here's How to Tell</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-hilarity-unleashed-top-7-amusing-youtube-channel-skits/"><u>In 2024, Hilarity Unleashed Top 7 Amusing YouTube Channel Skits</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-low-budget-camera-buys-roundup/"><u>In 2024, Low-Budget Camera Buys Roundup</u></a></li>
+<li><a href="https://facebook.techidaily.com/infiltrating-the-meta-command-center-for-fbinsta-oversight/"><u>Infiltrating the Meta Command Center for FB/Insta Oversight</u></a></li>
+<li><a href="https://extra-support.techidaily.com/interactive-vs-passive-content-consumption-twitch-vs-youtube-for-2024/"><u>Interactive vs Passive Content Consumption Twitch Vs YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-or-finding-partners-a-look-into-facebook-dating/"><u>Making Friends or Finding Partners: A Look Into Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-memorializing-vs-deleting-loved-ones-profiles/"><u>Mastering Facebook: Memorializing Vs. Deleting Loved Ones' Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policy-enforcement-properly-temporarily-suspend-trump/"><u>Platform Policy Enforcement: Properly Temporarily Suspend Trump</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/rocket-league-freeze-error-causes-diagnosis-and-remedies-for-a-smooth-gameplay-experience/"><u>Rocket League Freeze Error: Causes, Diagnosis, and Remedies for a Smooth Gameplay Experience</u></a></li>
+<li><a href="https://media-tips.techidaily.com/tv-sizing-guide-finding-your-optimal-display-dimensions-for-ultimate-viewing-comfort/"><u>TV Sizing Guide: Finding Your Optimal Display Dimensions for Ultimate Viewing Comfort</u></a></li>
+</ul></div>
 

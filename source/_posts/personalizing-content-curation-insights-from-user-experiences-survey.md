@@ -1,7 +1,7 @@
 ---
 title: "Personalizing Content Curation: Insights From User Experiences Survey"
-date: 2024-08-15T18:49:10.725Z
-updated: 2024-08-16T18:49:10.725Z
+date: 2024-12-25T18:16:27.338Z
+updated: 2024-12-27T20:15:57.792Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/51471ca8a7054ce3eae075b674d92ea208c650984
 
  As Facebook potentially prepares to change up its News Feed algorithm, it wants to hear what you have to say about it. You'll now see surveys more often in your News Feed, and answering them could help Facebook understand what type of content you like best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Wants Your Opinion on Content in Your News Feed
 
  A post on[the About Facebook blog](https://about.fb.com/news/2021/04/incorporating-more-feedback-into-news-feed-ranking/) revealed that Facebook plans on rolling out more surveys to gauge user response to certain posts. One survey will ask: "Is this post worth your time?" If your response is positive, you'll see similar posts at the top of your News Feed.
@@ -24,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/51471ca8a7054ce3eae075b674d92ea208c650984
  Facebook will also start asking if you find certain posts inspirational. Responding to this questionnaire will help Facebook figure out what kinds of posts users find inspiring, as Facebook hopes to place inspirational content towards the top of the News Feed.
 
 ![Facebook inspirational posts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/inspirational-posts-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image Credit: Facebook
 
@@ -41,26 +49,27 @@ Image Credit: Facebook
 
 ![Facebook post hidden options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-post-hidden-options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image Credit: Facebook
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Works on Improving Its News Feed
 
  Hopefully, these changes will help users gain more control over what they see in their News Feeds.
 
  Just because you decide to be friends with someone on Facebook, doesn't necessarily mean you like what they post. It seems that Facebook is finally realizing this, and will put less priority on posts from friends and Groups, and will focus on individual preferences instead.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -69,4 +78,18 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-mac-users-adding-the-social-app-snapchat/"><u>[New] Mac Users Adding the Social App Snapchat</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-blur-apps-for-clearer-phone-images/"><u>[New] The Ultimate Blur Apps for Clearer Phone Images</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-live-streams-how-to-log-gh-sessions/"><u>[Updated] 2024 Approved Live Streams How to Log GH Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-humor-responsible-facebook-interactions/"><u>Embracing Humor: Responsible Facebook Interactions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-adding-scripts-and-source-code-into-your-word-files/"><u>Guide: Adding Scripts and Source Code Into Your Word Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tackle-minor-profile-postings-online/"><u>How to Tackle Minor Profile Postings Online</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-digital-cropping-easy-online-methods/"><u>In 2024, Navigating Digital Cropping - Easy Online Methods</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-straightforward-methods-to-save-insta-story-videos/"><u>In 2024, Straightforward Methods to Save Insta Story Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-added-value-of-facebook-gestures/"><u>Understanding the Added Value of Facebook Gestures</u></a></li>
+<li><a href="https://facebook.techidaily.com/whens-the-right-time-to-refresh-facebook-presence/"><u>When's the Right Time to Refresh Facebook Presence?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-phasing-out-facebooks-face-recognition-tech/"><u>Why Is Meta Phasing Out Facebook's Face Recognition Tech?</u></a></li>
+</ul></div>
 

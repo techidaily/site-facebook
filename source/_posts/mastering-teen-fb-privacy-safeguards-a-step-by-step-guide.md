@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-12-16T19:48:51.374Z
-updated: 2024-12-22T05:34:11.644Z
+date: 2024-12-26T16:36:11.587Z
+updated: 2024-12-27T16:21:48.661Z
 tags:
   - facebook
 categories:
@@ -24,31 +24,27 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -57,7 +53,7 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Privacy Setting Basics
@@ -90,6 +86,10 @@ Close
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 Close
@@ -101,7 +101,7 @@ Close
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
@@ -125,21 +125,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-master-levels-enhancing-steam-gameplay-videos/"><u>[New] In 2024, Master Levels Enhancing Steam Gameplay Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-seamless-ocean-shots-top-7-shooting-tips-uncovered/"><u>[New] Seamless Ocean Shots Top 7 Shooting Tips Uncovered</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-harmonious-guidelines-instagram-and-intellectual-property/"><u>[Updated] In 2024, Harmonious Guidelines Instagram & Intellectual Property</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-building-a-skype-group-discussion-in-windowsos-x/"><u>2024 Approved Building a Skype Group Discussion in Windows/OS X</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-hottest-youtube-to-mp3-software-picks-top-10/"><u>2024 Approved The Hottest YouTube-to-MP3 Software Picks (Top 10)</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/choose-wisely-top-10-expert-picked-gopro-housing-for-2024/"><u>Choose Wisely Top 10 Expert-Picked GoPro Housing for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/duped-by-digital-doppelgangers/"><u>Duped by Digital Doppelgangers</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-stands-still-on-trumponian-ban-authority/"><u>Facebook Stands Still on Trumponian Ban Authority</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/how-to-successfully-record-and-manage-internet-radio-for-2024/"><u>How to Successfully Record and Manage Internet Radio for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-balancing-primary-and-b-footage-for-dynamic-video-production/"><u>In 2024, Balancing Primary & B-Footage for Dynamic Video Production</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mastering-media-transformation-experience-top-tier-dvd-and-video-conversion-tools-by-digiarty/"><u>Mastering Media Transformation: Experience Top-Tier DVD & Video Conversion Tools by Digiarty</u></a></li>
-<li><a href="https://facebook.techidaily.com/shutdown-protocol-executing-a-permanent-disengagement/"><u>Shutdown Protocol: Executing a Permanent Disengagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthen-privacy-on-facebook-with-a-new-security-key/"><u>Strengthen Privacy on Facebook with a New Security Key</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-subtle-slip-ups-facebooks-user-tally/"><u>The Subtle Slip-Ups: Facebook's User Tally</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfolding-digital-horizons-what-is-the-metaverse/"><u>Unfolding Digital Horizons: What Is the Metaverse?</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-fbs-covert-tracking-use-off-fb-settings/"><u>Unmasking Fb's Covert Tracking, Use Off-FB Settings</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-ai-integration-for-vr-marketplaces/"><u>[Updated] In 2024, AI Integration for VR Marketplaces</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-new-era-facebook-video-autoplay-explained-for-2024/"><u>[Updated] The New Era Facebook Video Autoplay Explained for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/enabling-redesigned-windows-11-widget-pickers/"><u>Enabling Redesigned Windows 11 Widget Pickers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhance-image-edges-with-circular-smear-technique-ps/"><u>Enhance Image Edges with Circular Smear Technique PS</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-facebook-true-subscriber-decline/"><u>Exposing Facebook: True Subscriber Decline</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211338489-9781738525515-heart-of-the-cards/"><u>Heart of the Cards | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-creation-in-social-media-landscape/"><u>Mastering Group Creation in Social Media Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-high-res-media-posts-on-social-network/"><u>Mastering High-Res Media Posts on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-danger-zone-recognizing-and-evade-online-trading-scams/"><u>Navigating the Danger Zone: Recognizing & Evade Online Trading Scams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/by-step-youtube-image-enlargement-technique/"><u>Step-by-Step Youtube Image Enlargement Technique</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-process-of-granting-access-in-facebook/"><u>The Process of Granting Access in Facebook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-how-to-restore-spotify-functionality-in-your-cars-system/"><u>Troubleshooting Steps: How to Restore Spotify Functionality in Your Car's System</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-photo-descriptions-on-social-media/"><u>Unveiling the Power of Photo Descriptions on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-guide-to-fb-visual-privacy-control/"><u>Your Ultimate Guide to FB Visual Privacy Control</u></a></li>
 </ul></div>
 

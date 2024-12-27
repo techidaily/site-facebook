@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-12-17T20:34:49.632Z
-updated: 2024-12-21T19:16:58.100Z
+date: 2024-12-20T16:20:01.879Z
+updated: 2024-12-27T17:22:42.007Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
@@ -38,12 +42,16 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
@@ -56,21 +64,17 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
@@ -84,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
  ATT does not prevent Facebook from tracking users across its own apps (for example, between Instagram and WhatsApp). However, Facebook can no longer track users across apps it doesn't own unless the user gives it permission to do so.
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -127,24 +127,21 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-record-presentation-for-digital-projection/"><u>[New] In 2024, Record Presentation for Digital Projection</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-efficient-transfer-of-movie-maker-videos-to-vimeo-for-2024/"><u>[Updated] Efficient Transfer of Movie Maker Videos to Vimeo for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-chirping-cha-cha-charade/"><u>2024 Approved Chirping Cha-Cha Charade</u></a></li>
-<li><a href="https://facebook.techidaily.com/anti-censorship-action-trump-versus-major-online-companies/"><u>Anti-Censorship Action: Trump Versus Major Online Companies</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Vivo V29 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/check-manufacturer-websites-directly-as-they-may-offer-exclusive-rebates-or-incentives-not-available-through-third-party-sellers/"><u>Check Manufacturer Websites Directly as They May Offer Exclusive Rebates or Incentives Not Available Through Third-Party Sellers.</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/in-depth-review-why-the-logitech-g-pro-x-2-lightspeed-is-essential-for-hardcore-gamers/"><u>In-Depth Review: Why the Logitech G Pro X 2 Lightspeed Is Essential for Hardcore Gamers</u></a></li>
-<li><a href="https://facebook.techidaily.com/invisible-interactions-friendlist-coverage/"><u>Invisible Interactions: Friendlist Coverage</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/monetizing-content-how-much-adsense-pays-you-per-thousand-video-hits-for-2024/"><u>Monetizing Content How Much AdSense Pays You Per Thousand Video Hits for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/profitable-tricks-for-monetizing-your-ig-and-fb-presence/"><u>Profitable Tricks for Monetizing Your IG & FB Presence</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/saturation-perfection-tool/"><u>Saturation Perfection Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-security-measures-the-case-of-the-expensive-tech-upgrade/"><u>Social Media Security Measures: The Case of the Expensive Tech Upgrade</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-success-equals-cash-income-for-digital-hubs/"><u>Social Success Equals Cash: Income for Digital Hubs</u></a></li>
-<li><a href="https://facebook.techidaily.com/suing-for-privacy-whatsapp-vs-indian-government-regulations/"><u>Suing for Privacy: WhatsApp vs Indian Government Regulations</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-ranked-gaming-systems-in-2vearly-2024/"><u>Top-Ranked Gaming Systems in 2Vearly 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/uncluttered-desktop-recorder-w10/"><u>Uncluttered Desktop Recorder W10</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-secrets-how-to-use-friendly-feedback-tools/"><u>Unlocking Secrets: How to Use Friendly Feedback Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-unfollow-and-follow-on-facebook-and-when-to-use-it/"><u>What Is Unfollow and Follow on Facebook? (And When to Use It)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-hdr-mastery-for-home-and-professional-pcs-for-2024/"><u>[New] HDR Mastery for Home and Professional PCs for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-hearth-warming-hear-from-happy-customers/"><u>[New] In 2024, Hearth-Warming Hear From Happy Customers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-joyful-journeys-the-ultimate-list-of-familial-classics-for-2024/"><u>[New] Joyful Journeys The Ultimate List of Familial Classics for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/solved-corsair-h115i-driver-issues-in-windows-81011/"><u>[Solved] Corsair H115i Driver Issues in Windows 8/10/11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-clear-your-vision-overcoming-instagram-footage-issues-for-2024/"><u>[Updated] Clear Your Vision Overcoming Instagram Footage Issues for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-navigating-through-gopro-and-time-lapse-synergy/"><u>[Updated] In 2024, Navigating Through GoPro and Time-Lapse Synergy</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-access-to-pinnacle-android-viewer-for-2024/"><u>Exclusive Access to Pinnacle Android Viewer for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-and-insights-on-the-minecraft-campfire-tales-apparel-set/"><u>In-Depth Analysis and Insights on the Minecraft Campfire Tales Apparel Set</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-watch-over-your-pc-and-emails-indicators-of-use/"><u>Keeping Watch Over Your PC & Emails: Indicators of Use</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-instagram-stories-integrating-personalized-graphics-for-2024/"><u>Mastering Instagram Stories Integrating Personalized Graphics for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-businesss-profile-with-multilingual-posts/"><u>Optimizing Your Business's Profile with Multilingual Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-identity-online-check-for-fb-intruders/"><u>Protecting Identity Online – Check for FB Intruders</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-identity-what-not-to-post-on-social-media-sites/"><u>Protecting Identity: What Not to Post on Social Media Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-implementing-2fa-for-secure-online-communication/"><u>Step-by-Step: Implementing 2FA for Secure Online Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-fb-career-opportunities-promotion/"><u>Strategies for FB Career Opportunities Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-great-escape-to-online-shopping-with-fb-fridays/"><u>The Great Escape to Online Shopping with FB Fridays</u></a></li>
 </ul></div>
 

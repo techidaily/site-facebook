@@ -1,7 +1,7 @@
 ---
 title: Privacy Protocols for Personal Photographs on FB
-date: 2024-12-18T03:04:53.774Z
-updated: 2024-12-21T21:45:34.226Z
+date: 2024-12-26T19:41:34.941Z
+updated: 2024-12-27T17:23:17.715Z
 tags:
   - facebook
 categories:
@@ -26,17 +26,9 @@ thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Make Your Facebook Photos Private
 
  To make photos private on Facebook, you can change the privacy settings of entire albums or individual photos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Make Albums Private on Facebook for Android and iOS
 
@@ -57,20 +49,16 @@ thumbnail: https://thmb.techidaily.com/a8dc09aa00b57fb659621da31b365534682fa3f06
 
 ![Facebook album editing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-edit-facebook-album-privacy-options.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-album-privacy-setting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Make Albums Private on Facebook on the Web
@@ -86,6 +74,10 @@ Close
 
 ![Edit album option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/edit-album-option-facebook-web.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the next page, click the button with a privacy option (e.g. Friends, Public, Friends except and others) in the top left.
 * Finally, select**Only me** from the pop-up window and click**Done > Save** to save your changes.
 
@@ -94,6 +86,10 @@ Close
  If you don't want to make the photos completely private and still want to share them, just with a more limited audience, you can choose the audience options for**Friends** ,**Friends except** , or**Specific friends** .
 
  If you want to show the album only to a group of friends on a certain list, select**Custom** . This allows you to have fine-grained control over who can see your Facebook photos without totally hiding them from everyone. However, this option is only available on Facebook's website.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Make Individual Facebook Photos Private on Android and iOS
 
@@ -121,9 +117,17 @@ To make a single photo on Facebook private, follow these steps:
 
 ![Viewing a photo on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-photo-uploaded-to-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Photo settings options on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-facebook-photo-settings-options.jpg)
 
 ![Editing photo privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-photo-privacy-settings-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -142,6 +146,10 @@ Close
 
 ![Facebook's individual photo setting options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-viewing-photo-facebook-web.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Select**Only me** and click**Done** to save your changes.
 
  You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
@@ -155,10 +163,6 @@ Close
  To enter this mode, go to your profile. Select the**three dots** below**Edit profile** (on the Web) or next to**Edit profile** (on mobile) to open a dropdown or pop-up menu, then select**View As** .
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
@@ -174,17 +178,13 @@ Close
 
 ![Making a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-posting-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Adjusting audience settings on a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-default-audience-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -215,22 +215,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-insta-photography-enhancement-hacks-for-professionals/"><u>[New] In 2024, Insta-Photography Enhancement Hacks for Professionals</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-making-the-most-of-your-youtube-thumbnail-space/"><u>[New] In 2024, Making the Most of Your YouTube Thumbnail Space</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-stellar-storytelling-elevating-posts-with-3-insta-highlight-ways-for-2024/"><u>[New] Stellar Storytelling Elevating Posts with 3 Insta Highlight Ways for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-clear-youtubes-obscured-visual-field/"><u>[Updated] 2024 Approved Clear Youtube's Obscured Visual Field</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-vivavideo-review-insights-and-impressions/"><u>[Updated] 2024 Approved VivaVideo Review Insights and Impressions</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>All You Need To Know About Mega Greninja For Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/banish-facebooks-watch-history-for-a-clean-start/"><u>Banish Facebook's Watch History for a Clean Start</u></a></li>
-<li><a href="https://facebook.techidaily.com/brands-embrace-new-ad-formats-on-fb-and-instagram/"><u>Brands Embrace New Ad Formats on FB & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/codifying-conduct-formulating-a-code-for-your-fb-group/"><u>Codifying Conduct: Formulating a Code for Your Fb Group</u></a></li>
-<li><a href="https://media-tips.techidaily.com/comparing-h264-and-h265-a-detailed-guide-on-optimal-video-encoding-choices/"><u>Comparing H.264 And H.265: A Detailed Guide on Optimal Video Encoding Choices</u></a></li>
-<li><a href="https://facebook.techidaily.com/content-commerce-leveraging-metas-tools-for-profit-making-video-content/"><u>Content Commerce: Leveraging Meta's Tools for Profit-Making Video Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-unique-visual-identity-fb-cover-pics-guide/"><u>Crafting a Unique Visual Identity: FB Cover Pics Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/creative-cash-flow-instagram-unveils-monetization-innovations/"><u>Creative Cash Flow: Instagram Unveils Monetization Innovations</u></a></li>
-<li><a href="https://common-error.techidaily.com/expert-tips-to-prevent-and-solve-oddworld-soulstorm-freezing-on-desktop-pc/"><u>Expert Tips to Prevent and Solve Oddworld: Soulstorm Freezing on Desktop PC</u></a></li>
-<li><a href="https://common-error.techidaily.com/total-war-rome-remastered-stability-improvements-crash-problems-solved/"><u>Total War: Rome Remastered Stability Improvements - Crash Problems Solved</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153819023-unearthed-tech-moments-youve-overlooked-top-4-must-know/"><u>Unearthed Tech Moments You've Overlooked - Top 4 Must-Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150299632-which-triple-nation-bans-facebook-find-out/"><u>Which Triple Nation Bans Facebook? Find Out!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-video-enhancement-through-strategic-illumination-methods/"><u>[New] In 2024, YouTube Video Enhancement Through Strategic Illumination Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-personal-exploration-of-3d-printing-in-3dr/"><u>2024 Approved Personal Exploration of 3D Printing in '3DR'</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-honor-magic-5-lite-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Honor Magic 5 Lite</u></a></li>
+<li><a href="https://solve-info.techidaily.com/enhancing-emergency-department-efficiency-with-process-mining-insights-from-widener-universitys-study-using-abbyy-timeline/"><u>Enhancing Emergency Department Efficiency with Process Mining: Insights From Widener University's Study Using ABBYY Timeline</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-tips-for-3d-text-manipulation-in-photosoft/"><u>Essential Tips for 3D Text Manipulation in PhotoSoft</u></a></li>
+<li><a href="https://facebook.techidaily.com/eyeing-the-horizon-facebooks-predicted-pressures/"><u>Eyeing the Horizon: Facebook's Predicted Pressures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-mark-reveals-upcoming-whatsapp-expansion/"><u>Facebook's Mark Reveals Upcoming WhatsApp Expansion</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-messenger-conceals-your-messages-temporarily/"><u>How Messenger Conceals Your Messages Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-with-these-favorite-fb-app-configs/"><u>Mastering Social Media with These Favorite FB App Configs</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722985062023-say-goodbye-to-tormented-souls-pc-glitches-crash-free-gaming-experience-guaranteed/"><u>Say Goodbye to Tormented Souls PC Glitches - Crash-Free Gaming Experience Guaranteed!</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-nokia-c12-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-spotifys-tracking-for-uninterrupted-music-streaming/"><u>Understanding Spotify’s Tracking for Uninterrupted Music Streaming</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-chatgpt-is-crucial-for-modern-job-seekers-and-workforce/"><u>Why ChatGPT Is Crucial for Modern Job Seekers and Workforce</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44km44kn44ow44ko44od44kv44k544of44o844og44kj44oz44kw44gu44kq44o844oh44kj44kq44os44kz44o844oh44kj44oz44kw44o744ob44ol44o844oi44oq44ki44or44ks57s55lul44gx44gp89/"><u>ウェブエックスミーティングのオーディオレコーディング・チュートリアルを紹介します</u></a></li>
 </ul></div>
 

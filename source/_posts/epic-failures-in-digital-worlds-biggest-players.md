@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2024-12-15T00:08:16.616Z
-updated: 2024-12-21T23:15:01.635Z
+date: 2024-12-20T19:59:29.254Z
+updated: 2024-12-27T16:39:08.242Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,24 +51,21 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-laughloop-app-a-hub-for-humor-enthusiasts/"><u>[New] 2024 Approved LaughLoop App - A Hub for Humor Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-visual-storytelling-for-online-platforms-for-2024/"><u>[New] The Art of Visual Storytelling for Online Platforms for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-the-ultimate-guide-to-action-hunting-gear-for-2024/"><u>[New] The Ultimate Guide to Action Hunting Gear for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-motorcycle-video-magic-best-cam-hats-of-2023-selection-for-2024/"><u>[Updated] Motorcycle Video Magic Best Cam Hats of 2023 Selection for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-no-cost-strategies-for-managing-fb-post-timing/"><u>5 No-Cost Strategies for Managing FB Post Timing</u></a></li>
-<li><a href="https://facebook.techidaily.com/adding-text-to-social-photos-effectively/"><u>Adding Text to Social Photos Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazons-legal-strategy-targeting-fb-group-managers/"><u>Amazon's Legal Strategy Targeting FB Group Managers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/audiophiles-guide-selecting-prime-tools-for-vtuber-voice-alteration/"><u>Audiophile's Guide Selecting Prime Tools for VTuber Voice Alteration</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-engaging-fb-polls-for-pages-and-groups/"><u>Building Engaging FB Polls for Pages & Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-with-friends-through-visual-identification-on-whatsapp/"><u>Connecting with Friends Through Visual Identification on WhatsApp</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-an-inviting-online-persona-with-a-new-page/"><u>Crafting an Inviting Online Persona with a New PAGE</u></a></li>
-<li><a href="https://facebook.techidaily.com/curate-with-confidence-facebook-eases-your-newsfeed-edit/"><u>Curate with Confidence: Facebook Eases Your Newsfeed Edit</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145420800-deliberations-continue-expected-decision-from-platforms-oversight-board/"><u>Deliberations Continue: Expected Decision From Platform’s Oversight Board</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/cing-your-youtube-content-basic-premiere-pro-edits/"><u>Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-agni-2-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Agni 2 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-pc-issues-in-marvels-guardians-of-the-galaxy-a-guide-to-8-effective-fixes/"><u>Overcome PC Issues in 'Marvel’s Guardians of the Galaxy': A Guide to 8 Effective Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153152787-privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages.</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/ultimate-guide-how-to-transfer-music-from-apple-iphone-13-pro-max-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>Ultimate Guide, How to Transfer Music From Apple iPhone 13 Pro Max to iPhone | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-leveraging-slack-and-filmora-a-path-to-scheduling-excellence/"><u>[New] 2024 Approved Leveraging Slack and Filmora A Path to Scheduling Excellence</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-top-hd-lenses-for-youtube-creators/"><u>[Updated] 2024 Approved Top HD Lenses for YouTube Creators</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-pixelated-panorama-vr-cinematic-odyssey/"><u>[Updated] Pixelated Panorama VR Cinematic Odyssey</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tailoring-your-footage-a-comprehensive-guide-to-gopros-color-adjustment/"><u>2024 Approved Tailoring Your Footage A Comprehensive Guide to GoPro's Color Adjustment</u></a></li>
+<li><a href="https://video-capture.techidaily.com/capture-your-gaming-adventures-with-steam/"><u>Capture Your Gaming Adventures with Steam</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/code-generation-face-off-is-github-copilot-or-chatgpt-the-ultimate-programming-partner/"><u>Code Generation Face-Off: Is GitHub Copilot or ChatGPT the Ultimate Programming Partner?</u></a></li>
+<li><a href="https://app-tips.techidaily.com/enhance-your-cinematic-journey-with-the-ultimate-list-of-15-vr-film-apps-for-mobile-devices/"><u>Enhance Your Cinematic Journey with the Ultimate List of 15 VR Film Apps for Mobile Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-metas-enhanced-privacy-policy-changes/"><u>Inside Meta's Enhanced Privacy Policy Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-editing-account-details-on-facebook/"><u>Instructions: Editing Account Details on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-community-clean-mastery-of-new-facebook-group-policies/"><u>Keeping Your Community Clean: Mastery of New Facebook Group Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-recovery-techniques-for-locked-out-facebook-users/"><u>Key Recovery Techniques for Locked-Out Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-hidden-blacklist-entities-on-facebook-platform/"><u>Revealing Hidden Blacklist Entities on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-chats-facebook-introduces-messenger-and-insta-tweaks/"><u>Revolutionizing Chats: Facebook Introduces Messenger & Insta Tweaks</u></a></li>
+<li><a href="https://win-able.techidaily.com/solve-the-grounded-game-crashes-effective-tips-and-tricks/"><u>Solve the 'Grounded' Game Crashes : Effective Tips & Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/switching-your-facebook-page-for-a-modern-identity/"><u>Switching Your Facebook Page for a Modern Identity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-dealing-with-unresponsive-numeric-keys/"><u>Troubleshooting Tips: Dealing with Unresponsive Numeric Keys</u></a></li>
 </ul></div>
 

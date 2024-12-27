@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2024-12-19T22:10:58.354Z
-updated: 2024-12-22T06:24:13.311Z
+date: 2024-12-21T19:00:20.837Z
+updated: 2024-12-27T19:50:09.471Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's it. Here you will find all the recently watched videos.
@@ -47,6 +47,10 @@ That's it. Here you will find all the recently watched videos.
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
 
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
@@ -59,11 +63,11 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
-![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
@@ -73,17 +77,13 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -96,6 +96,10 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -103,10 +107,6 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -134,18 +134,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-from-basics-to-brilliance-the-fb-cover-video-journey/"><u>[Updated] In 2024, From Basics to Brilliance The FB Cover Video Journey</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-overcoming-mp4-and-avi-issues-in-windows-media-player-comprehensive-troubleshooting-guide/"><u>1. Overcoming MP4 & AVI Issues in Windows Media Player: Comprehensive Troubleshooting Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-leading-tools-top-6-fb-lite-video-extractors/"><u>2024 Approved Leading Tools TOP 6 FB Lite Video Extractors</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-best-practices-for-swiftly-deleting-offensive-content/"><u>8 Best Practices for Swiftly Deleting Offensive Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/abolish-all-fb-push-notifications/"><u>Abolish All FB Push Notifications</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/avoid-data-exposure-with-chatgpt-heres-your-guide-to-opting-out-safely/"><u>Avoid Data Exposure with ChatGPT? Here’s Your Guide to Opting Out Safely</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-techs-battlefield-us-antitrust-law-adjustments/"><u>Big Tech's Battlefield: U.S. Antitrust Law Adjustments</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-compelling-thumbnails-for-your-youtube-content/"><u>Crafting Compelling Thumbnails for Your YouTube Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-an-impactful-fb-profile-photograph/"><u>Creating an Impactful FB Profile Photograph</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/evaluating-jabra-talk-45-superior-audio-fidelity-plus-sustainable-charges/"><u>Evaluating Jabra Talk 45: Superior Audio Fidelity + Sustainable Charges</u></a></li>
-<li><a href="https://win-premium.techidaily.com/iphone-to-iphone-music-swap-discover-4-easy-steps-for-perfect-playlist-synchronization/"><u>IPhone to iPhone Music Swap: Discover 4 Easy Steps for Perfect Playlist Synchronization</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-smart-techniques-for-youtube-playlist-dispersal/"><u>Share Smart Techniques for YouTube Playlist Dispersal</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/solutions-to-get-the-thaumaturge-program-running-smoothly-on-desktop-pcs/"><u>Solutions to Get the Thaumaturge Program Running Smoothly on Desktop PCs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-instagram-blast-your-favorite-episode-now/"><u>[New] Instagram Blast Your Favorite Episode Now</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-complete-youtube-editors-toolkit-for-post-publish-adjustments/"><u>2024 Approved The Complete YouTube Editor's Toolkit for Post-Publish Adjustments</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/d-google/"><u>簡單四法：如何找回丟失的D槽文件 - Google</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016451698-headphone-troubles-stop-the-crackle-simple-fixes-inside/"><u>Headphone Troubles? Stop the Crackle - Simple Fixes Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-assets-in-nfts/"><u>Instagram Assets in NFTs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-it-time-to-switch-to-iphone-16-pro-from-iphone-14-pro-an-expert-analysis-on-latest-features-and-value-engadget/"><u>Is It Time to Switch to iPhone 16 Pro From iPhone 14 Pro? An Expert Analysis on Latest Features & Value | Engadget</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723010247140-mordhau-freezing-problems-discover-how-to-fix-them-now/"><u>Mordhau Freezing Problems? Discover How to Fix Them Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-communities-fb-vs-linkedins-approach/"><u>Navigating Online Communities: FB Vs. LinkedIn's Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-alert-the-potential-hazards-of-facebook-games/"><u>Security Alert: The Potential Hazards of Facebook Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-enlisted-in-joes-covid-19-quest/"><u>Social Platforms Enlisted in JOE'S COVID-19 Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-chronicles-of-facebooks-5-fatal-errors-to-its-users/"><u>The Chronicles of Facebook's 5 Fatal Errors to Its Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-decision-meta-deals-with-e2e-encryption-implementation-date/"><u>Unpacking the Decision: Meta Deals with E2E Encryption Implementation Date</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Samsung Galaxy A24? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/whats-included-in-the-enhanced-windows-11-settings-app/"><u>What's Included in the Enhanced Windows 11 Settings App?</u></a></li>
 </ul></div>
 

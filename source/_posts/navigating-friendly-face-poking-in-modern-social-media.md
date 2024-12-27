@@ -1,7 +1,7 @@
 ---
 title: Navigating Friendly Face-Poking in Modern Social Media
-date: 2024-08-15T18:48:48.124Z
-updated: 2024-08-16T18:48:48.124Z
+date: 2024-12-25T20:16:34.778Z
+updated: 2024-12-27T17:01:01.247Z
 tags:
   - facebook
 categories:
@@ -15,14 +15,19 @@ thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed3
 
 ## Navigating Friendly Face-Poking in Modern Social Media
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What Is Poking on Facebook?](#what-is-poking-on-facebook)
 * [How to Poke Someone on Facebook in 2024](#how-to-poke-someone-on-facebook-in-2024)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Facebook is reviving the "poke" feature with a design tweak.
@@ -31,9 +36,6 @@ thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed3
 
  You may have thought poking was dead on Facebook. But it turns out the feature is still there and Facebook is even trying to revive it. Here's what you need to know about poking someone on Facebook and how you can still use the feature.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is Poking on Facebook?
 
  Those who used Facebook in its early days will remember the ability to "poke" someone on Facebook to get their attention. This would essentially send a notification to the person letting them know that you poked them. But the feature was eventually buried, with Facebook leaning towards post reactions and interactions instead.
@@ -49,8 +51,9 @@ Close
 ## How to Poke Someone on Facebook in 2024
 
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
@@ -63,22 +66,21 @@ To do this, follow these steps:
 2. Select the menu item that says**Pokes** . This will take you to a page where you can see who has poked you.
 
 ![facebook pokes feature on website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/facebook-pokes-feature.png)
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  From this page, you can also access the poke button to send pokes to friends. Facebook will provide a list of suggested users to poke, but you can also use the search bar to look for someone specific.
 
 ![list of friends to poke on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/list-of-friends-to-poke-on-facebook.png)
+
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When you poke someone, Facebook will send the person a notification to let them know that you used the feature.
 
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like[seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
@@ -87,14 +89,11 @@ To do this, follow these steps:
 
  So if you want to catch a friend's attention or just give the feature a try, check out the poke feature on Facebook for a sense of nostalgia or a new way to attract someone's notice.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,4 +102,23 @@ To do this, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-examining-the-efficiency-of-m1-for-editing-software/"><u>[Updated] 2024 Approved Examining the Efficiency of M1 for Editing Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-master-facebook-broadcasting-with-devices-and-obs-studio/"><u>[Updated] Master Facebook Broadcasting with Devices and OBS Studio</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-directors-of-the-airspace-editing-for-impactful-drone-videos/"><u>2024 Approved Directors of the Airspace Editing for Impactful Drone Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-twitter-and-instagram-join-bidens-vaccine-crusade/"><u>Facebook, Twitter & Instagram Join Biden's Vaccine Crusade</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-dimension-reasons-for-apprehension/"><u>Facebook's New Dimension – Reasons for Apprehension</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-unwanted-persons-from-your-facebook-memory-lens/"><u>Hide Unwanted Persons From Your Facebook Memory Lens</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-configure-your-email-preferences-and-safelist-a-site-on-apples-mail-client-for-mac/"><u>How To Configure Your Email Preferences and Safelist a Site on Apple's Mail Client for Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-xiaomi-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Xiaomi .</u></a></li>
+<li><a href="https://facebook.techidaily.com/linking-smartphones-with-home-screens/"><u>Linking Smartphones with Home Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/raising-the-bar-for-online-privacy-facebook-adds-end-to-end-encryption-to-chat-services/"><u>Raising the Bar for Online Privacy: Facebook Adds End-to-End Encryption to Chat Services</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-fixing-the-issue-when-your-game-wont-start-check-your-game-files/"><u>Solved: Fixing the Issue When Your Game Won't Start - Check Your Game Files</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-up-your-workout-game-with-airpods-pro-e3-and-its-cutting-edge-heart-monitoring-technology-for-peak-performance-zdnet/"><u>Step Up Your Workout Game with AirPods Pro E3 and Its Cutting-Edge Heart Monitoring Technology for Peak Performance | ZDNet</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-installation-instructions-for-linksys-wusb6300-wireless-usb-adapter-free-download/"><u>Step-by-Step Installation Instructions for Linksys WUSB6300 Wireless USB Adapter - Free Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/switching-off-default-everyone-alerts/"><u>Switching Off Default Everyone Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-the-hidden-dangers-in-social-quiz-platforms/"><u>Unmasking the Hidden Dangers in Social Quiz Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726028771946-online-video-converter/"><u>ビデオ変換ウェブサービス Online Video Converter を容易に使いこなすコツと、不可解なエラー時の迅速対策</u></a></li>
+</ul></div>
 

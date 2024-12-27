@@ -1,7 +1,7 @@
 ---
 title: "Invisible Voices: How to Encourage Anonymity on FB Groups"
-date: 2024-12-17T07:10:14.287Z
-updated: 2024-12-21T21:46:28.356Z
+date: 2024-12-26T20:37:58.925Z
+updated: 2024-12-27T20:31:42.872Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8009d92085bbb2b59b0e3b6dadde39baefbadc66e
 
 ![An anonymous person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/01/teams-anonymous-update-featured.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Shuttershock](https://www.shutterstock.com/image-photo/girl-holding-sheet-paper-question-mark-1673490064)
 
  The anonymous posting feature is only available for groups set as Parenting. So, if your group is set to another group type, you’d need to change this.
@@ -41,26 +45,18 @@ thumbnail: https://thmb.techidaily.com/8009d92085bbb2b59b0e3b6dadde39baefbadc66e
 ![facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-homepage.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook group admin tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-admin-tools-page.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![facebook group settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook group type](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -76,6 +72,10 @@ Close
 
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
 
  One reason you might want to enable anonymous posts on your group is so that group members can share their experiences without revealing their identity.
@@ -85,7 +85,7 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
@@ -109,17 +109,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-forward-with-borders-on-instagram-videos/"><u>[New] In 2024, Step Forward with Borders on Instagram Videos</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-elite-streamers-choice-for-secure-downloads-8/"><u>2024 Approved Elite Streamer’s Choice for Secure Downloads 8</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-smartest-screens-top-11-general-knowledge-channels/"><u>2024 Approved Smartest Screens Top 11 General Knowledge Channels</u></a></li>
-<li><a href="https://facebook.techidaily.com/alternative-access-methods-for-lost-facebook-codes/"><u>Alternative Access Methods for Lost Facebook Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/americas-growing-challenge-to-big-tech-the-new-antitrust-reality/"><u>America's Growing Challenge to Big Tech: The New Antitrust Reality</u></a></li>
-<li><a href="https://facebook.techidaily.com/choosing-the-path-implementing-or-rejecting-meta-ai-on-sites/"><u>Choosing the Path - Implementing or Rejecting Meta AI on Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/comfort-in-conciseness-a-guide-for-comment-free-facebook-updates/"><u>Comfort in Conciseness: A Guide for Comment-Free Facebook Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/composing-your-personal-brand-visual/"><u>Composing Your Personal Brand Visual</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-itel-p55-5g-by-drfone-android/"><u>How to Bypass FRP on Itel P55 5G?</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-enhancing-on-screen-impact-with-echoic-audio-adjustments-a-deep-dive-into-ducking-techniques/"><u>Updated In 2024, Enhancing On-Screen Impact with Echoic Audio Adjustments A Deep Dive Into Ducking Techniques</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/wiederherstellung-verlorener-dateien-auf-deinem-windows-pc-und-ios-gerat/"><u>Wiederherstellung Verlorener Dateien Auf Deinem Windows-PC Und iOS-Gerät</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-seamless-integration-of-custom-backgrounds-on-microsoft-teams-calls-for-2024/"><u>[New] Seamless Integration of Custom Backgrounds on Microsoft Teams Calls for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-android-and-lightroom-review-a-full-examination/"><u>2024 Approved Android & Lightroom Review A Full Examination</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-leveraging-video-features-annotations-and-cards/"><u>2024 Approved Leveraging Video Features Annotations & Cards</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-melodic-memories-insta-videos-that-sing-to-the-soul/"><u>2024 Approved Melodic Memories Insta-Videos That Sing to the Soul</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-xiaomi-redmi-note-12-pro-4g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Xiaomi Redmi Note 12 Pro 4G FRP</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/computer-performance-essentials-understanding-necessary-speed-requirements/"><u>Computer Performance Essentials: Understanding Necessary Speed Requirements</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722958321971-get-your-corsair-mouse-ready-free-tutorial-and-downloads-available/"><u>Get Your Corsair Mouse Ready - Free Tutorial and Downloads Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-confidential-content-concealed-metas-plan-online/"><u>Keeping Confidential Content Concealed: Meta's Plan Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-crafting-stellar-fb-gatherings-and-meetings/"><u>Maximizing Impact: Crafting Stellar FB Gatherings and Meetings</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/mending-glitches-in-civilization-v/"><u>Mending Glitches in Civilization V</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-legal-boundaries-when-grabbing-private-fb-content/"><u>Navigating Legal Boundaries When Grabbing Private FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-the-sanctity-of-your-social-network-why-stranger-connections-arent-ideal/"><u>Protecting the Sanctity of Your Social Network: Why Stranger Connections Aren't Ideal</u></a></li>
+<li><a href="https://facebook.techidaily.com/see-how-many-like-you-on-fb/"><u>See How Many Like You on FB</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-pinnacle-windows-audio-platforms-best-8-podcast-apps/"><u>The Pinnacle Windows Audio Platforms - Best 8 Podcast Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-how-social-media-overtook-traditional-forum-spaces/"><u>Top 6: How Social Media Overtook Traditional Forum Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-doesnt-apple-join-the-metaverse-wave-like-facebook/"><u>Why Doesn't Apple Join the Metaverse Wave Like Facebook?</u></a></li>
 </ul></div>
 

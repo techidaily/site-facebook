@@ -1,7 +1,7 @@
 ---
 title: "Pandemic Misguidance: 12 Prominent Personalities"
-date: 2024-08-15T18:51:56.404Z
-updated: 2024-08-16T18:51:56.404Z
+date: 2024-12-24T17:23:59.551Z
+updated: 2024-12-27T19:01:27.721Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/c48a785cefdb0843c6e76d439ab755593afd7522a
  With all the misleading and false information about the pandemic going around on social media, you would expect that hundreds or thousands of people are responsible for the spread across the internet's most popular platforms.
 
 But what if, in reality, there are only 12 prime suspects?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
@@ -41,8 +45,9 @@ But what if, in reality, there are only 12 prime suspects?
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -55,14 +60,11 @@ But what if, in reality, there are only 12 prime suspects?
 
  Unfortunately, even as Facebook, Instagram, and Twitter make moves to fight against misinformation, this doesn't seem to be a battle that any of the platforms is actually winning. Something more aggressive needs to be done, and soon.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +73,24 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-leading-video-makers-in-asmr-sphere/"><u>[New] 2024 Approved Leading Video Makers in ASMR Sphere</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-expert-guide-to-sierras-cloud-documentation-and-drive-integration/"><u>[New] In 2024, Expert Guide to Sierra's Cloud Documentation & Drive Integration</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-method-for-onoff-windows-11-hdr-feature/"><u>[New] Method for On/Off Windows 11 HDR Feature</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-peeling-back-layers-of-the-metaverse-with-6-studies/"><u>[Updated] 2024 Approved Peeling Back Layers of the Metaverse with 6 Studies</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cut-buffering-time-turn-on-av1-in-youtube-settings/"><u>[Updated] Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-quick-start-guide-to-setup-and-use-obs-on-apple-systems/"><u>[Updated] In 2024, Quick Start Guide to Setup and Use OBS on Apple Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-media-insights-from-facebooks-openness-hub/"><u>Deciphering Social Media: Insights From Facebook's Openness Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-veiled-world-of-shadowbanned-content/"><u>Deciphering the Veiled World of Shadowbanned Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-profiles-versus-usernames-in-digital-spaces/"><u>Decoding Facebook Profiles Versus Usernames in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-web-of-connections-total-summary-of-your-facebook-history/"><u>Decoding the Web of Connections: Total Summary of Your Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/discard-your-fb-view-logs-procedure-and-advantages/"><u>Discard Your FB View Logs - Procedure & Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/ditch-the-digital-embrace-a-more-fulfilling-lifestyle-without-facebook/"><u>Ditch the Digital: Embrace a More Fulfilling Lifestyle without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodging-digital-deceptions-securing-transactions-in-the-social-swap-sphere/"><u>Dodging Digital Deceptions – Securing Transactions in the Social Swap Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-growth-with-a-robust-list-of-work-clients-via-facebook/"><u>Driving Growth with a Robust List of Work Clients via Facebook</u></a></li>
+<li><a href="https://win11.techidaily.com/erased-windows-elegance-top-6-features/"><u>Erased Windows Elegance: Top 6 Features</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pros-picks-of-handheld-stabilizers-ensuring-perfect-videos/"><u>Pro's Picks of Handheld Stabilizers Ensuring Perfect Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+</ul></div>
 

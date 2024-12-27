@@ -1,7 +1,7 @@
 ---
 title: Why Is Meta Moving Away From Biometrics in FB?
-date: 2024-08-15T18:52:40.790Z
-updated: 2024-08-16T18:52:40.790Z
+date: 2024-12-25T18:51:09.015Z
+updated: 2024-12-27T20:41:29.498Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 
  Now, Meta is deleting all these profiles. Let us examine what this means and why Meta is doing it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Facial Recognition?
 
 ![Pixabay facial recognition image of man's face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pixabay-facial-recognition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facial recognition is a piece of software that recognizes a human face by mapping its features from a photograph or video. The most important features are the distance between the eyes and the distance from forehead to chin.
 
@@ -36,13 +44,15 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
@@ -58,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
  Meta is not abandoning facial recognition. It will continue to use it, but under a narrower set of circumstances.
@@ -70,14 +81,11 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,4 +94,20 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-elevating-facebook-vids-with-fullscreen/"><u>[New] Elevating Facebook Vids with Fullscreen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-tips-on-mastering-the-preview-application-on-mac/"><u>[New] Expert Tips on Mastering the Preview Application on Mac</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ixing-obscured-content-on-youtube-platform/"><u>[New] Fixing Obscured Content on YouTube Platform</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-perfecting-the-aesthetic-ootd-tiktok-on-a-mac/"><u>[New] Perfecting the Aesthetic OOTD TikTok on a Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-times-social-media-giants-forgot-about-users/"><u>5 Times Social Media Giants Forgot About Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-high-status-with-meta-purchase/"><u>Advance to High-Status with Meta Purchase</u></a></li>
+<li><a href="https://facebook.techidaily.com/affordable-tactics-for-perfectly-timed-social-media-posts-on-fb/"><u>Affordable Tactics for Perfectly Timed Social Media Posts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/battening-down-the-hatches-how-stablecoins-navigate-market-swings/"><u>Battening Down the Hatches: How Stablecoins Navigate Market Swings</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-in-digital-dialogue-with-facebook-sounds/"><u>Breaking Barriers in Digital Dialogue with Facebook Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-smarter-social-media-networking-strategy/"><u>Building a Smarter Social Media Networking Strategy</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-luminosity-boost-for-low-light-mobile-video/"><u>In 2024, Luminosity Boost for Low-Light Mobile Video</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/time-reverse-footage-on-your-phone/"><u>Time-Reverse Footage on Your Phone</u></a></li>
+</ul></div>
 

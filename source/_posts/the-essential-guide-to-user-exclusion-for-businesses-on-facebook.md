@@ -1,7 +1,7 @@
 ---
 title: The Essential Guide to User Exclusion for Businesses on Facebook
-date: 2024-08-15T18:48:33.600Z
-updated: 2024-08-16T18:48:33.600Z
+date: 2024-12-22T18:46:19.421Z
+updated: 2024-12-27T18:09:37.811Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,11 @@ thumbnail: https://thmb.techidaily.com/9dc1b7d2e1e187b05acc80cb9c7fb7d37982a5547
 3. Click**Privacy** .  
 ![Blocking options on a Facebook page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/blocking-feature-facebook.jpg)
 4. Select**Blocking** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Under**Manage Blocking** , head to**Block Users** and click**Edit** .
 6. Click**Add users to blocked list** or select**Add followers to blocked list** .  
 ![Adding users to your blocked list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/users-blocked-list.jpg)
@@ -38,47 +43,46 @@ thumbnail: https://thmb.techidaily.com/9dc1b7d2e1e187b05acc80cb9c7fb7d37982a5547
 ![Banning a user from a Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ban-user-page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Ban Someone From Their Post on Your Facebook Page
 
  To ban a profile from a post on your page, or a post that your page has been tagged on, follow these steps:
 
 1. Open your page and head to**Mentions** .  
 ![Mentions section on Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/page-mentions-section.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 2. Hover over the user’s profile in their post.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Click the three-dot icon, then tap**Block** .  
 ![Banning a profile from a post on a page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/profile-post-page.jpg)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. Choose whether you simply want to ban the profile or whether you want to ban the profile along with any new profiles they might create.  
 ![Banning a profile from a Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/ban-profile-tag.jpg)
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 5. Click**Confirm** .
 
 [A Facebook page is better than a personal profile for branding](https://www.makeuseof.com/why-facebook-page-is-better-for-branding/) , but you still want to make sure that you manage it correctly.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Manage Your Facebook Page
 
  Pages on Facebook are a popular way for individuals and businesses to grow their online presence and engage audiences. Even though engaging with Facebook users can be beneficial to you, moderation is still an important part of ensuring the content on your page is appropriate.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,4 +91,18 @@ thumbnail: https://thmb.techidaily.com/9dc1b7d2e1e187b05acc80cb9c7fb7d37982a5547
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oppo-a1-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Oppo A1 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-5-gaffes-that-cost-its-users-peace-of-mind/"><u>Facebook's 5 Gaffes That Cost Its Users Peace of Mind</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-facebook-tracking-with-the-off-facebook-activity-tool/"><u>How to Stop Facebook Tracking With the Off-Facebook Activity Tool</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-swiftly-upgrade-your-intel-nuc-drivers/"><u>How To Swiftly Upgrade Your Intel NUC Drivers</u></a></li>
+<li><a href="https://games-able.techidaily.com/illuminating-ideas-energy-and-inspiration/"><u>Illuminating Ideas: Energy & Inspiration</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-full-screen-mastery-for-premier-pro-users/"><u>In 2024, Full Screen Mastery for Premier Pro Users</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-lava-storm-5g-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Lava Storm 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-success-the-4-must-have-metadata-tools/"><u>Mastering Success: The 4 Must-Have Metadata Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/proven-techniques-to-stand-out-in-podcast-imagery-for-2024/"><u>Proven Techniques to Stand Out in Podcast Imagery for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovered-no-more-erasing-your-facebook-trail/"><u>Uncovered No More: Erasing Your Facebook Trail</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-the-dynamics-of-spotify-advertising-for-2024/"><u>Understanding the Dynamics of Spotify Advertising for 2024</u></a></li>
+</ul></div>
 

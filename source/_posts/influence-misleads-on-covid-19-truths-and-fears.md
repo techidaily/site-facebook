@@ -1,7 +1,7 @@
 ---
 title: Influence Misleads on Covid-19 Truths and Fears
-date: 2024-08-15T18:48:22.750Z
-updated: 2024-08-16T18:48:22.750Z
+date: 2024-12-25T20:28:30.277Z
+updated: 2024-12-27T18:18:42.874Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/4d8389239c924325f747de29a6fa5fd56f085170d
  With all the misleading and false information about the pandemic going around on social media, you would expect that hundreds or thousands of people are responsible for the spread across the internet's most popular platforms.
 
 But what if, in reality, there are only 12 prime suspects?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
@@ -41,8 +45,9 @@ But what if, in reality, there are only 12 prime suspects?
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -55,14 +60,11 @@ But what if, in reality, there are only 12 prime suspects?
 
  Unfortunately, even as Facebook, Instagram, and Twitter make moves to fight against misinformation, this doesn't seem to be a battle that any of the platforms is actually winning. Something more aggressive needs to be done, and soon.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +73,24 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-mastering-lut-integration-in-obs-for-enhanced-visual-effects/"><u>[New] Mastering LUT Integration in OBS for Enhanced Visual Effects</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-diving-into-zoom-breakout-room-setups-for-2024/"><u>[Updated] Diving Into Zoom Breakout Room Setups for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-anime-aesthetics-made-simple-using-snapchats-cartoon-style/"><u>[Updated] In 2024, Anime Aesthetics, Made Simple Using Snapchat's Cartoon Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-analysis-of-the-cost-effective-tp-skylink-archer-a6-with-ac1200-connectivity/"><u>Comprehensive Analysis of the Cost-Effective TP-Skylink Archer A6 with AC1200 Connectivity</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/crafting-connections-romantic-german-pick-up-lines/"><u>Crafting Connections: Romantic German Pick Up Lines</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-fixing-asus-webcam-issues-with-no-display-on-windows-nix-11/"><u>Diagnosing and Fixing ASUS Webcam Issues with No Display on Windows Nix-11</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-invites-you-to-shape-tomorrows-metaverse-awaiting-10k/"><u>Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-meta-a-revolution-in-social-media-branding/"><u>Facebook Unveils Meta: A Revolution in Social Media Branding</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-ray-ban-stories-details-and-price/"><u>Facebook's New Ray-Ban Stories - Details and Price?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-top-11-best-dji-phantom-4-accessories-to-buy/"><u>In 2024, Top 11 Best DJI Phantom 4 Accessories to Buy</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/perfect-synergy-discover-5-superior-webcams-with-sound-tech/"><u>Perfect Synergy Discover 5 Superior Webcams with Sound Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anatomy-of-a-fake-facebook-profile/"><u>The Anatomy of a Fake Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-workforce-understanding-facebooks-metamates/"><u>The New Workforce: Understanding Facebook’s ‘Metamates’</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-tecno-camon-30-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Tecno Camon 30 Pro 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnba-unleashed-on-two-social-titans-this-season/"><u>WNBA Unleashed on Two Social Titans This Season</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-voice-matters-how-will-facebook-revamp-its-news-experience/"><u>Your Voice Matters: How Will Facebook Revamp Its News Experience?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/online-flac-movavi/"><u>무료 앱을 사용하여 Online FLAC 크리티비톡 편집 - Movavi</u></a></li>
+</ul></div>
 

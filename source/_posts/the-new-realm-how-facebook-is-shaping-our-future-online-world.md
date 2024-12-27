@@ -1,7 +1,7 @@
 ---
 title: "The New Realm: How Facebook Is Shaping Our Future Online World"
-date: 2024-12-17T03:44:44.677Z
-updated: 2024-12-21T23:08:07.478Z
+date: 2024-12-22T19:15:56.750Z
+updated: 2024-12-27T16:52:14.847Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is the Facebook Metaverse?
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
@@ -45,14 +41,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
 
@@ -63,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Algorithmic Biases
@@ -82,12 +74,16 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -119,20 +119,18 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-viral-visuals-photos-and-their-lives/"><u>[New] Viral Visuals Photos and Their Lives</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-fourfold-guide-to-podcasting-in-education-via-mac/"><u>[Updated] In 2024, Fourfold Guide to Podcasting in Education via Mac</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-harnessing-youtubes-power-for-personal-image-amplification/"><u>2024 Approved Harnessing YouTube's Power for Personal Image Amplification</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-top-pfr-rate-for-sluggish-film-speed/"><u>2024 Approved Top PFR Rate for Sluggish Film Speed</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Xiaomi Redmi 13C | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/breach-resetting-oculus-q2-sales-soar-amongst-facebookers/"><u>Breach Resetting - Oculus Q2 Sales Soar Amongst Facebookers</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensive-tactics-for-retrieving-a-hidden-facebook-account/"><u>Comprehensive Tactics for Retrieving a Hidden Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/did-facebook-expose-your-contact-info/"><u>Did Facebook Expose Your Contact Info?</u></a></li>
-<li><a href="https://facebook.techidaily.com/guard-your-digital-world-identifying-fb-breaches/"><u>Guard Your Digital World: Identifying FB Breaches</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-transparency-center-to-understand-the-social-network-better/"><u>How to Use Facebook's Transparency Center to Understand the Social Network Better</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-adolescent-online-presence-facebook-privacy-tips/"><u>Protecting Adolescent Online Presence - Facebook Privacy Tips</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/realme-gt-3-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme GT 3 Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/riding-through-the-year-motorcycles-no-1-helmet-cameras-guide/"><u>Riding Through the Year - Motorcycle's No. 1 Helmet Cameras Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/transition-your-online-footprint-update-your-date-of-birth-fb/"><u>Transition Your Online Footprint: Update Your Date of Birth (FB)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-the-secrets-to-professional-quality-instagram-videos/"><u>Unlocking the Secrets to Professional-Quality Instagram Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-your-guide-to-top-6-free-online-video-downloads/"><u>2024 Approved Your Guide to Top 6 Free, Online Video Downloads</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-sony-xperia-1-v-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Sony Xperia 1 V without App | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-multiplayer-metaverse-games-to-share-with-pals/"><u>Best Multiplayer Metaverse Games to Share With Pals</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-may-soon-add-reels-and-rooms-to-the-stories-panel/"><u>Facebook May Soon Add Reels and Rooms to the Stories Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-portable-portal-go-model/"><u>Facebook Unveils Portable Portal Go Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-bypass-facebooks-security-without-a-mobile/"><u>How to Bypass Facebook's Security WITHOUT a Mobile</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-dive-into-the-world-of-self-expression-a-treasury-of-instagramcaptions/"><u>In 2024, Dive Into the World of Self-Expression - A Treasury of #InstagramCaptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspection-of-fb-messaging-security-claims/"><u>Inspection of Fb Messaging Security Claims</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-mastering-sound-a-comprehensive-guide-to-normalizing-audio-in-multimedia-content/"><u>New Mastering Sound A Comprehensive Guide to Normalizing Audio in Multimedia Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-slownon-functional-fb-notifications/"><u>Troubleshooting Slow/Non-Functional FB Notifications</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-resolving-issues-with-non-functional-built-in-webcams-on-windows-systems/"><u>Troubleshooting Tips: Resolving Issues with Non-Functional Built-In Webcams on Windows Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-winners-best-rated-podcasts/"><u>Unveiling the Winners: Best-Rated Podcasts</u></a></li>
 </ul></div>
 

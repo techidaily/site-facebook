@@ -1,7 +1,7 @@
 ---
 title: TikTok's Rapid Climb Cuts Into Facebook's Profits Deeply
-date: 2024-12-19T23:53:25.231Z
-updated: 2024-12-22T04:31:22.958Z
+date: 2024-12-23T20:47:00.543Z
+updated: 2024-12-27T19:50:58.581Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook’s Revenues Are Down and User Growth Has Stalled
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ![Facebook Q2 2022 User Statistics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Facebook-Q2-2022-User-Statistics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Meta](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx)
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
  While Apple's privacy changes (as reported by[Business Insider](https://www.businessinsider.com/how-apple-att-privacy-plan-derailed-facebook-2022-7) ) could have contributed to upsetting Facebook’s advertising business, it is unlikely to be the primary cause for the dent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TikTok Is the Major Cause of Facebook’s Decline
@@ -51,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
  The picture is quite the opposite for TikTok in the quarters before Q2, 2022\. According to[Bloomberg](https://www.bloomberg.com/news/features/2022-06-23/tiktok-becomes-cash-machine-with-revenue-tripling-to-12-billion) , TikTok's annual revenues were $4.6 billion in 2021, and they're expected to reach $12 billion by the end of 2022\. The Chinese-owned social video app also has a rapidly growing user count, as noted by[Insider Intelligence](https://www.insiderintelligence.com/charts/global-tiktok-user-stats/) .
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
 
@@ -66,14 +70,10 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can Facebook Fight Back Against TikTok?
@@ -97,17 +97,22 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-art-of-adding-soundtracks-to-instagram-visuals/"><u>[New] In 2024, The Art of Adding Soundtracks to Instagram Visuals</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-motorola-defy-2-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Motorola Defy 2</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-social-platforms-a-safe-choice/"><u>Best Social Platforms: A Safe Choice?</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-hidden-social-hubs-on-facebook/"><u>Discovering Hidden Social Hubs on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclude-acquaintances-from-on-this-day-highlights/"><u>Exclude Acquaintances From On This Day Highlights</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/explore-best-iphone-selfie-boosters-all-free-and-upgraded/"><u>Explore Best iPhone Selfie Boosters - All Free and Upgraded</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-av1-vs-vp9-which-video-codec-wins/"><u>In 2024, AV1 Vs. VP9 Which Video Codec Wins?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aging-the-power-of-creative-commons-rights/"><u>Leveraging the Power of Creative Commons Rights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigate-the-future-of-digital-art-with-the-finest-tablet-pads-of-2024/"><u>Navigate the Future of Digital Art with the Finest Tablet Pads of 2024</u></a></li>
-<li><a href="https://os-tips.techidaily.com/recovering-accidentally-deleted-iphone-voicemail-easy-methods-explored/"><u>Recovering Accidentally Deleted iPhone Voicemail: Easy Methods Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-your-online-interests-one-page-at-a-time/"><u>Redefining Your Online Interests, One Page at a Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-facebooks-potential-for-work-related-client-expansion/"><u>Unlocking Facebook's Potential for Work-Related Client Expansion</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-essential-tips-for-adding-text-to-instagram-videos/"><u>[New] Essential Tips for Adding Text to Instagram Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-videos-with-complimentary-banners-here-for-2024/"><u>[Updated] Elevate Your Videos with Complimentary Banners, Here for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-snapshot-speaks-the-leading-captioning-apps-iosandroid/"><u>[Updated] Snapshot Speaks The Leading Captioning Apps (iOS/Android)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apple-watch-enhancements-unveiled-discover-top-watchos-11-improvements-on-zdnet/"><u>Apple Watch Enhancements Unveiled: Discover Top WatchOS 11 Improvements on ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/elude-common-facebook-frauds-the-essential-list-of-14/"><u>Elude Common Facebook Frauds: The Essential List of 14</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-review-on-the-powerhouse-linksys-ea9500-router-with-advanced-tech-capabilities/"><u>Expert Review on the Powerhouse Linksys EA9500 Router with Advanced Tech Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-mind-behavior-interactions-the-latest-isbm-cbt-strategies/"><u>Harnessing Mind-Behavior Interactions: The Latest ISBM CBT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-3d-photo-on-facebook/"><u>How to Create a 3D Photo on Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-13-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and Apple iPhone 13 without Apple Account</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-infinix-smart-8-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Infinix Smart 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-realism-how-fb-messenger-expands-ar-horizons/"><u>Interactive Realism: How FB Messenger Expands AR Horizons</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/movavi-convertir-audio-aac-en-calidad-superior-flac-sin-coste-alguno-hacerlo-hoy/"><u>Movavi: Convertir Audio AAC en Calidad Superior FLAC Sin Coste Alguno - Hacerlo Hoy!</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-achieving-clarity-in-sound-strategies-to-dampen-unwanted-echoes/"><u>New In 2024, Achieving Clarity in Sound Strategies to Dampen Unwanted Echoes</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-connections-facebooks-latest-dating-upgrade/"><u>Revolutionizing Connections: Facebook’s Latest Dating Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shutdown-unraveling-causes/"><u>Social Media Shutdown: Unraveling Causes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-push-for-non-partisan-non-denominational-profile-spaces/"><u>The Push for Non-Partisan, Non-Denominational Profile Spaces</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-final-cut-pro-x-tutorial-l-cuts-and-j-cuts/"><u>Updated 2024 Approved Final Cut Pro X Tutorial L-Cuts and J-Cuts</u></a></li>
 </ul></div>
 

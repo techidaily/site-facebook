@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-12-16T17:14:10.966Z
-updated: 2024-12-22T04:31:12.767Z
+date: 2024-12-21T17:17:25.833Z
+updated: 2024-12-27T19:02:26.300Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Does Following Mean on Facebook?
 
@@ -48,12 +52,16 @@ There are two reasons to use the follow feature.
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Follow and Unfollow on Facebook
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
@@ -68,10 +76,6 @@ There are two reasons to use the follow feature.
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You See Who You're Following?
 
@@ -94,7 +98,7 @@ This same page contains three other settings you need to be aware of:
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Do Your Facebook Followers See?
@@ -109,10 +113,6 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
 ## How to See Who Follows You on Facebook
@@ -122,10 +122,6 @@ This same page contains three other settings you need to be aware of:
  Again, make your way to your list of friends. You can access it from your profile page. This time, locate the tab labeled**Followers** . If you don't have any followers, or you haven't allowed followers in your Facebook settings, you won't see the option.
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Can You Remove Facebook Followers?
 
@@ -140,6 +136,10 @@ This same page contains three other settings you need to be aware of:
  You now have two choices:**Report** or**Block** .
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Use the Follow Feature on Facebook?
 
@@ -162,24 +162,21 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-ensuring-long-term-accessibility-transferring-photos-from-snapchat/"><u>[New] 2024 Approved Ensuring Long-Term Accessibility Transferring Photos From Snapchat</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-budget-analysis-for-youtube-promotion/"><u>[New] Budget Analysis for YouTube Promotion</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-wealthiest-web-workshops-hosts-for-2024/"><u>[Updated] Wealthiest Web Workshops Hosts for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-the-silence-whistleblower-on-fb-platform/"><u>Breaking the Silence: Whistleblower on FB Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-the-online-world-9-ways-social-media-enhances-life/"><u>Embracing the Online World: 9 Ways Social Media Enhances Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-life-balance-through-facebooks-time-out-reminder/"><u>Enhance Life Balance Through Facebook's Time-Out Reminder</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-chat-upgrade-enhanced-messenger-instagram-communication-awaits/"><u>Facebook's Chat Upgrade: Enhanced Messenger, Instagram Communication Awaits</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-next-step-boosting-user-engagement-with-new-panel-features/"><u>Facebook’s Next Step: Boosting User Engagement With New Panel Features</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-lava-blaze-pro-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Lava Blaze Pro 5G to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-samsung-galaxy-a05mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Samsung Galaxy A05Mirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-infinix-zero-5g-2023-turbo-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Infinix Zero 5G 2023 Turbo to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/macmastery-resolving-system-freezes-on-apples-portable-laptop/"><u>MacMastery: Resolving System Freezes on Apple's Portable Laptop</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-3d-images-posting-them-on-facebook/"><u>Mastering 3D Images: Posting Them on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-messenger-unlocking-soundmojis-magic/"><u>Mastering Messenger: Unlocking Soundmojis Magic</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/next-gen-edit-app-live-fix-and-focus/"><u>Next-Gen Edit App: Live Fix and Focus</u></a></li>
-<li><a href="https://win11.techidaily.com/pinpointing-problems-smooth-your-pcs-cpu-flow-with-rm/"><u>Pinpointing Problems: Smooth Your PC's CPU Flow With RM</u></a></li>
-<li><a href="https://facebook.techidaily.com/rediscovering-trump-on-meta-platforms/"><u>Rediscovering Trump on Meta Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-5-top-realistic-text-to-speech-ai-voice-generators-you-may-like/"><u>Updated In 2024, 5 Top Realistic Text to Speech AI Voice Generators You May Like</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-the-full-potential-of-youtubes-adsense-features/"><u>[New] Unlocking the Full Potential of YouTube's AdSense Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-aspects-of-sound-and-sight-in-asmr-recording-for-2024/"><u>[Updated] Elevate Your Aspects of Sound and Sight in ASMR Recording for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unlocked-design-potential-100-free-pp-templates-for-2024/"><u>[Updated] Unlocked Design Potential 100% Free PP Templates for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/handling-soundtracks-opening-srt-on-pcmac-for-2024/"><u>Handling Soundtracks Opening SRT on PC/Mac for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-embrace-facebooks-latest-dating-service/"><u>How to Embrace Facebook's Latest Dating Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-manage-your-facebook-friend-list-wisely/"><u>How To Manage Your Facebook Friend List Wisely</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-capture-the-thrill-choosing-superior-cam-accessories/"><u>In 2024, Capture the Thrill Choosing Superior Cam Accessories</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-digital-platforms-into-company-culture/"><u>Integrating Digital Platforms Into Company Culture</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-facebook-timing-with-these-five-budget-friendly-techniques/"><u>Master the Art of Facebook Timing with These Five Budget-Friendly Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-your-social-media-account-without-old-credentials/"><u>Reviving Your Social Media Account without Old Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-tips-discover-5-free-methods-to-improve-fb-update-schedules/"><u>Timely Tips: Discover 5 Free Methods to Improve FB Update Schedules</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/ultrafine-in-action-an-extended-review-of-lgs-4k-display/"><u>UltraFine in Action An Extended Review of LG’s 4K Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-business-cant-afford-to-ignore-these-6-benefits-from-facebook/"><u>Why Your Business Can’t Afford to Ignore These 6 Benefits From Facebook</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/yl-software-explores-the-best-practices-for-protecting-your-crypto-holdings-from-threats-and-thefts/"><u>YL Software Explores the Best Practices for Protecting Your Crypto Holdings From Threats and Thefts</u></a></li>
 </ul></div>
 

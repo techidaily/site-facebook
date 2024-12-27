@@ -1,7 +1,7 @@
 ---
 title: How Many Users Is Facebook Actually Losing?
-date: 2024-08-15T18:46:47.312Z
-updated: 2024-08-16T18:46:47.312Z
+date: 2024-12-24T17:49:08.383Z
+updated: 2024-12-27T17:46:48.527Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/f063158b07bb5f14ea4aab44ee9234e61e405ad94
 
  For a company that has grown so rapidly since its inception, this might come as a shock. But, what's more important is the number of users that Facebook has actually lost and if this is something they should worry about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -34,13 +38,15 @@ thumbnail: https://thmb.techidaily.com/f063158b07bb5f14ea4aab44ee9234e61e405ad94
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
@@ -52,13 +58,15 @@ thumbnail: https://thmb.techidaily.com/f063158b07bb5f14ea4aab44ee9234e61e405ad94
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
@@ -71,18 +79,6 @@ thumbnail: https://thmb.techidaily.com/f063158b07bb5f14ea4aab44ee9234e61e405ad94
 
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook's User Loss Is Not as Big as It Seems
 
  Losing half a million daily users, and that too for the first time in 18 years, is surely not a good sign for Facebook. But, thanks to its giant user base, this decline is only a drop in the ocean.
@@ -91,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/f063158b07bb5f14ea4aab44ee9234e61e405ad94
 
  But only time will tell if Facebook succeeds in regaining its lost users and the interest among the younger generation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,4 +100,23 @@ thumbnail: https://thmb.techidaily.com/f063158b07bb5f14ea4aab44ee9234e61e405ad94
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-mastering-video-privacy-the-art-of-concealing-details/"><u>[New] 2024 Approved Mastering Video Privacy The Art of Concealing Details</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-top-10-unforgettable-igtv-video-strategies-for-brand-success/"><u>[Updated] Top 10 Unforgettable IGTV Video Strategies for Brand Success</u></a></li>
+<li><a href="https://win-answers.techidaily.com/diy-guide-to-improve-blurry-graphics-for-call-of-duty-warzone-players-pc/"><u>DIY Guide to Improve Blurry Graphics for Call of Duty: Warzone Players (PC)</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-private-settings-on-meta-and-facebook-quest-2/"><u>Examining Private Settings on Meta and Facebook Quest 2</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/filmora-guide-efficiently-convert-avi-files-to-gifs-on-both-operating-systems/"><u>Filmora Guide Efficiently Convert AVI Files to GIFs on Both Operating Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/gratuito-converter-de-formato-caf-para-mp4-online-movavi/"><u>Gratuito Converter De Formato CAF Para MP4 Online - Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/groundbreaking-tools-aid-in-managing-digital-social-spaces/"><u>Groundbreaking Tools Aid in Managing Digital Social Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean...</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-get-the-most-recent-epson-driver-updates-on-your-pc-running-windows-10/"><u>How To Get The Most Recent Epson Driver Updates On Your PC Running Windows 10</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-seamlessly-move-music-from-an-ipod-to-macos/"><u>How to Seamlessly Move Music From an iPod to macOS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/live-streaming-made-easy-discover-manycam-the-ultimate-virtual-camera-software/"><u>Live Streaming Made Easy: Discover ManyCam - The Ultimate Virtual Camera Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-prime-fb-pics-selection/"><u>Mastering Prime FB Pics Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-chat-with-facebooks-ar-driven-messaging-updates/"><u>Revolutionize Chat With Facebook's AR-Driven Messaging Updates</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-infinix-smart-8-pro-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Infinix Smart 8 Pro Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-4-meta-resources-for-business-success/"><u>The Ultimate 4 Meta Resources for Business Success</u></a></li>
+</ul></div>
 

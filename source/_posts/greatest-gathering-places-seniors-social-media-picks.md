@@ -1,7 +1,7 @@
 ---
 title: "Greatest Gathering Places: Seniors' Social Media Picks"
-date: 2024-12-14T16:39:57.373Z
-updated: 2024-12-22T04:19:00.831Z
+date: 2024-12-23T18:33:41.608Z
+updated: 2024-12-27T20:16:01.743Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1. Facebook
@@ -48,10 +48,6 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 ![An elderly man and a younger man looking at a tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-7983582-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  LinkedIn is yet another social platform with a broad age range. It is not only popular with job-seekers, but with people wanting to find and establish connections in their industries. For seniors, the platform can provide a lot of stimulation because of its useful content.
 
  Even retired seniors can still benefit from using the platform because they can connect with old colleagues, see what's going on in their industries, and even collaborate with people on new projects or ideas.
@@ -64,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 ![Woman using laptop and holding a coffee cup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-marcus-aurelius-6787904.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  WhatsApp is an excellent way to stay connected with friends and family via instant messaging. It is readily accessible and has a ton of benefits. By encouraging people to build networks, its[users can also create WhatsApp communities](https://www.makeuseof.com/how-to-create-whatsapp-community/) .
 
  For seniors, the communities feature on WhatsApp makes it easy for them to put related groups into one folder. When optimizing their communities, they can manage their groups from one space, as well as keep their chats focused. For example, their work-related communities can be grouped, and their family-related communities can also be grouped.
@@ -77,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Another feature of WhatsApp is that it allows people to also share their location, and enables both audio and video calling at the tap of a button. Document sharing is also easy, as well as sending out photos and videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4. YouTube
@@ -85,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 ![Elderly man watching something on the tablet with headphones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-tima-miroshnichenko-5708716.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The amount of footage on YouTube is enormous. The platform can keep seniors stimulated for hours. They can watch, like, share, and comment on anything they interact with. Not only that, they can search for topics that are interesting and important to them.
@@ -93,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  YouTube also provides a lot of classic movies for free. Seniors can search for their favorite music, documentaries of any topic, news channels, entertainment, educational videos, as well as useful "how to" videos for any problem they encounter in their lives.
 
  There are recipes for just about any dish, DIY and decorating channels, as well as exercise and health videos for active seniors. For especially tech-savvy seniors, they can also make their own channel and upload their own videos if they have some interesting content to share.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5. Blogger
 
@@ -105,6 +101,10 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
  Seniors who are extra keen about blogging can register their own domain through Blogger and start to attract traffic. Another feature of Blogger is that seniors can choose with whom they want to share their blog, so only certain readers will be granted access to read it. However, seniors who want to keep their blogs private can also do so.
 
  Blogger is also a good platform for recording memories, storing photos, and interacting with others by following other blogs. The platform allows bloggers to manage their blog's settings by moderating comments and responding to people leaving them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Opportunities for Seniors to Connect Are Endless
 
@@ -125,22 +125,16 @@ thumbnail: https://thmb.techidaily.com/d560431f923ced226ef363014bbd59707b7820d52
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-navigating-gradual-audio-reduction-in-digital-studios-for-2024/"><u>[Updated] Navigating Gradual Audio Reduction in Digital Studios for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-capturing-life-basic-shots-every-new-director-should-master/"><u>2024 Approved Capturing Life Basic Shots Every New Director Should Master</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/fb-cover-videos-demystified-what-everyone-should-know-for-2024/"><u>FB Cover Videos Demystified What Everyone Should Know for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-watch-nba-live-streams-ultimate-top-10-sites-list-for-basketball-fans/"><u>Free Watch NBA Live Streams - Ultimate Top 10 Sites List for Basketball Fans</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-camtasia-tutorial-implementing-the-classic-ken-burns-effect/"><u>In 2024, Camtasia Tutorial Implementing the Classic Ken Burns Effect</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-revealing-the-best-of-both-worlds-1-tiktoks-on-twitter/"><u>In 2024, Revealing the Best of Both Worlds #1 TikToks on Twitter</u></a></li>
-<li><a href="https://facebook.techidaily.com/intrigue-behind-social-media-suspension/"><u>Intrigue Behind Social Media Suspension</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-public-trust-by-stopping-online-misleading-facts/"><u>Maintaining Public Trust by Stopping Online Misleading Facts</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-nightmare-all-social-media-downed/"><u>Networking Nightmare: All Social Media Downed</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
-<li><a href="https://facebook.techidaily.com/overlooked-technological-progress-spotlight-on-the-top-4-underserved-stories/"><u>Overlooked Technological Progress: Spotlight on the Top 4 Underserved Stories</u></a></li>
-<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-11r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/-the-money-opportunity-monetizing-on-youtube-through-mobile-devices/"><u>Seize the Money Opportunity Monetizing on YouTube Through Mobile Devices</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-repair-techniques-for-addressing-stereo-mix-problems-in-audio-systems/"><u>Step-by-Step Repair Techniques for Addressing Stereo Mix Problems in Audio Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-online-actions-shape-brand-perceptions/"><u>Your Online Actions Shape Brand Perceptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-detailed-guide-to-optimal-full-screen-displaying/"><u>[New] Detailed Guide to Optimal Full Screen Displaying</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-crafting-the-perfect-auditory-package-for-boxings/"><u>[Updated] Crafting the Perfect Auditory Package For Boxings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-excellent-4k-cameras-and-their-perfect-gimbals/"><u>2024 Approved Excellent 4K Cameras & Their Perfect Gimbals</u></a></li>
+<li><a href="https://games-able.techidaily.com/discover-how-opera-gx-stands-out-as-the-premier-choice-for-modern-smartphone-browsing-according-to-zdnets-analysis/"><u>Discover How Opera GX Stands Out as the Premier Choice for Modern Smartphone Browsing - According to ZDNet's Analysis</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Motorola Edge 2023 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-instagram-from-your-fb-profile/"><u>How to Disconnect Instagram From Your FB Profile</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-using-facebooks-in-app-browser/"><u>How To Stop Using Facebook's In-App Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-outlawed-3-countries-excluded-from-facebook/"><u>Internet Outlawed: 3 Countries Excluded From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-creating-lasting-impressions-in-fb-cover-pictures/"><u>Tips for Creating Lasting Impressions in Fb Cover Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-digital-identity-differences-on-major-platforms/"><u>Unraveling Digital Identity Differences on Major Platforms</u></a></li>
 </ul></div>
 

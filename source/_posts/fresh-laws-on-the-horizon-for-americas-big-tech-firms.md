@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-12-16T23:59:10.912Z
-updated: 2024-12-21T18:28:10.397Z
+date: 2024-12-25T20:46:27.012Z
+updated: 2024-12-27T16:51:29.388Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -88,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -98,17 +102,9 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -121,6 +117,10 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,22 +143,22 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-filmmaking-on-youtube-and-substitutes/"><u>2024 Approved Mastering Filmmaking on YouTube & Substitutes</u></a></li>
-<li><a href="https://facebook.techidaily.com/9-red-flags-in-your-digital-presences-security/"><u>9 Red Flags in Your Digital Presence's Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-senior-friendly-digital-network-spots/"><u>Best Senior-Friendly Digital Network Spots</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-metaai-with-predominant-bot-solutions/"><u>Comparing MetaAI with Predominant Bot Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-your-virtual-reflection-with-oculus-avatars/"><u>Crafting Your Virtual Reflection with Oculus Avatars</u></a></li>
-<li><a href="https://facebook.techidaily.com/cross-platform-connectivity-for-xbox-players-with-social-links/"><u>Cross-Platform Connectivity for Xbox Players with Social Links</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-solutions-for-when-your-beat-saber-keeps-exiting-unexpectedly/"><u>Effective Solutions for When Your Beat Saber Keeps Exiting Unexpectedly</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-lava-blaze-2-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Lava Blaze 2 Without Password?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-15-recommended-stop-motion-films-of-all-time/"><u>In 2024, 15 Recommended Stop Motion Films of All Time</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-sound-seekers-sanctuary-download-and-listen-to-songs/"><u>In 2024, Sound Seeker's Sanctuary Download & Listen To Songs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-turbocharge-your-fb-search-game/"><u>In 2024, Turbocharge Your FB Search Game</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151524514-overlooked-high-impact-tech-developments-top-4-hidden-gems/"><u>Overlooked High-Impact Tech Developments - Top 4 Hidden Gems!</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/recording-sims-4-games-professionally-for-2024/"><u>Recording Sims 4 Games Professionally for 2024</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/section-3b-five-factes-to-remember/"><u>Section 3B: Five Factes to Remember</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151756035-social-security-boosted-facebooks-messenger-and-instagram-now-offering-encrypted-chats/"><u>Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-poco-c55-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150501428-which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-cut-to-impress-youtube-video-editing-made-simple/"><u>[Updated] 2024 Approved Cut to Impress YouTube Video Editing Made Simple</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-breaking-barriers-youtube-marketing-mastery-for-2024/"><u>[Updated] Breaking Barriers YouTube Marketing Mastery for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-directory-for-vr-display-venues/"><u>[Updated] Ultimate Directory for VR Display Venues</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-into-tomorrow-secure-these-7-devices-for-metaverse-life/"><u>2024 Approved Step Into Tomorrow Secure These 7 Devices for Metaverse Life</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-honor-100-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Honor 100 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-step-by-step-instructions-to-get-sony-vaio-drivers-for-windows-computers/"><u>Complete Step-by-Step Instructions to Get Sony Vaio Drivers for Windows Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-societies-through-7-digital-interactions/"><u>Empowering Societies Through 7 Digital Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-new-admin-tools-to-help-moderate-communities/"><u>Facebook Launches New Admin Tools to Help Moderate Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-you-through-disconnecting-spotify-from-facebook/"><u>Guiding You Through Disconnecting Spotify From Facebook</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/insightful-analysis-of-the-lavish-and-rapid-glion-dolly-electric-scooter/"><u>Insightful Analysis of the Lavish & Rapid Glion Dolly Electric Scooter</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-next-step-facebooks-personalized-business-tool/"><u>Navigating the Next Step: Facebook's Personalized Business Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-principles-for-the-digital-age-critical-tips-and-traps/"><u>Privacy Principles for the Digital Age: Critical Tips & Traps</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-messages-on-facebooks-platform/"><u>Securing Messages on Facebooks Platform</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/usb-to-hdmi-bridge-malfunction-heres-how-to-solve-it/"><u>USB to HDMI Bridge Malfunction? Here's How to Solve It</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-identity-evolution-oculuss-latest-avatars/"><u>Virtual Identity Evolution: Oculus's Latest Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-know-about-impending-thread-shutdown-on-insta/"><u>What to Know About Impending Thread Shutdown on Insta</u></a></li>
+<li><a href="https://solve-help.techidaily.com/1726029865282-twitter/"><u>デジタルガジェット上でTwitter映像を見るための解決策：徹底調査と方法</u></a></li>
 </ul></div>
 

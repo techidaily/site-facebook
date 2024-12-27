@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Audit of '22 - Top Podcast Performers Reviewed
-date: 2024-12-19T16:41:48.775Z
-updated: 2024-12-22T06:06:31.028Z
+date: 2024-12-24T18:36:33.782Z
+updated: 2024-12-27T17:31:44.475Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 Here's everything we discuss in this week's 2022 special:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### High points of 2022
@@ -43,7 +43,7 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Low points of 2022
@@ -56,7 +56,7 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best devices of 2022
@@ -66,7 +66,7 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best games of 2022
@@ -94,21 +94,19 @@ Here's everything we discuss in this week's 2022 special:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-riches-301-safe-and-highest-earning-strategies/"><u>[New] Instagram Riches 301 Safe and Highest Earning Strategies</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-connecting-live-streamers-easily-share-from-twitch-to-fb/"><u>[Updated] Connecting Live Streamers Easily Share From Twitch to FB</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-professional-edge-with-free-best-premiere-pro-resources/"><u>2024 Approved Professional Edge with FREE, Best Premiere Pro Resources</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-top-techniques-to-keep-your-mov-files-organized-on-windows/"><u>2024 Approved Top Techniques to Keep Your .mov Files Organized on Windows</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprerancial-guide-to-facebook-echo-show-vs-portal/"><u>A Comprerancial Guide to Facebook Echo Show vs Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-crafting-profile-pics-that-resonate/"><u>A Guide to Crafting Profile Pics That Resonate</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-app-usage-patterns-a-predictor-of-consumer-desires/"><u>Are App Usage Patterns A Predictor of Consumer Desires?</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/cookiebot-enabled-solutions-advanced-analytics-and-personalization-tools/"><u>Cookiebot-Enabled Solutions: Advanced Analytics & Personalization Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-jumpstart-to-joyous-animation-a-guide-in-movie-maker-world/"><u>In 2024, Jumpstart to Joyous Animation A Guide in Movie Maker World</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-samsung-galaxy-a54-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Samsung Galaxy A54 5G Location | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/unplugged-delight-mobile-games-for-disconnected-players/"><u>Unplugged Delight: Mobile Games for Disconnected Players</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-visual-stories-select-the-best-ig-video-editors/"><u>[Updated] In 2024, Crafting Visual Stories Select the Best IG Video Editors</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-simplified-guide-turning-videos-upside-down-with-vlc/"><u>2024 Approved Simplified Guide Turning Videos Upside Down with VLC</u></a></li>
+<li><a href="https://article-posts.techidaily.com/crafting-podcast-descriptions-that-stick-strategies-and-samples-for-2024/"><u>Crafting Podcast Descriptions That Stick Strategies and Samples for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210187012-9781736348116-healing-made-simple/"><u>Healing Made Simple | Free Book</u></a></li>
+<li><a href="https://fox-that.techidaily.com/icloud-photo-sync-issues-heres-how-you-can-fix-them-in-7-ways/"><u>ICloud Photo Sync Issues? Here's How You Can Fix Them in 7 Ways!</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-and-whatsapp-unite-for-stronger-authentication/"><u>Instagram and WhatsApp Unite for Stronger Authentication</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/mending-the-social-web-after-an-exclusion/"><u>Mending the Social Web After an Exclusion</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/monetization-showdown-dailymotion-versus-youtube-for-2024/"><u>Monetization Showdown Dailymotion Versus YouTube for 2024</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/rebuilding-esxi-hosts-without-using-vcenter-two-effective-strategies/"><u>Rebuilding ESXi Hosts Without Using vCenter: Two Effective Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/stabilizing-your-digital-footprint-after-erratic-snapchat-sign-offs/"><u>Stabilizing Your Digital Footprint After Erratic Snapchat Sign-Offs</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-essential-facebook-mobile-adjustments/"><u>Top 10 Essential Facebook Mobile Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-secrets-to-establishing-work-relationships-through-fb/"><u>Unlock Potential: Secrets to Establishing Work Relationships Through FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-am-i-viewed-by-these-specific-fb-ads/"><u>Why Am I Viewed By These Specific FB Ads?</u></a></li>
 </ul></div>
 

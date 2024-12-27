@@ -1,7 +1,7 @@
 ---
 title: How to Tackle Minor Profile Postings Online
-date: 2024-08-15T18:46:05.913Z
-updated: 2024-08-16T18:46:05.913Z
+date: 2024-12-25T17:13:16.419Z
+updated: 2024-12-27T19:03:27.010Z
 tags:
   - facebook
 categories:
@@ -30,16 +30,23 @@ thumbnail: https://thmb.techidaily.com/704c497d76ce3443a342fa34e8883ce74ed2e3eea
 3. Copy their profile link that includes their username.  
 ![Copy link of Facebook user](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Copy-link-of-Facebook-user.JPG)
 4. Open the[Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
 6. Tap**Send** to submit the report for review.
 
  Facebook might need your help or verification proof to proceed with the report. For recovery, the underage account must submit details like official documents or evidence of identity. Failure to do so will result in the account being permanently disabled.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Request Data of Your Underage Child's Facebook Account From Facebook
 
  As a parent, you might allow kids to use Facebook. However, there is always a peak of interest in knowing what the child is doing on the app. Facebook understands parents' mindsets and the need to keep tabs.
@@ -49,12 +56,14 @@ thumbnail: https://thmb.techidaily.com/704c497d76ce3443a342fa34e8883ce74ed2e3eea
 1. Open the[Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
 6. From the following drop-down menu, choose the year your child was born.
 7. Select the attested documentation under the Notarized Statement tab.
@@ -63,14 +72,13 @@ thumbnail: https://thmb.techidaily.com/704c497d76ce3443a342fa34e8883ce74ed2e3eea
 
  Successful verification will process the request and make you eligible for the data featuring your underage child's activities on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Why Should You Report an Underage Facebook Account?
 
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Can Be Addictive
 
@@ -86,15 +94,9 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
@@ -107,22 +109,20 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ###
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Say No to Underage Facebook Accounts
 
  Children 13 and over are allowed to legally use Facebook under some restrictions. Being a responsible adult, you can file and report the accounts that you know are too young to be on Facebook. Facebook will request verification from the reported account and check whether it needs to be permanently deleted or not.
 
  Requesting your child's Facebook data is another option, but verifying that you are their parent/guardian is mandatory.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +131,19 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebooks-visual-storytelling-what-angle-matters-most-for-2024/"><u>[New] Facebook's Visual Storytelling What Angle Matters Most for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-premium-cameras-for-next-level-music-video-production/"><u>[New] In 2024, Premium Cameras for Next-Level Music Video Production</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unlock-potential-the-15-best-tools-for-transforming-fb-revenue-for-2024/"><u>[New] Unlock Potential The 15 Best Tools for Transforming FB Revenue for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-top-picks-optimal-sites-for-downloading-alarm-tones/"><u>[Updated] Top Picks Optimal Sites for Downloading Alarm Tones</u></a></li>
+<li><a href="https://article-helps.techidaily.com/a-critical-look-at-the-leading-economically-friendly-lut-sources-for-2024/"><u>A Critical Look at the Leading, Economically Friendly LUT Sources for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/gratuito-conversor-de-arquivos-video-m4v-on-line-pela-movavi/"><u>Gratuito: Conversor De Arquivos Vídeo M4V On-Line Pela Movavi</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/nt-animation-from-youtube-videos-to-compelling-gifs/"><u>Instant Animation From YouTube Videos to Compelling GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-milestones-six-intriguing-facebook-updates/"><u>Metaverse Milestones: Six Intriguing Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-to-understand-for-better-control-over-your-data-with-facebook/"><u>The Essentials to Understand for Better Control Over Your Data with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-shaping-of-our-world-the-case-of-facebook/"><u>The Social Media Shaping of Our World: The Case of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-sites-designed-for-elders-engagement/"><u>Top 5 Sites Designed for Elders' Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-to-our-memories-in-fbs-absence/"><u>What Happens to Our Memories in FB's Absence?</u></a></li>
+</ul></div>
 

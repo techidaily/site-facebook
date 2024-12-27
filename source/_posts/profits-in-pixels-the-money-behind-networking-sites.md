@@ -1,7 +1,7 @@
 ---
 title: "Profits in Pixels: The Money Behind Networking Sites"
-date: 2024-08-15T18:52:10.761Z
-updated: 2024-08-16T18:52:10.761Z
+date: 2024-12-21T19:59:23.836Z
+updated: 2024-12-27T20:32:16.959Z
 tags:
   - facebook
 categories:
@@ -43,14 +43,12 @@ thumbnail: https://thmb.techidaily.com/615ccea35f3975e2e23f9f8f0c68324d21de4feaa
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 3\. User Data
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
@@ -66,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/615ccea35f3975e2e23f9f8f0c68324d21de4feaa
 ## 4\. Premium Memberships
 
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
@@ -79,13 +78,15 @@ thumbnail: https://thmb.techidaily.com/615ccea35f3975e2e23f9f8f0c68324d21de4feaa
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Transaction Fees and Virtual Products
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
+
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
@@ -94,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/615ccea35f3975e2e23f9f8f0c68324d21de4feaa
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Diversifying
 
  Once a social network grows large enough, it looks to diversify. For those with enough capital, buying other companies is a quick way to do this.
@@ -105,20 +103,21 @@ thumbnail: https://thmb.techidaily.com/615ccea35f3975e2e23f9f8f0c68324d21de4feaa
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## You Can Make Money on Social Media
 
  There's a saying that "if something is free, you are the product." That's especially true in the case of social media. It's not necessarily a bad thing, but it's good to be aware.
 
  If you're looking to make some money of your own with social media, there are plenty of services like TikTok, YouTube, and Snapchat that pay out if you meet certain requirements.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,24 @@ thumbnail: https://thmb.techidaily.com/615ccea35f3975e2e23f9f8f0c68324d21de4feaa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagrams-step-by-step-guide-to-green-room-editing/"><u>[New] In 2024, Instagram's Step-by-Step Guide to Green Room Editing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-complete-handbook-for-saving-movies-on-desktop-laptop-and-android/"><u>[New] The Complete Handbook for Saving Movies on Desktop, Laptop & Android</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-saving-teams-discussions-tech-for-pcmobile-users/"><u>[Updated] 2024 Approved Saving Teams' Discussions Tech for PC/Mobile Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-streamlining-discovery-the-key-to-effective-video-titling/"><u>[Updated] 2024 Approved Streamlining Discovery The Key to Effective Video Titling</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-examine-groups-collaborative-media-on-messenger-for-2024/"><u>[Updated] Examine Group's Collaborative Media on Messenger for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlock-your-potential-with-expert-picked-video-stabilization-tools/"><u>[Updated] Unlock Your Potential with Expert-Picked Video Stabilization Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-thorough-analysis-for-easy-dynamic-range-photography/"><u>2024 Approved Thorough Analysis for Easy Dynamic Range Photography</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/aomei-partition-assistant-la-solution-la-plus-facile-pour-sauvegarder-cloner-et-synchroniser-sous-windows/"><u>AOMEI Partition Assistant : La Solution La Plus Facile Pour Sauvegarder, Cloner Et Synchroniser Sous Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-disinformation-enhanced-penalties-by-social-media/"><u>Debunking Disinformation: Enhanced Penalties by Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-delayed-facebook-watchdogs-withhold-verdict/"><u>Decision Delayed: Facebook Watchdogs Withhold Verdict</u></a></li>
+<li><a href="https://facebook.techidaily.com/declining-connectivity-top-4-user-loss-indicators-on-fb/"><u>Declining Connectivity: Top 4 User Loss Indicators on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-privacy-concerns-expressed-in-60-minutes-report/"><u>Decoding Privacy Concerns Expressed in 60 Minutes Report</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-on-the-horizon-when-can-i-expect-it-from-fb/"><u>E2EE on the Horizon: When Can I Expect It From FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-update-for-facebook-messenger-when-expected/"><u>E2EE Update for Facebook Messenger – When Expected?</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-strategies-for-decreasing-individualized-media-plays/"><u>Efficient Strategies for Decreasing Individualized Media Plays</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-operations-designating-an-admin-on-facebook/"><u>Elevate Operations: Designating an Admin on Facebook</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/top-10-utilities-for-creating-seamless-see-through-icon-backdrops/"><u>Top 10 Utilities for Creating Seamless, See-Through Icon Backdrops</u></a></li>
+</ul></div>
 

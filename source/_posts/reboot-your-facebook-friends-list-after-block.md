@@ -1,7 +1,7 @@
 ---
 title: Reboot Your Facebook Friends List After Block
-date: 2024-12-19T06:02:15.572Z
-updated: 2024-12-21T16:08:21.744Z
+date: 2024-12-20T19:35:56.846Z
+updated: 2024-12-27T20:26:50.609Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Unblock Someone on Facebook
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Blocked Users 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Blocked-Users-2021.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Notice that the**Blocking** page has several types of blocking. Anyone in**Block users** cannot see what you post, tag you, chat with you, or send you a friend request. However, you may still see that person if you're both in a group or use the same game.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -101,16 +101,15 @@ thumbnail: https://thmb.techidaily.com/f51042103ff6c3f87c92a84096e29bdaf9eccd433
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-comprehensive-list-of-ios-compatible-ps2-games/"><u>[New] In 2024, Comprehensive List of iOS-Compatible PS2 Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-visionary-studios-pioneering-next-gen-virtual-realms/"><u>[New] In 2024, Visionary Studios Pioneering Next-Gen Virtual Realms</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-30fps-versus-60fps-best-choice-for-clear-video-capture-for-2024/"><u>[Updated] 30Fps versus 60Fps - Best Choice for Clear Video Capture for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-apeaksofts-screen-tech-revolution-2023-review/"><u>[Updated] Apeaksoft's Screen Tech Revolution 2023 Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-reasons-why-metas-social-media-dominance-should-scare-you/"><u>3 Reasons Why Meta's Social Media Dominance Should Scare You</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-alert-detect-and-deter-uninvited-social-media-access/"><u>Be Alert: Detect and Deter Uninvited Social Media Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/biden-leads-with-social-media-in-covid-19-vax-drive/"><u>Biden Leads with Social Media in COVID-19 Vax Drive</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-tech-sends-strength-to-worldwide-health-crisis-response/"><u>Big Tech Sends Strength to Worldwide Health Crisis Response</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150810152-seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB!</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/transform-your-storytelling-skills-by-building-a-detailed-text-based-rpg-with-chatgpt/"><u>Transform Your Storytelling Skills by Building a Detailed Text-Based RPG with ChatGPT</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/troubleshooting-made-easy-step-by-step-guide-to-fixing-windows-n-10s-error-code-0xc004f213/"><u>Troubleshooting Made Easy: Step-by-Step Guide to Fixing Windows N 10'S Error Code 0xC004F213</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-sculpted-smiles-and-eyes-introducing-facial-movement-with-motion-blur-in-picsart/"><u>[New] In 2024, Sculpted Smiles and Eyes Introducing Facial Movement with Motion Blur in Picsart</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aster-the-art-of-recording-youtube-videos-without-spending-for-2024/"><u>[New] Master the Art of Recording YouTube Videos Without Spending for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-filming-made-simple-steps-for-pcs-iphones-and-macbooks/"><u>[Updated] 2024 Approved Filming Made Simple Steps for PCs, iPhones & MacBooks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/audio-aesthetics-in-whatsapp-updates/"><u>Audio Aesthetics in WhatsApp Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-social-media-status-with-facebook/"><u>Enhancing Your Social Media Status with Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intel-driven-two-14-inch-displays-experience-the-acemagic-x1-laptop-for-under-900/"><u>Intel Driven, Two 14-Inch Displays: Experience the Acemagic X1 Laptop for Under $900</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-trail-mapping-a-comprehensive-exploration-of-facebook-footprint/"><u>Social Trail Mapping: A Comprehensive Exploration of Facebook Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-strategies-for-formulating-fb-events/"><u>Stepwise Strategies for Formulating FB Events</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-validity-of-vibration-reduction-in-adobes-world/"><u>The Validity of Vibration Reduction in Adobe's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-stop-everyone-notifications/"><u>Tutorial: Stop @Everyone Notifications</u></a></li>
 </ul></div>
 

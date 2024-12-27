@@ -1,7 +1,7 @@
 ---
 title: "Instagram Urges: Step Back From Screen, Embrace Life"
-date: 2024-08-15T18:47:57.343Z
-updated: 2024-08-16T18:47:57.343Z
+date: 2024-12-20T20:46:40.633Z
+updated: 2024-12-27T18:08:25.045Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a
 ## Instagram Urges: Step Back From Screen, Embrace Life
 
  Instagram wants you to take it easy on its app by decreasing the amount of time you spend online. The Meta-owned social media platform is launching a new "Take a Break" feature, which will remind users to take a break from using the app from time to time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Instagram Wants You to "Take a Break"
 
@@ -32,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Instagram Wants You to "Take a Break"
 
  Meta has been facing increasing pressure from lawmakers to make its apps safer for users' mental health.
@@ -53,14 +58,9 @@ thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Instagram's Opt-In Feature Be Effective?
 
  Because Take a Break is an optional feature, even if users do opt-in, they can still choose not to make use of it. Perhaps it would stand a better chance at success if users were defaulted to it, or if it locked younger users out for a short while, thereby forcing them to close or exit the app temporarily.
@@ -69,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a
 
  Considering how rushed Instagram's Take a Break feature seems, and how open it is in terms of getting users to step away from the app, it is unlikely that it will make any significant impact.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +82,26 @@ thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-from-idea-to-reality-examining-mycams-video-recorder-performance/"><u>[Updated] 2024 Approved From Idea to Reality Examining MyCam’s Video Recorder Performance</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-how-to-stream-on-discord-step-by-step-guide/"><u>[Updated] 2024 Approved How to Stream on Discord [Step-by-Step Guide]</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-understanding-transient-suppression-via-audacity/"><u>[Updated] 2024 Approved Understanding Transient Suppression via Audacity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-from-raw-footage-to-mov-windows-10-filming-techniques/"><u>[Updated] In 2024, From Raw Footage to MOV Windows 10 Filming Techniques</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/digging-deep-into-windows-11-its-inner-workings-revealed/"><u>Digging Deep Into Windows 11: Its Inner Workings Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-wave-of-feed-personalization/"><u>Facebook's New Wave of Feed Personalization</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-accelerates-text-interaction-new-tools-transforming-user-experience-in-messenger-and-instagram-apps/"><u>FB Accelerates Text Interaction: New Tools Transforming User Experience in Messenger and Instagram Apps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-s23-fe-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy S23 FE Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-dead-iphone-14-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover data from dead iPhone 14 | Stellar</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>In 2024, Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-facebooks-impending-name-evolution/"><u>Insights Into Facebook’s Impending Name Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/leak-exposed-decoding-the-underlying-patterns-of-facebook-data/"><u>Leak Exposed: Decoding the Underlying Patterns of Facebook Data</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/metaspace-contrasted-with-cosmic-universe-for-2024/"><u>Metaspace Contrasted with Cosmic Universe for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-maze-delete-your-facebook-on-android/"><u>Navigate The Maze: Delete Your Facebook On Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-everyone-listing-full-groups-on-fb-posts/"><u>Spotlight Everyone: Listing Full Groups on FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-data-protection-exploring-new-features-in-facebooks-privacy-hub/"><u>Tailored Data Protection: Exploring New Features in Facebook's Privacy Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-creating-engrossing-digital-biographies/"><u>The Essentials of Creating Engrossing Digital Biographies</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-users-excluded-from-your-fb-circle/"><u>Tracking Down Users Excluded From Your FB Circle</u></a></li>
+<li><a href="https://win-able.techidaily.com/1726029964594-dvd/"><u>ハックでDVDにビデオをエミュレート！最適な無料・有料ツール比較ガイド</u></a></li>
+</ul></div>
 

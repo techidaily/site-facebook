@@ -1,7 +1,7 @@
 ---
 title: Real-Time Notifications for Lost Chat Images on Messenger
-date: 2024-08-15T18:47:03.119Z
-updated: 2024-08-16T18:47:03.119Z
+date: 2024-12-21T17:05:24.220Z
+updated: 2024-12-27T18:26:33.627Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/bab43c6ebbd68c7b02aa8931b44c8b3c5cf156c7a
  Meta has announced updates for end-to-end encrypted chats on Facebook Messenger. Default end-to-end encryption won't arrive on Messenger until sometime in 2023, but now you can opt-in and take advantage of the added features.
 
  The most noteworthy development is the addition of a control to its disappearing messages that notifies you if your chat partner takes a screenshot of your conversation. Here's what you need to know.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Messenger Now Has Full End-to-End Encryption (E2EE)
 
@@ -36,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/bab43c6ebbd68c7b02aa8931b44c8b3c5cf156c7a
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -49,18 +54,17 @@ thumbnail: https://thmb.techidaily.com/bab43c6ebbd68c7b02aa8931b44c8b3c5cf156c7a
 5. Type a message as you normally would and hit**Send** .
 
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -68,22 +72,20 @@ Close
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Updates to Messenger
 
  Besides the opt-in end-to-end encryption feature, encrypted voice and video calls are also now available to everyone. Users can also reply to specific messages in their end-to-end encrypted chats, either by long pressing or swiping to reply. In addition, typing indicators have been added, so you can now see when others are typing.
 
  Meta has also added Verified Badges to help identify authentic accounts and have meaningful interactions. The new Save Media feature will let you save a video or image by long-pressing any media you receive. And lastly, the Video edits feature will enable you to edit a photo or video from your gallery before sending it, meaning you can add stickers, text, or crop and edit audio (for videos).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,4 +94,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-streamlining-massive-video-transfers-iphone-mac-edition/"><u>[New] In 2024, Streamlining Massive Video Transfers IPhone-Mac Edition</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-hacking-tiktoks-video-pace-efficiently-for-2024/"><u>[Updated] Hacking TikTok's Video Pace Efficiently for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-back-up-and-distribute-your-interactions-the-best-apps-for-syncing-chatgpt-history/"><u>How to Back Up & Distribute Your Interactions: The Best Apps for Syncing ChatGPT History</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-echoes-unleashed-exploring-sound-with-mac/"><u>In 2024, Echoes Unleashed Exploring Sound with Mac</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-economic-aspects-of-making-a-music-video/"><u>In 2024, The Economic Aspects of Making a Music Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-vk-a-journey-through-russias-internet-culture/"><u>Inside VK: A Journey Through Russia's Internet Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-conversation-feature-to-shut-down-in-december/"><u>Instagram’s Conversation Feature to Shut Down in December</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-markets-unveiling-best-biz-platforms/"><u>Mastering the Markets: Unveiling Best Biz Platforms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-the-utility-of-meta-ai-in-social-platforms/"><u>Pondering the Utility of Meta AI in Social Platforms</u></a></li>
+<li><a href="https://common-error.techidaily.com/restored-mic-functionality-in-discord/"><u>Restored Mic Functionality in Discord</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silver-lining-in-the-social-web-discovering-9-reasons-to-engage/"><u>The Silver Lining in the Social Web: Discovering 9 Reasons to Engage</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-samsung-galaxy-f15-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Samsung Galaxy F15 5G Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/unifying-your-gaming-experience-and-online-presence-via-xbox/"><u>Unifying Your Gaming Experience and Online Presence via Xbox</u></a></li>
+</ul></div>
 

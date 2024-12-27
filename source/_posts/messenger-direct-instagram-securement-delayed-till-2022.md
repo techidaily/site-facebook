@@ -1,7 +1,7 @@
 ---
 title: Messenger, Direct Instagram Securement Delayed 'Till 2022
-date: 2024-08-15T18:50:52.837Z
-updated: 2024-08-16T18:50:52.837Z
+date: 2024-12-23T18:21:01.443Z
+updated: 2024-12-27T19:29:10.586Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/2009bc3e2844a72a35aeb8da54c7e944a8b3e4812
 
  Facebook has now promised that it will roll out end-to-end encryption for Messenger and Instagram Direct "in 2022 at the earliest."
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Has Been Slow in Adding Default Chat Encryption
 
  Facebook first promised to add end-to-end encryption to Instagram Direct and Messenger in 2019\. However, it has been taking its own sweet time for this, and it is even testing various Messenger features that won't work with end-to-end encryption.
@@ -34,13 +38,15 @@ thumbnail: https://thmb.techidaily.com/2009bc3e2844a72a35aeb8da54c7e944a8b3e4812
  Related: [What Is End-to-End Encryption?](https://www.makeuseof.com/what-is-end-to-end-encryption/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Messaging Apps With End-to-End Encryption Have Soared in Popularity
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/messenger-on-a-phone.png)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Messaging services with end-to-end encryption have surged in popularity in recent times. WhatsApp, iMessage, and Signal are among the major messaging platforms with end-to-end encryption support.
@@ -53,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/2009bc3e2844a72a35aeb8da54c7e944a8b3e4812
 
  If you value your privacy or want a more secure platform for your conversations, check out[the best Facebook Messenger alternatives for private chats](https://www.makeuseof.com/tag/facebook-messenger-alternatives/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -69,4 +72,24 @@ thumbnail: https://thmb.techidaily.com/2009bc3e2844a72a35aeb8da54c7e944a8b3e4812
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-professional-screenshot-and-recorder-win10-edition/"><u>[New] Professional Screenshot & Recorder, Win10 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-from-newcomer-to-notable-nominee-nudging-numbers-naturally/"><u>[Updated] 2024 Approved From Newcomer to Notable Nominee Nudging Numbers Naturally</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-monetizing-content-how-much-adsense-pays-you-per-thousand-video-hits/"><u>2024 Approved Monetizing Content How Much AdSense Pays You Per Thousand Video Hits?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-crypto-stability-the-essence-of-stablecoins/"><u>Decoding Crypto Stability: The Essence of Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-digital-dialogues-busting-10-popular-facebook-myths/"><u>Demystifying Digital Dialogues: Busting 10 Popular Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-redefined-from-facebook-to-future-meta/"><u>Digital Dialogues Redefined: From Facebook to Future Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-frontiers-expanded-by-facebooks-advanced-moderation-tech/"><u>Digital Frontiers Expanded by Facebook's Advanced Moderation Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/directing-digital-discourse-navigating-the-new-terrain-of-group-management-in-facebook/"><u>Directing Digital Discourse: Navigating the New Terrain of Group Management in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-fbs-2fa-without-device-access/"><u>Disable FB's 2FA without Device Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-4-game-changing-business-meta-solutions/"><u>Discover 4 Game-Changing Business Meta Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-whats-hot-on-fb-lately-streamed/"><u>Discovering What's Hot On FB: Lately Streamed</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-apple-iphone-xs-max-by-drfone-ios/"><u>How to Bypass iCloud Lock on Apple iPhone XS Max</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-asus-rog-phone-8-pro-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Asus ROG Phone 8 Pro by Name | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-mastering-the-art-of-free-yet-striking-image-acquisition/"><u>In 2024, Mastering the Art of Free, Yet Striking Image Acquisition</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722975249044-install-official-logitech-g29-wheel-drivers-on-windows-systems-latest-versions-available/"><u>Install Official Logitech G29 Wheel Drivers on Windows Systems - Latest Versions Available</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/resolving-hp-beats-sound-card-issues-on-windows-10-8-and-7-a-comprehensive-fix-guide/"><u>Resolving HP Beats Sound Card Issues on Windows 10, 8 & 7 – A Comprehensive Fix Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-sound-interruptions-in-windows-11/"><u>Troubleshooting Sound Interruptions in Windows 11</u></a></li>
+</ul></div>
 

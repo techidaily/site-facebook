@@ -1,7 +1,7 @@
 ---
 title: Securing Personal Info with Facebook’s Updated Privacy Options
-date: 2024-08-15T18:49:13.899Z
-updated: 2024-08-16T18:49:13.899Z
+date: 2024-12-21T18:18:19.641Z
+updated: 2024-12-27T17:50:23.147Z
 tags:
   - facebook
 categories:
@@ -38,8 +38,9 @@ Here's how:
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's Privacy Center at a Glance
 
  The Facebook Privacy Center provides helpful information on five major categories, each containing specific information about Meta's privacy policy.
@@ -53,25 +54,23 @@ Here's how:
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
@@ -83,8 +82,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why You Should Use Facebook's Privacy Center
 
  If you have access to the Privacy Center, it may be worth your while to spend some time familiarizing yourself with how Meta handles and processes your data across its family of apps.
@@ -98,22 +98,20 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Protect Your Privacy
 
  Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
 
  Considering Facebook’s privacy history and its recent objections to iOS ad tracking changes, the new Privacy Center appears to be a small step in the right direction. We can only hope that it gets better.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +120,24 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ngaging-stories-expanding-audiences-top-three-methods-for-2024/"><u>[New] Engaging Stories, Expanding Audiences Top Three Methods for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-game-on-excavating-elite-escape-chamber-quests/"><u>[Updated] In 2024, Game On Excavating Elite Escape Chamber Quests</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-masterclass-in-creating-dynamic-facebook-slideshows/"><u>[Updated] Masterclass in Creating Dynamic Facebook Slideshows</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/complete-iphone-support-suite-your-ultimate-ios-issue-solver/"><u>Complete iPhone Support Suite: Your Ultimate iOS Issue Solver</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-powerful-features-the-case-for-facebook-events/"><u>Harnessing Powerful Features: The Case for Facebook Events</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-screenshot-on-dell-laptop/"><u>How to Screenshot on Dell Laptop</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-honor-v-purse-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Honor V Purse Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-results-selective-lite-android-options/"><u>Instant Results: Selective Lite Android Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-ditches-fbs-facial-tracking-a-closer-look-needed/"><u>Meta Ditches FB's Facial Tracking: A Closer Look Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-privacy-features-versus-facebook-in-oculus-quest/"><u>Meta's Privacy Features Versus Facebook in Oculus Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-away-from-sophisticated-social-trickery/"><u>Navigating Away From Sophisticated Social Trickery</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimized-content-for-work-opportunity-postings-on-social-media/"><u>Optimized Content for Work Opportunity Postings on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-evolution-the-mysterious-journey-to-a-facebook-watch/"><u>Silent Evolution: The Mysterious Journey to a Facebook Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-friendship-blending-facebook-pics-into-whatsapp-chats/"><u>The Art of Friendship: Blending Facebook Pics Into WhatsApp Chats</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-beginners-roadmap-to-google-maps-on-pc/"><u>The Beginner's Roadmap to Google Maps on PC</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-technical-world-the-ultimate-hardware-compendium/"><u>Tom's Technical World: The Ultimate Hardware Compendium</u></a></li>
+<li><a href="https://some-tips.techidaily.com/windows-11-creators-update-download-stuck-and-no-sound-issues-fixed/"><u>Windows 11 Creators Update: Download Stuck & No Sound Issues [Fixed]</u></a></li>
+</ul></div>
 

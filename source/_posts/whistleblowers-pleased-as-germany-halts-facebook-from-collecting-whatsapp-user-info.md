@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-12-19T20:30:05.462Z
-updated: 2024-12-21T21:50:15.210Z
+date: 2024-12-23T18:50:01.314Z
+updated: 2024-12-27T20:04:24.573Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,21 +81,15 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discovering-best-paid-and-free-srt-translation-tools/"><u>[New] 2024 Approved Discovering Best Paid & Free SRT Translation Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-unleash-creativity-top-screencast-tools-recommended-by-experts/"><u>[New] Unleash Creativity Top Screencast Tools Recommended by Experts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-chromesafari-blank-screens-here-are-9-tips-to-restore-your-video/"><u>[Updated] Chrome/Safari Blank Screens? Here Are 9 Tips to Restore Your Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-reasons-you-should-be-worried-about-the-facebook-metaverse/"><u>3 Reasons You Should Be Worried About the Facebook Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-reasons-social-media-killed-online-forums/"><u>6 Reasons Social Media Killed Online Forums</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/access-the-latest-version-of-amd-radeon-drivers-for-windows-8-without-cost/"><u>Access the Latest Version of AMD Radeon Drivers for Windows 8 Without Cost</u></a></li>
-<li><a href="https://facebook.techidaily.com/adaptive-timing-for-profile-picture-evolution/"><u>Adaptive Timing for Profile Picture Evolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/basketball-clubs-refuse-social-media-access/"><u>Basketball Clubs Refuse Social Media Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/bringing-life-to-chats-with-augmented-reality-updates-from-fb/"><u>Bringing Life to Chats with Augmented Reality Updates From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-securityfbcom/"><u>Checking the Legitimacy of FB's Safety Mail Address: security@fb.com</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/commanding-machine-consciousness-towards-goodness/"><u>Commanding Machine Consciousness Towards Goodness</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-prevent-doom-eternal-from-suddenly-crashing/"><u>How to Prevent Doom Eternal From Suddenly Crashing?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-itel-p55plus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Itel P55+ to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/1725285882266-iphonedvd/"><u>IPhoneにフィットするDVDの視聴:様々な手段で簡単に楽しむ方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154597437-secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/top-10-video-restoration-tools-ultimate-guide-for-windows-and-mac-users/"><u>Top 10 Video Restoration Tools: Ultimate Guide for Windows & Mac Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-essential-simple-shelter-strategies-in-mc/"><u>[Updated] In 2024, Essential Simple Shelter Strategies in MC</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-premium-mac-capture-software-substitutes-for-bandicam-for-2024/"><u>[Updated] Premium Mac Capture Software Substitutes for Bandicam for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-a38-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Oppo A38 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-motorola-edge-40-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Motorola Edge 40 Pro For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-x7b-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor X7b to New Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-narratives-identifying-honest-and-hollow-profiles/"><u>Navigating Online Narratives: Identifying Honest and Hollow Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/shop-online-live-the-experience-on-fb-fridays/"><u>Shop Online, Live the Experience on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/sidestep-facebook-snares-learn-about-these-14-frequent-frauds/"><u>Sidestep Facebook Snares: Learn About These 14 Frequent Frauds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-mp4-video-encoder-professionelle-tipps-zur-komprimierung-von-mp4-dateien/"><u>Top MP4 Video Encoder - Professionelle Tipps Zur Komprimierung Von MP4 Dateien</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-facebook-life-under-siege-find-the-signs/"><u>Your Facebook Life Under Siege? Find the Signs</u></a></li>
 </ul></div>
 

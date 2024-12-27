@@ -1,7 +1,7 @@
 ---
 title: Why Is Meta Phasing Out Facebook's Face Recognition Tech?
-date: 2024-08-15T18:46:08.099Z
-updated: 2024-08-16T18:46:08.099Z
+date: 2024-12-23T19:30:33.561Z
+updated: 2024-12-27T16:25:27.107Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
 
  Now, Meta is deleting all these profiles. Let us examine what this means and why Meta is doing it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Facial Recognition?
 
 ![Pixabay facial recognition image of man's face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pixabay-facial-recognition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facial recognition is a piece of software that recognizes a human face by mapping its features from a photograph or video. The most important features are the distance between the eyes and the distance from forehead to chin.
 
@@ -36,13 +44,15 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
@@ -58,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
  Meta is not abandoning facial recognition. It will continue to use it, but under a narrower set of circumstances.
@@ -70,14 +81,11 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,4 +94,26 @@ thumbnail: https://thmb.techidaily.com/8852f9f0dff99dd98034c53ca9e7b84a75b979ac3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-embracing-change-adaptability-as-the-new-normal-in-business/"><u>[New] 2024 Approved Embracing Change Adaptability as the New Normal in Business</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-essential-youtube-equipment-for-starting-your-channel-what-do-you-really-need/"><u>[New] 2024 Approved Essential YouTube Equipment For Starting Your Channel - What Do You Really Need?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-innovative-image-integration-software-for-visual-enthusiasts-for-2024/"><u>[New] Innovative Image Integration Software for Visual Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-top-10-affordable-360-degree-cameras/"><u>[Updated] Top 10 Affordable 360 Degree Cameras</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/boost-your-workspace-efficiency-with-this-years-most-exceptional-multifaceted-office-gadget-zdnet/"><u>Boost Your Workspace Efficiency with This Year's Most Exceptional Multifaceted Office Gadget | ZDNET</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/establish-a-low-cost-chatbot-clone-for-pc-users/"><u>Establish a Low-Cost Chatbot Clone for PC Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adds-new-messaging-features-to-messenger-and-instagram/"><u>Facebook Adds New Messaging Features to Messenger and Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/googles-major-stories-of-the-year-a-review/"><u>Google’s Major Stories of the Year: A Review</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oppo-k11x-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Oppo K11x Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-vivo-t2-pro-5g-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Vivo T2 Pro 5G? Try These Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/misleading-interfaces-and-your-data-vulnerability/"><u>Misleading Interfaces and Your Data Vulnerability</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-avs-video-editor-review-pros-cons-and-features-for-2024/"><u>New AVS Video Editor Review Pros, Cons, and Features for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponement-of-whatsapps-scheduled-privacy-update-rollout/"><u>Postponement of WhatsApp's Scheduled Privacy Update Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/scheduling-content-on-facebook-successfully/"><u>Scheduling Content on Facebook Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/significant-setbacks-biggest-tech-fails-of-2022/"><u>Significant Setbacks: Biggest Tech Fails of 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-launching-thrilling-online-celebrations-via-facebook/"><u>Strategies for Launching Thrilling Online Celebrations via Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-edge-of-innovation-secure-these-7-must-have-devices-for-2024/"><u>The Edge of Innovation Secure These 7 Must-Have Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shift-from-news-feed-unveiling-facebooks-intent/"><u>The Shift From News Feed: Unveiling Facebook’s Intent</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-web-photo-rights-and-regulations/"><u>Understanding Web Photo Rights and Regulations</u></a></li>
+</ul></div>
 

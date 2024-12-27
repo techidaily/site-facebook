@@ -1,7 +1,7 @@
 ---
 title: Find and Explore FB's Latest Views
-date: 2024-08-15T18:53:08.123Z
-updated: 2024-08-16T18:53:08.123Z
+date: 2024-12-25T18:51:15.532Z
+updated: 2024-12-27T16:45:14.712Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/749e7224dc77351db9654f3d5b625401a4538e3e0
 4. Select the**Videos you've watched** option.  
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
@@ -41,8 +45,9 @@ That's it. Here you will find all the recently watched videos.
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
@@ -50,17 +55,20 @@ That's it. Here you will find all the recently watched videos.
 1. Open the Activity Log window of your Facebook profile.
 2. Click the**Date** option in the left sidebar.  
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
@@ -68,11 +76,12 @@ That's it. Here you will find all the recently watched videos.
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -90,15 +99,8 @@ Close
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -111,14 +113,11 @@ Close
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-creating-captivating-content-for-instagram/"><u>[New] Creating Captivating Content for Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-filmmakers-handbook-to-superior-voice-overseeing/"><u>[New] The Filmmaker's Handbook to Superior Voice Overseeing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-capturing-motion-spectacle-with-polaroid-camplus-cube/"><u>[Updated] Capturing Motion Spectacle with Polaroid Cam+ Cube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-enhance-video-subtitles-with-these-essential-online-resources-and-apps/"><u>[Updated] Enhance Video Subtitles with These Essential Online Resources & Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-experts-choice-top-16-no-cost-viewers-for-2024/"><u>[Updated] Expert's Choice Top 16 No-Cost Viewers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-smart-social-networking-balancing-favorites-and-blocks-on-facebook/"><u>A Guide to Smart Social Networking: Balancing Favorites & Blocks on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-sheryl-sandberg-effect-at-facebook/"><u>Analyzing the Sheryl Sandberg Effect at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-forum-messages-lasting-impressions/"><u>Are Forum Messages Lasting Impressions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/battling-fake-news-facebook-introduces-stricter-rules/"><u>Battling Fake News: Facebook Introduces Stricter Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-unpacking-metamate-meanings/"><u>Behind-The-Scenes: Unpacking 'Metamate' Meanings</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-productivity-and-peace-using-facebooks-reminder-feature/"><u>Boost Productivity and Peace Using Facebook’s Reminder Feature</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-poco-x5-pro-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Poco X5 Pro Phones? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-iphone-14-plus-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From iPhone 14 Plus Smoothly</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150150084-panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing.</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149918094-protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls.</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-update-issues-how-to-fix-windows-11-freezing-during-installation/"><u>Resolving Update Issues: How to Fix Windows 11 Freezing During Installation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/stealthy-operations-for-windows-zone-visibility/"><u>Stealthy Operations for Windows Zone Visibility</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Friend Quotas, Not Connections: Prioritize Safety Online"
-date: 2024-08-15T18:46:17.053Z
-updated: 2024-08-16T18:46:17.053Z
+date: 2024-12-24T18:22:55.349Z
+updated: 2024-12-27T20:45:22.942Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Impairment of the Privacy of Your Friends
 
 ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
@@ -44,6 +41,10 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Access to Harmful Links
 
  Over the years, people have exploited Facebook to hack accounts into other people's personal space. Everyone is aware of[phishing and hacking scams](https://www.makeuseof.com/types-of-phishing-attack/) , and for that reason, befriending unknown people might be pretty risky.
@@ -51,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
  They can send you harmful links through Messenger or post them on your timeline. Most people click them out of their naivety and curiosity and give their personal information to the so-called friend.
 
  Unless the links you receive are from people you know, there is no point in clicking them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Personal Safety at Risk
 
@@ -60,12 +65,13 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Become Habitual of Isolation From Family
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
@@ -73,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  Most people who become used to online chats lack the confidence to express themselves in front of others. Always take time to interact with people you know in real life to stop this risky contact with unknown people.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## 6\. Lack of Common Things
 
  Adding your loved ones on Facebook means that you have mutual interests or relations. This creates a fun and engaging environment where everyone feels safe.
@@ -85,9 +87,6 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
@@ -98,23 +97,21 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  Sometimes it is possible to find genuine people on Facebook who care for you, but you never know who that is.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Possibility of Communication Gap
 
  Even if you become friends with unknown people on Facebook, there is a noticeable lack of communication. This communication gap results in temporary friendships and no mutual respect for one another.
 
  You never know when the other person will get rude or stop respecting you, so it's better to stay away from strangers on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## 9\. Chances of Addiction
 
 [Social media addiction is a real thing](https://www.makeuseof.com/what-is-social-media-addiction/) . It can be so distracting that you might waste a lot of time. Once you add strangers on Facebook, they try to chat and interact with you.
 
  This can be a highly destructive activity that keeps you away from completing daily tasks. Even if you give your trustworthy online friends time, it is essential to maintain a balance between online and real-life relations.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Increased Chances of Getting Scammed
 
@@ -122,20 +119,21 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
  Facebook is the most popular platform of all time. It allows you to interact with others and make friends online. Sometimes, interacting with strangers and adding them to your profile might not be as good as it sounds. Other than getting your personal space invaded, there is also a possibility of getting scammed.
 
  Strangers can also hack your personal information like address, location, and pictures. People can become addicted to using social media, which results in damaged physical and mental health. Hence, you should avoid adding strangers unless they come from a trustworthy source.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +142,20 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-cinematographer-hub/"><u>[New] In 2024, Digital Cinematographer Hub</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-decoding-earnings-for-content-producers-on-short-form-platform/"><u>2024 Approved Decoding Earnings for Content Producers on Short-Form Platform</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-mastering-mini-gaming-memories-learn-to-record-minecraft-on-apple-devices/"><u>2024 Approved Mastering Mini-Gaming Memories Learn to Record Minecraft on Apple Devices</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-itel-p55-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-twitter-the-dual-streaming-of-nba-events/"><u>Facebook, Twitter: The Dual Streaming of NBA Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-virtual-frontier-prevent-fake-login-attempts-on-fb/"><u>Fortify Your Virtual Frontier: Prevent Fake Login Attempts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-permanently-delete-your-facebook-account/"><u>How to Permanently Delete Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-gen-community-mapping-launched-by-facebook/"><u>Next-Gen Community Mapping Launched by Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/origin-wont-go-online-fixed/"><u>Origin Won’t Go Online [FIXED]</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-scrapping-how-to-clear-your-profiles-blemishes/"><u>Social Media Scrapping: How to Clear Your Profile's Blemishes</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/step-by-step-guide-printing-your-images-perfectly-with-yl-computing-solutions/"><u>Step-by-Step Guide: Printing Your Images Perfectly with YL Computing Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-shielded-posts-in-fb-communities/"><u>The Ultimate Guide to Shielded Posts in FB Communities</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Infinix GT 10 Pro | Dr.fone</u></a></li>
+</ul></div>
 

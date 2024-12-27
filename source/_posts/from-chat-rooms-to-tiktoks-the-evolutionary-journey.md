@@ -1,7 +1,7 @@
 ---
 title: "From Chat Rooms to TikToks: The Evolutionary Journey"
-date: 2024-12-21T06:49:13.799Z
-updated: 2024-12-21T16:19:14.000Z
+date: 2024-12-24T19:22:14.373Z
+updated: 2024-12-27T18:53:50.852Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. A Lack of Innovation From Forum Owners
 
  Online is a fast-moving place, and while social media tends to adapt and change with the times, forums remain fairly static. Most forums that continue to see regular use still run on myBB or phpBB (amongst other software), which—while solid and likely familiar to you—is fairly old software.
@@ -35,19 +31,23 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Social Media Is Designed to be Attention-Grabbing
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Forums Seem Outdated
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
@@ -105,17 +105,20 @@ thumbnail: https://thmb.techidaily.com/3ca289f4707af5e0ebcc0fe8b2f301906af8c014f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-11-free-youtube-video-rippers-to-download-youtube-videos-for-2024/"><u>[New] 11 FREE YouTube Video Rippers to Download YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-easy-peasy-automating-the-repetitive-view-of-youtube-videos/"><u>[Updated] 2024 Approved Easy Peasy Automating the Repetitive View of YouTube Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-quick-start-guide-easy-steps-for-effective-video-calling-on-zoom/"><u>[Updated] 2024 Approved Quick Start Guide Easy Steps for Effective Video Calling on Zoom</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/best-tools-for-sub-to-srt-transition-rated-8-through-17/"><u>Best Tools for Sub to SRT Transition, Rated #8 Through #17</u></a></li>
-<li><a href="https://facebook.techidaily.com/bringing-social-networks-into-our-daily-shopping-experience/"><u>Bringing Social Networks Into Our Daily Shopping Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-policy-insight-hub-a-step-towards-greater-clarity/"><u>Facebook's Policy Insight Hub: A Step Towards Greater Clarity</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-vivo-s17-easily-by-drfone-android/"><u>How To Unlock a Vivo S17 Easily?</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-elevate-your-gaming-experience-with-fbx-recording-tips/"><u>In 2024, Elevate Your Gaming Experience with FBX Recording Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/postponement-of-whatsapps-new-privacy-agreement-deadline/"><u>Postponement of WhatsApp's New Privacy Agreement Deadline</u></a></li>
-<li><a href="https://fox-place.techidaily.com/resolve-your-iphones-activation-troubles-after-latest-ios-versions/"><u>Resolve Your iPhone's Activation Troubles After Latest iOS Versions</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/sharpening-recording-quality-by-removing-borders/"><u>Sharpening Recording Quality by Removing Borders</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-tension-with-social-media-networks/"><u>Unraveling the Tension with Social Media Networks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-luminous-android-video-editing-hacks/"><u>[Updated] In 2024, Luminous Android Video Editing Hacks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pinnacle-software-choices-for-tweeting-vids/"><u>[Updated] In 2024, Pinnacle Software Choices for Tweeting Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-privacy-editing-child-account-on-messenger-kids/"><u>Enhancing Privacy: Editing Child Account on Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-will-reels-redefine-user-engagement-against-tiktok/"><u>Facebook, Will Reels Redefine User Engagement Against TikTok?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-accelerating-or-slowing-down-video-playback-on-insta-stories/"><u>In 2024, Accelerating or Slowing Down Video Playback on Insta Stories</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-apple-iphone-se-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Photos from Apple iPhone SE to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/kann-adobe-premiere-pro-audio-video-coding-av1-fur-importe-und-exporte-unterstutzen/"><u>Kann Adobe Premiere Pro Audio-Video Coding (AV1) Für Importe Und Exporte Unterstützen?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pro-tips-iphone-in-the-dark-spotlight-for-2024/"><u>Pro Tips IPhone in the Dark Spotlight for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-fixes-for-clearing-comments-on-facebook-posts/"><u>Quick Fixes for Clearing Comments on Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platform-security-tips/"><u>Social Platform Security Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-posts-smart-autocaption-features-for-users/"><u>Transforming Facebook Posts: Smart AutoCaption Features for Users</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ultimate-guide-to-selecting-a-premium-vpn-for-mac-devices-in-depth-expert-analysis-and-ratings/"><u>Ultimate Guide to Selecting a Premium VPN for Mac Devices: In-Depth Expert Analysis and Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-permits-more-than-one-profile-linked-to-a-single-id/"><u>Why Facebook Permits More than One Profile Linked to a Single ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/year-in-review-unpacking-this-years-favorite-podcasts/"><u>Year in Review: Unpacking This Year's Favorite Podcasts</u></a></li>
 </ul></div>
 

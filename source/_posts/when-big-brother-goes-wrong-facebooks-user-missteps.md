@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2024-12-17T04:55:04.469Z
-updated: 2024-12-22T05:40:59.185Z
+date: 2024-12-20T17:05:07.079Z
+updated: 2024-12-27T20:05:55.749Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Beacon Tracking
 
  Facebook Beacon was launched to show targeted ads to users from third-party websites. It also encouraged people to share their activities with friends as well. Facebook Beacon saved the data of users' spending habits to[show targeted ads on Facebook](http://www.makeuseof.com/why-are-you-seeing-certain-ads-on-facebook/) —nothing different from what happens now.
@@ -34,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -61,16 +61,12 @@ Close
  So, will Facebook take some action and bring creativity to the table? Maybe, maybe not. Only time can tell.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Data Harvesting Through Quizzes and Third-Party Apps
 
 ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
 
@@ -82,19 +78,23 @@ Close
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. The Spread of Fake News
 
 ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 
  This can directly relate to Facebook's ability to promote a particular post in users' feeds. Unsurprisingly, many authoritative figures use this failure to meet their political and personal ambitions.
 
  Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Failure to Moderate in Developing Countries
 
@@ -131,24 +131,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-avoid-losing-tiktok-videos-prevent-accidental-renewals/"><u>[New] Avoid Losing TikTok Videos Prevent Accidental Renewals</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-the-ultimate-guide-to-choosing-between-gopro-and-yi-for-2024/"><u>[New] The Ultimate Guide to Choosing Between GoPro and Yi for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-mastering-screen-shots-on-windows-machines/"><u>[Updated] 2024 Approved Mastering Screen Shots on Windows Machines</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726224310159-mp4avi-movavi/"><u>網路直接無成本改變MP4到AVI格式 - 使用Movavi自動化解決方案</u></a></li>
-<li><a href="https://facebook.techidaily.com/camouflaging-online-supports-with-finesse/"><u>Camouflaging Online Supports with Finesse</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-an-unadulterated-newsfeed-experience-on-facebook/"><u>Creating an Unadulterated Newsfeed Experience on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-hidden-gems-in-your-facebook-archive/"><u>Discovering Hidden Gems in Your Facebook Archive</u></a></li>
-<li><a href="https://facebook.techidaily.com/exclude-friends-on-facebooks-nostalgic-journey/"><u>Exclude Friends on Facebook’s Nostalgic Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-latest-feature-ray-ban-stories-functions-and-pricing/"><u>Facebook's Latest Feature: Ray-Ban Stories - Functions & Pricing</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo Y100i? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovation-in-oversight-a-look-at-facebooks-advanced-moderation-tools/"><u>Innovation in Oversight: A Look at Facebook's Advanced Moderation Tools</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/inside-scoop-on-the-next-gen-foldable-iphone-expected-price-points-and-tech-specifications-released/"><u>Inside Scoop on the Next-Gen Foldable iPhone – Expected Price Points & Tech Specifications Released!</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/iphone-and-ipad-video-powerhouses-the-ultimate-list-of-10/"><u>IPhone & iPad Video Powerhouses The Ultimate List of 10</u></a></li>
-<li><a href="https://fox-access.techidaily.com/navigating-win10s-video-call-ecosystem-a-guide-to-using-zoom-for-2024/"><u>Navigating Win10's Video Call Ecosystem A Guide to Using Zoom for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/rumors-swirl-over-facebooks-ethical-commerce-stance/"><u>Rumors Swirl Over Facebook's Ethical Commerce Stance</u></a></li>
-<li><a href="https://facebook.techidaily.com/trouble-brewing-as-trust-fades-in-giant-internet-firms/"><u>Trouble Brewing as Trust Fades in Giant Internet Firms</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723211230678-troubleshooting-pubg-building-loading-errors-effective-fixes-inside/"><u>Troubleshooting PUBG Building Loading Errors - Effective Fixes Inside</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-social-giants-mastery-of-meta-account-control/"><u>Unlocking Social Giants: Mastery of Meta Account Control</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/wiederholungsmoglichkeiten-fur-endgultig-geloschte-dateien-auf-windows-systemen/"><u>Wiederholungsmöglichkeiten Für Endgültig Gelöschte Dateien Auf Windows-Systemen</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-endless-preservation-of-instagrams-free-and-easy-for-2024/"><u>[New] Endless Preservation of Instagrams, Free & Easy for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unlock-new-horizons-best-6-instagram-reel-apps/"><u>[New] In 2024, Unlock New Horizons Best 6 Instagram Reel Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-kickstart-profits-earnings-blueprint-for-periscope-novices/"><u>[New] Kickstart Profits Earnings Blueprint for Periscope Novices</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/enhanced-conversions-with-cookiebot-technology-elevate-your-sites-performance/"><u>Enhanced Conversions with Cookiebot Technology – Elevate Your Site's Performance!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-to-adapt-to-rising-crypto-trend/"><u>Facebook & Instagram to Adapt to Rising Crypto Trend</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-allocates-5-million-in-the-fight-against-substack-dominance/"><u>Facebook Allocates $5 Million in the Fight Against Substack Dominance</u></a></li>
+<li><a href="https://blog-min.techidaily.com/geen-interessentiesverzekerd-verspillen-mjpg-bestandsen-opname-online-gratis-met-movavi/"><u>Geen Interessentiesverzekerd Verspillen: MJPG-Bestandsen Opname Online Gratis Met Movavi</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-convert-any-instagram-video-in-minutes-best-free-tools-windowsmac/"><u>In 2024, Convert Any Instagram Video in Minutes Best Free Tools (Windows/Mac)</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-tactics-to-unearth-upcoming-facebook-clubs/"><u>Innovative Tactics to Unearth Upcoming Facebook Clubs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/laugh-out-loud-on-your-iphone-for-2024/"><u>Laugh Out Loud on Your iPhone for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-beyond-the-screen-facebooks-potential-physical-ventures/"><u>Marketing Beyond the Screen: Facebook's Potential Physical Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-glitches-and-hurdles-with-ease/"><u>Navigating FaceBook Glitches & Hurdles with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/rooted-for-progress-what-the-unlock-of-oculus-go-means-for-enthusiasts/"><u>Rooted for Progress: What the Unlock of Oculus Go Means for Enthusiasts</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-xcover-7-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy XCover 7 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-account-what-to-do-when-fbs-verification-fails/"><u>Securing Your Account: What to Do When FB's Verification Fails</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/silent-scribes-unveiling-the-best-speech-to-text-tools-for-2024/"><u>Silent Scribes Unveiling the Best Speech-to-Text Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-designating-new-facebook-page-authorities/"><u>Unlocking Potential: Designating New Facebook Page Authorities</u></a></li>
 </ul></div>
 

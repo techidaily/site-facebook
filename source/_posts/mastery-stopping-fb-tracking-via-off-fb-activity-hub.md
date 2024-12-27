@@ -1,7 +1,7 @@
 ---
 title: "Mastery: Stopping FB Tracking Via Off-FB Activity Hub"
-date: 2024-08-15T18:52:20.440Z
-updated: 2024-08-16T18:52:20.440Z
+date: 2024-12-21T18:25:27.718Z
+updated: 2024-12-27T16:13:06.441Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/36b23ef4c54f4e12997c9a2584ed2c68d00394366
 
 ![looking at facebook on iphone alongside a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-app-smartphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook has been the subject of significant criticism about its approach to privacy. Now the company is trying to rebuild trust with its users. One way it is doing this is by introducing tools that let users[see their own Facebook data](https://www.makeuseof.com/tag/everything-facebook-recording/) and take more control over this data. The Off-Facebook Activity tool allows users to control what data Facebook receives from other apps and services.
 
  There are two ways that Facebook gathers data about you. Firstly, through the information you give Facebook directly. This is information such as your name and the interests which you enter into the Facebook website or app.
@@ -37,15 +41,12 @@ thumbnail: https://thmb.techidaily.com/36b23ef4c54f4e12997c9a2584ed2c68d00394366
 
  In general, Facebook collects data about your activity on other websites and apps in order to show you more relevant ads. This data includes information such as the types of products you've viewed, the website or app you were using, and whether or not you made a purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## How to Use the Off-Facebook Activity Tool to Stop Tracking
 
 ![Women Working on Facebook on a Laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Women-Working-on-Facebook-on-a-Laptop.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To use the Off-Facebook Activity tool, start by logging in to the Facebook app on your device. Then go to**Settings & privacy** \>**Settings** \>**Privacy** \>**Your Facebook Information** . Here, in the**Your Facebook Information** section there should be an option for**Off-Facebook Activity** . Click this to bring up the tool.
@@ -61,13 +62,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  To clear all this information so it is no longer linked to your Facebook account, click the**Clear History** button. Next you can also go to the**Disconnect future activity** (from the Off-Facebook activity page) section and set the slider for**Future Off-Facebook Activity** to**off** to[stop Facebook tracking your activities](https://www.makeuseof.com/tag/facebook-tracking-stop/) in the future.
 
 ![screenshot showing manage off-facebook activity page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-off-facebook-activity-page.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing manage facebook activity toggle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-facebook-activity-toggle.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -80,9 +83,6 @@ Close
 
  While this is certainly an improvement in terms of privacy, it still means that Facebook has access to vast quantities of data about your internet activities from apps and sites across the web. Even if you don't have a Facebook account, Facebook can still collect information about you from any site using features like the Facebook Like button or the Facebook Pixel.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## How Can You Secure Your Facebook Data?
 
 ![Desktop Monitor Placed on a Table Showing Image of a Man Viewing From a Binocular Covered With Facebook Logo Icons](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Desktop-Monitor-Placed-on-a-Table-Showing-Image-of-a-Man-Viewing-From-a-Binocular-Covered-With-Facebook-Logo-Icons.jpg)
@@ -92,22 +92,20 @@ Close
  The very best way to remove your data from Facebook, however, is to delete your account. If you deactivate your account, it won't erase your personal data. Deleting your account will remove most but not all of your data. To learn more about what happens when you delete your account, see our guide to[what deactivating or deleting Facebook really means for privacy](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) .
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Take Control of Your Facebook Data
 
  The Off-Facebook activity tool gives you some measure of control over how your data is shared with Facebook. However, it won't actually delete your data. So if you want to be sure your data isn't being misused, it's best to remove it from Facebook altogether.
 
  Controlling the data that Facebook collects about you isn't only important for your personal privacy and security. It can also have a big effect on society as a whole.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +114,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-prime-picks-for-live-tv-access-and-streaming/"><u>[New] Prime Picks for Live TV Access and Streaming</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-top-6-secure-mc-domains-for-2024/"><u>[New] Top 6 Secure MC Domains for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-warriors-of-cyberspace-top-ten-female-youtubers/"><u>2024 Approved Warriors of Cyberspace Top Ten Female YouTubers</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-case-should-you-rely-on-fb-events/"><u>Assessing the Case: Should You Rely on FB Events?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-digital-offensive-fb-tweet-snap-campaign-against-covid/"><u>Biden's Digital Offensive: Fb, Tweet, Snap Campaign Against COVID</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-income-5-must-try-fbig-methods/"><u>Boosting Income: 5 Must-Try FB/IG Methods</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connecting-globally-through-popular-networks-exploring-facebook-twitter-instagram-and-youtube/"><u>Connecting Globally Through Popular Networks: Exploring Facebook, Twitter, Instagram and Youtube</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-quest-profiles-pages-and-facebook-group-links/"><u>Connectivity Quest: Profiles, Pages & Facebook Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/crypto-marketing-the-next-big-thing-on-social-networks/"><u>Crypto Marketing: The Next Big Thing on Social Networks?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-fading-sounds-in-dying-light-a-comprehensive-guide/"><u>Fixing the Fading Sounds in Dying Light: A Comprehensive Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153627799-initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/proactive-measures-for-managing-comments-on-educational-videos-for-2024/"><u>Proactive Measures for Managing Comments on Educational Videos for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/socioeconomic-aspects-agroecology-also-encompasses-social-dimensions-such-as-food-sovereignity-local-knowledge-systems-community-participation-and-fair-trad422/"><u>Socioeconomic Aspects: Agroecology Also Encompasses Social Dimensions Such as Food Sovereignity, Local Knowledge Systems, Community Participation, and Fair Trade Practices. It Seeks to Empower Farmers and Promote Equitable Access to Resources</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-realme-11-pro-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Realme 11 Pro Device</u></a></li>
+</ul></div>
 

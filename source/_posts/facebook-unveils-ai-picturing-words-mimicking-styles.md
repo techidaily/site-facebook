@@ -1,7 +1,7 @@
 ---
 title: "Facebook Unveils AI: Picturing Words, Mimicking Styles"
-date: 2024-08-15T18:49:20.708Z
-updated: 2024-08-16T18:49:20.708Z
+date: 2024-12-21T16:24:42.505Z
+updated: 2024-12-27T17:38:32.979Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/8d1de21c666386207e0a2c0896dc0647ebc82a413
 
  From identity theft to fake news, we've seen all the bad side of this tech. But Facebook's one company that wants to use it for future innovations instead.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is TextStyleBrush?
 
  Researchers over at Facebook have introduced their new self-supervised AI model, "TextStyleBrush" on[Newsroom](https://about.fb.com/news/2021/06/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word/) . Using just one image of a single word, it can edit and replace the text while copying the font or visual style that it was written in.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8d1de21c666386207e0a2c0896dc0647ebc82a413
  The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
 
@@ -40,17 +48,9 @@ thumbnail: https://thmb.techidaily.com/8d1de21c666386207e0a2c0896dc0647ebc82a413
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -59,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/8d1de21c666386207e0a2c0896dc0647ebc82a413
 
  If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,4 +72,17 @@ thumbnail: https://thmb.techidaily.com/8d1de21c666386207e0a2c0896dc0647ebc82a413
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-instagram-voice-transformation/"><u>[Updated] Mastering the Art of Instagram Voice Transformation</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-save-and-stream-gotomeet-on-desktops-and-phones-for-2024/"><u>[Updated] Save and Stream GoToMeet on Desktops & Phones for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/benchmarking-video-editing-tools-a-detailed-analysis-of-loom-vs-movavi/"><u>Benchmarking Video Editing Tools: A Detailed Analysis of Loom Vs. Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-page-participation-with-fb-polls/"><u>Enhancing Page Participation with FB Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-past-bondings-with-facebook-friends/"><u>Navigate Past Bondings with Facebook Friends</u></a></li>
+<li><a href="https://driver-error.techidaily.com/re-establish-connection-with-devices-in-winnt-40/"><u>Re-Establish Connection with Devices in WinNT 4.0</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-facebook-to-meta-saga/"><u>Revolutionizing Relationships: Facebook to Meta Saga</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-phenomenon-elevate-your-virtual-forum/"><u>The Popularity Phenomenon: Elevate Your Virtual Forum</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/unify-your-visuals-a-step-by-step-color-matching-tutorial-for-powerdirector/"><u>Unify Your Visuals A Step-by-Step Color Matching Tutorial for PowerDirector</u></a></li>
+</ul></div>
 

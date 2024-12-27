@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2024-12-18T00:26:28.119Z
-updated: 2024-12-22T06:21:16.993Z
+date: 2024-12-25T19:41:09.561Z
+updated: 2024-12-27T20:32:02.942Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Clear All Facebook Notifications
@@ -53,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  Weirdly, there is no way to clear your unread notifications from the smartphone app without clicking on each one. Instead, you need to perform the process from the web app.
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To mark all of your Facebook notifications as read, follow the guide below:
 
@@ -72,7 +68,7 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
@@ -91,9 +87,17 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -123,7 +127,7 @@ Follow the steps below to learn about the process on the web app:
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -145,10 +149,6 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -173,20 +173,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-boosting-engagement-interpreting-youtube-video-data/"><u>[New] 2024 Approved Boosting Engagement Interpreting YouTube Video Data</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-fast-windows-file-check-up-tips-and-tricks/"><u>[New] Fast Windows File Check-Up Tips and Tricks</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expeditious-steps-for-reclaiming-deleted-reddit-content/"><u>2024 Approved Expeditious Steps for Reclaiming Deleted Reddit Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-facebooks-buzz-to-silence-land/"><u>Banishing Facebook's Buzz to Silence Land</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/bringing-videos-to-life-using-youtube-in-educational-environments/"><u>Bringing Videos to Life Using YouTube in Educational Environments</u></a></li>
-<li><a href="https://facebook.techidaily.com/diving-into-your-timelines-past-content/"><u>Diving Into Your Timeline's Past Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-contempt-the-facebook-like-phenomenon-decoded/"><u>Examining Contempt: The Facebook-Like Phenomenon Decoded</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exceptional-display-premium-quality-laptop-at-a-steep-sale-discover-top-picks-featured/"><u>Exceptional Display: Premium Quality Laptop at a Steep Sale - Discover Top Picks Featured !</u></a></li>
-<li><a href="https://facebook.techidaily.com/guidelines-to-unhide-hidden-facebook-posts/"><u>Guidelines to Unhide Hidden Facebook Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-access-the-meta-accounts-center-for-facebook-and-instagram/"><u>How to Access the Meta Accounts Center for Facebook and Instagram</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-echoes-of-excellence-10-strategies-for-superior-sound-quality/"><u>In 2024, Echoes of Excellence 10 Strategies for Superior Sound Quality</u></a></li>
-<li><a href="https://games-able.techidaily.com/live-on-the-move-mastering-twitch-broadcasts-mobile/"><u>Live on the Move: Mastering Twitch Broadcasts (Mobile)</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-alteration-of-childs-information-in-facebook-messenger/"><u>Stepwise Alteration of Child's Information in Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-discontentment-into-dollars-fb-refund-method/"><u>Transform Your Discontentment Into Dollars - FB Refund Method</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/usbsandisk/"><u>USBメモリのSandiskを起動用デバイスへ変換する手順</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-ultimate-mac-obs-guide-installation-and-operational-knowledge/"><u>[New] 2024 Approved The Ultimate Mac OBS Guide Installation & Operational Knowledge</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tackling-teal-too-much-clean-up-that-green-screen-on-mac/"><u>[Updated] Tackling Teal Too Much? Clean up That Green Screen on Mac</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/all-about-srt-essential-information-made-easy/"><u>All About SRT Essential Information Made Easy</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/hoe-bestand-gegevens-opheffing-georganiseerd-en-kostenloos-is-gegaan-gedurende-de-laatste-trektijden-tips-en-strategieen/"><u>Hoe Bestand Gegevens Opheffing Georganiseerd en Kostenloos Is Gegaan Gedurende De Laatste Trektijden - Tips en Strategieën</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-motorola-g54-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Motorola G54 5G Phones with/without a PC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-10-innovative-podcast-microphone-picks/"><u>In 2024, Top 10 Innovative Podcast Microphone Picks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/interactive-features-for-2024/"><u>Interactive Features for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-the-move-offline-essential-actions-before-fb-deactivation/"><u>Making the Move Offline: Essential Actions Before FB Deactivation</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-timing-for-fb-shares-and-likes/"><u>Optimal Timing for FB Shares & Likes</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-developments-the-hints-at-facebooks-smartwatch-venture/"><u>Secret Developments: The Hints at Facebook's Smartwatch Venture</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-role-in-curtailing-deceptive-online-advertising-practices/"><u>Tech Titans' Role in Curtailing Deceptive Online Advertising Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-your-info-after-fb/"><u>The Future of Your Info After FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-boon-of-social-networking-on-society/"><u>The Unseen Boon of Social Networking on Society</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-xiaomi-13-ultra-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Xiaomi 13 Ultra for Streaming | Dr.fone</u></a></li>
 </ul></div>
 

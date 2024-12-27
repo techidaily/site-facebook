@@ -1,7 +1,7 @@
 ---
 title: How to Purge Your Facebook Data on Android
-date: 2024-08-15T18:51:20.233Z
-updated: 2024-08-16T18:51:20.233Z
+date: 2024-12-20T20:01:34.346Z
+updated: 2024-12-27T16:29:15.268Z
 tags:
   - facebook
 categories:
@@ -29,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
 
  On the other hand, account deletion is when you wish to leave Facebook for good. Instead of undergoing the painful process of[deleting your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) and other data, account deletion does that in a single step. But, if you change your mind later and wish to come back, you'll have to create a new account. Plus, if you run a page as the sole administrator, it will also be deleted.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do Before Deleting Your Facebook Account
 
  Deleting your Facebook account will purge your profile from the company's servers for good. With that in mind, you need to do several things first before tapping that Delete button. The first thing you should do is download your data.
@@ -46,24 +43,23 @@ thumbnail: https://thmb.techidaily.com/64fcfc6286de188c8366d6a329563edab62ff52b5
 4. Here, tap**Apps and websites** to see all the services connected to your account.
 
 ![Facebook Android menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Android-menu-options.jpg)
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 
 ![Facebook Settings and Privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Settings-Android.jpg)
 
-![Permissions section in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Permissions-settings.jpg)
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Permissions section in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Permissions-settings.jpg)
 
 Close
 
  Next, you should add an email and a password as a login option to each of these connected services to avoid losing access to your accounts.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Delete Your Facebook Account on Mobile
 
  Once you've gone through the two key steps above, you can safely delete your Facebook account. Deleting a Facebook account on Android is straightforward. Here's how:
@@ -74,13 +70,14 @@ Close
 4. Next, tap **Account ownership and control > Deactivation and deletion** .
 
 ![Facebook Settings and privacy page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-settings-and-privacy-page-android.jpg)
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Personal account information page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Personal-account-information-facebook-android.jpg)
 
 ![Account deactivation and deletion options on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/account-ownership-and-control-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -94,13 +91,11 @@ Close
 ![Facebook account deletion and deactivation page on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Delete-facebook-account-selected-android.jpg)
 
 ![Account deletion page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-account-deletion-page-android.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook account deletion confirmation on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-android-account-deletion-confirmation.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -124,11 +119,16 @@ Close
 
 ![Deactivate account option on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Deactivate-facebook-account-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Key reasons for deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-reasons.jpg)
 
 ![Final step in deactivating a Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/deactivating-facebook-account-android.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -141,14 +141,11 @@ Close
 
  But before doing so, you should download your history and add different login methods for apps and websites that use your Facebook credentials. You can also deactivate your account temporarily if you wish to return later.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +154,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-expertise-in-app-performance-review/"><u>[New] 2024 Approved Expertise in App Performance Review</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1716069811180-new-in-2024-capturing-screen-content-via-built-in-recorders-in-the-mate-and-p-series/"><u>[New] In 2024, Capturing Screen Content via Built-In Recorders in the Mate and P Series.</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-enlightened-exercits-discovering-the-most-inspiring-yogis-online/"><u>[New] In 2024, Enlightened Exercits - Discovering the Most Inspiring Yogis Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-skyrocketing-sales-how-ad-revenue-transforms-youtube-videos/"><u>[New] In 2024, Skyrocketing Sales How Ad Revenue Transforms YouTube Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-latest-vr-gaming-engines-review-2023-edition/"><u>2024 Approved Latest VR Gaming Engines Review - 2023 Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-if-securityfbcom-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if security@fb.com Is a Secure and Legitimate Mail Service From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-quitting-as-friends-on-social-media/"><u>Digital Detox: Quitting as Friends on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnection-prospects-of-life/"><u>Digital Disconnection: Prospects of Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disruption-all-key-social-networks-downed/"><u>Digital Disruption: All Key Social Networks Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-frontier-contributes-to-health-crisis-alleviation/"><u>Digital Frontier Contributes to Health Crisis Alleviation</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-dividable-social-sites-revenue-rules/"><u>Digitally Dividable: Social Sites' Revenue Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-ending-your-facebook-friendship/"><u>Disconnecting: Ending Your Facebook Friendship</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-facebooks-updated-policy-framework-with-hub-debut/"><u>Dive Into Facebook’s Updated Policy Framework with Hub Debut</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-v30-lite-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-creativity-in-memes-genrator-assistance/"><u>In 2024, Unleash Creativity in Memes Gen'rator Assistance</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-itel-p55pluss-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Itel P55+s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://review-topics.techidaily.com/new-iphone-13-pro-restore-from-icloud-stuck-on-time-remaining-estimating-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>New iPhone 13 Pro Restore from iCloud Stuck on Time Remaining Estimating | Stellar</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2024-12-19T03:20:24.986Z
-updated: 2024-12-22T05:34:01.901Z
+date: 2024-12-23T18:04:44.945Z
+updated: 2024-12-27T19:28:03.657Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
 * Under the[Security and login](https://www.facebook.com/settings?tab=security) tab, check the**Where you're logged in** section to identify which devices you have logged into Facebook. If you see a browser or device you don't recognize, select the**three dots** next to it and choose**Log out** . If you notice anything suspicious, select**Not you?** .
@@ -43,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Don't want to save your login information? If someone else has access to your computer or devices, you can decide to not save your login information by editing the**Save your login information** option. Here you can remove an account or remove saved information from other devices.
 * To tighten your security even further, you can add[two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
 * Be made aware of any[unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2. Privacy
 
@@ -63,13 +55,13 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3. Profile and Tagging
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
@@ -78,6 +70,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * If you want to further customize your profile settings, you can **hide comments containing certain words from your profile** by adding words, phrases, or emojis. This means the comments containing these words will remain visible only to those who wrote them, and their friends.
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4. Public Posts
 
@@ -95,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
@@ -109,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
@@ -116,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Be Facebook Privacy Aware
@@ -138,22 +138,16 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-stepwise-route-to-discovering-elusive-youtube-footage/"><u>[New] 2024 Approved The Stepwise Route to Discovering Elusive YouTube Footage</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/arly-birds-youtube-strategies-for-channel-and-revenue/"><u>[New] Early Bird's Youtube Strategies for Channel and Revenue</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-reviewing-free-screen-recorder-tools-for-pc/"><u>[Updated] 2024 Approved Reviewing Free Screen Recorder Tools for PC</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-ultimate-list-10-best-date-counting-clocks-androidios/"><u>[Updated] In 2024, The Ultimate List 10 Best Date-Counting Clocks Android/iOS</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-top-10-strategies-for-youtube-shorts-that-make-an-impact/"><u>[Updated] In 2024, Top 10 Strategies for Youtube Shorts That Make an Impact</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-expert-tips-for-quality-video-with-nvidia/"><u>2024 Approved Expert Tips for Quality Video with NVIDIA</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-ways-to-make-life-better-without-your-phone/"><u>5 Ways to Make Life Better Without Your Phone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apc-back-ups-600va-be600m1-review/"><u>APC Back-UPS 600VA BE600M1 Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/changing-passwords-a-comprehensive-guide-to-facebook/"><u>Changing Passwords: A Comprehensive Guide to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-many-users-are-fleeing-facebook/"><u>How Many Users Are Fleeing Facebook?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-ultimate-roku-guide-to-facebook-live-streams/"><u>In 2024, The Ultimate Roku Guide to Facebook Live Streams</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-the-world-of-3d-photo-sharing-on-facebook/"><u>Navigate the World of 3D Photo-Sharing on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-online-connectivity-understanding-facebooks-metaverse-blueprint/"><u>Redefining Online Connectivity: Understanding Facebook's Metaverse Blueprint</u></a></li>
-<li><a href="https://facebook.techidaily.com/reels-vs-tiktok-can-facebook-strike-back/"><u>Reels vs TikTok: Can Facebook Strike Back?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-conflicts-of-in-use-resources-in-windows-1011-153-chars/"><u>Resolving Conflicts of In-Use Resources in Windows 10/11 (153 Chars)</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-space-on-facebook-understanding-the-protect-mechanism/"><u>Secure Your Space on Facebook: Understanding the Protect Mechanism</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-app-outage-enigma/"><u>Unraveling the App Outage Enigma</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-beginners-guide-to-zoom-webinars/"><u>[New] In 2024, Beginner’s Guide to Zoom Webinars</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-master-the-art-of-fb-video-ads-with-a-complimentary-kit-for-2024/"><u>[New] Master the Art of FB Video Ads with a Complimentary Kit for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-world-of-ai-chatbots-the-role-of-content-moderation/"><u>Exploring the World of AI Chatbots: The Role of Content Moderation</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-motorola-razr-40-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Motorola Razr 40 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-you-to-me-updating-your-social-network-identifier/"><u>From You to Me: Updating Your Social Network Identifier</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-overcome-unexpected-black-screens-a-comprehensive-guide/"><u>How to Overcome Unexpected Black Screens - A Comprehensive Guide</u></a></li>
+<li><a href="https://win-net.techidaily.com/microsofts-major-challenge-addressing-windows-11-issues-before-the-clock-runs-out-insights-from-zdnet/"><u>Microsoft's Major Challenge: Addressing Windows 11 Issues Before the Clock Runs Out - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-high-res-content-uploads-for-fb-app-users/"><u>Navigating High-Res Content Uploads for FB App Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platform-security-vulnerabilities/"><u>Social Platform Security Vulnerabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-rise-presents-new-headwinds-to-facebooks-profits/"><u>TikTok's Rise Presents New Headwinds to Facebook's Profits</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-10-herramientas-exitosas-para-optimizar-la-claridad-y-el-rendimiento-de-tu-video/"><u>Top 10 Herramientas Exitosas Para Optimizar La Claridad Y El Rendimiento De Tu Vídeo</u></a></li>
 </ul></div>
 

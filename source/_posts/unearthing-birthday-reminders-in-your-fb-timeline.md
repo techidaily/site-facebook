@@ -1,7 +1,7 @@
 ---
 title: Unearthing Birthday Reminders in Your FB Timeline
-date: 2024-08-15T18:50:40.969Z
-updated: 2024-08-16T18:50:40.969Z
+date: 2024-12-26T16:51:00.276Z
+updated: 2024-12-27T18:21:53.712Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 
  So, let's look at the built-in methods that you can use to find old posts on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Find Old Posts on Facebook
 
  You can go about this in four ways, the first two of which work great for searching through your or someone else's timeline. The other two focus mainly on finding posts on your timeline only. These methods include using the default search function, searching on your timeline, using timeline filters, and using the Activity Log.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Finding Old Posts Through Facebook Search
 
@@ -33,21 +41,19 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
 
 ![Search Results for My Post Rumi on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Results-for-My-Post-Rumi-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  However, this is just a basic search with many irrelevant posts included. To refine it more, you have to tinker with some filters.
 
  First, you might want the search results to show only the posts published by you, and to do that, go to**Posts** under**Filters** . Then click on**Posts From** and select**You** in the dropdown menu. Now, all the posts it shows have been posted by you.
 
 ![Selecting the You filter to refine Facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Selecting-the-You-filter-to-refine-Facebook-search.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 
  If you still can't find the post you are looking for, you can further refine the search results by year. Again, go to**Posts** under**Filters** , and click on**Date Posted** . Here, you can choose the year of that post, and it will show results from that particular year only.
 
 ![Facebook posts search result by year](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-posts-search-result-by-year.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
@@ -66,42 +72,36 @@ thumbnail: https://thmb.techidaily.com/ee671cfb7ee587015883db0a3fbeb82905b8663f1
  If you're finding it hard to filter the search results with the first method, you also have a search option that is somewhat hidden within your or someone else's timeline. To access it, go to the Facebook profile page where you want to find a post, click on the**three-dot** icon just below the**Edit Profile** button, and select**Search** .
 
 ![The Search Option On the Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/the-search-option-on-the-facebook-timeline.jpg)
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  All the results that appear through this search are related to that specific timeline alone, offering a more focused approach. Note that you can directly search for the keyword with this method without typing "My Posts" or "John Doe Posts". The filters you get to refine the search are pretty much the same as you get in the first method.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ### 3\. Using Filters on the Timeline
 
  Sometimes, you won't know what to search for to find a particular post. In such cases, the above two search methods might not help, and you'd be better off using the**Filters** on the timeline.
 
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
  On someone else's timeline, though, you only get to filter the posts by year, making this method not as useful for searching others' posts.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ### 4\. Using the Activity Log on Your Timeline
 
  On your timeline, you have an additional option to find old posts—your Activity Log. If you don't know the exact keyword to search for or it was something you just interacted with, finding it through the Activity Log is your best bet. You can access the**Activity Log** by clicking on the**three-dot** icon just below the**Edit Profile** button on your timeline.
 
 ![Accessing the Activity Log In Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/accessing-the-activity-log-in-your-facebook-timeline-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Once on the Activity Log page, you'll find many options to pinpoint the lost post. On its home page, you can view things like**Videos You've Searched for** ,**Videos You've Watched** , and more. These posts can be pretty challenging to find through search, so using the Activity Log in such cases is better.
 
 ![Different options to find old posts through Facebook Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/different-options-to-find-old-posts-through-facebook-activity-log.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As you can see, a sidebar menu on the left lets you filter the log with**Your Activity Across Facebook** ,**Personal Information** ,**Connections** , and more. Each of these options has a bunch of sub-menus to refine the Activity Log further, but your posts are mostly under**Your Activity Across Facebook** . You can even search through your Activity Log if you still can't find the post you need.
 
@@ -115,14 +115,11 @@ The powerful video editing program for your Windows PC</a>
 
  As discussed above, writing captions or descriptions for posts is always a good idea. This helps you find posts easily in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +128,24 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tech-savvy.techidaily.com/analyzing-security-in-browser-ai-plugins/"><u>Analyzing Security in Browser AI Plugins</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/anticipating-gpt-5-what-we-know-about-its-upcoming-debut/"><u>Anticipating GPT-5: What We Know About Its Upcoming Debut</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/best-free-open-source-video-editors-top-10-tools-you-should-know-about/"><u>Best Free Open Source Video Editors: Top 10 Tools You Should Know About</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebook-messages-a-study-on-messenger-symbols/"><u>Deciphering Facebook Messages - A Study on Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-approval-of-multiple-profiles-from-a-single-facebook-account/"><u>Demystifying the Approval of Multiple Profiles From a Single Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-guardianship-stopping-the-spread-of-health-misconceptions/"><u>Digital Guardianship: Stopping the Spread of Health Misconceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-horizons-exploring-facebooks-stealthy-smartwatch-creation/"><u>Digital Horizons: Exploring Facebook's Stealthy Smartwatch Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-facebooks-notification-system-entirely/"><u>Disabling Facebook's Notification System Entirely</u></a></li>
+<li><a href="https://facebook.techidaily.com/disguised-choices-dark-patterns-of-privacy/"><u>Disguised Choices: Dark Patterns of Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-join-the-crowd-stop-these-14-predictable-scams/"><u>Don't Join the Crowd: Stop These 14 Predictable Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-methods-to-customize-fb-navigation-paths/"><u>Effective Methods to Customize FB Navigation Paths</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-xiaomi-13-ultra-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Xiaomi 13 Ultra Phone? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-xiaomi-redmi-13c-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Xiaomi Redmi 13C Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-nubia-red-magic-9-proplus-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Nubia Red Magic 9 Pro+ to New Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-navigating-to-groups-shared-content-in-messenger/"><u>In 2024, Navigating to Group's Shared Content in Messenger</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-audio-stuttering-and-distortion-in-windows-117-with-easy-fixes/"><u>Resolve Audio Stuttering & Distortion in Windows 11/7 with Easy Fixes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-tutorial-updating-your-acer-aspire-with-latest-drivers-for-windows-systems/"><u>Step-by-Step Tutorial: Updating Your Acer Aspire with Latest Drivers for Windows Systems</u></a></li>
+</ul></div>
 

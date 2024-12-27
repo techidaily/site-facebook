@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2024-12-21T02:12:40.286Z
-updated: 2024-12-22T05:05:30.096Z
+date: 2024-12-22T17:44:58.395Z
+updated: 2024-12-27T19:02:13.835Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
@@ -42,9 +38,17 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -57,35 +61,31 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does This All Mean for Facebook?
@@ -127,14 +127,24 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-maximize-your-podcast-earning-potential/"><u>[New] How to Maximize Your Podcast Earning Potential</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-expressive-leadership-examination-refined-no-8/"><u>[Updated] Expressive Leadership Examination - Refined No. 8</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-fb-avatar-inclusion-in-whatsapp-discussions/"><u>A Guide to FB Avatar Inclusion in WhatsApp Discussions</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/achieving-optimal-performance-reaching-120-fps-gameplay-on-your-playstation-5/"><u>Achieving Optimal Performance: Reaching 120 FPS Gameplay on Your PlayStation 5</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazon-accuses-10000-group-leaders-of-misconduct-on-social-media/"><u>Amazon Accuses 10,000 Group Leaders of Misconduct on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-alternative-vision-not-embracing-metaverse-now/"><u>Apple’s Alternative Vision: Not Embracing Metaverse Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-the-latest-facebook-portable-gadgets/"><u>Comparing the Latest Facebook Portable Gadgets</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-iphone-8-plus-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your iPhone 8 Plus Apple ID and Apple Pay</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/why-does-your-pc-performance-drop-with-an-underperforming-processor-discover-answers-from-yl-computing-and-software/"><u>Why Does Your PC Performance Drop with an Underperforming Processor? Discover Answers From YL Computing & Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mac-innovators-handbook-crafting-cool-youtube-videos/"><u>[New] In 2024, Mac Innovators' Handbook Crafting Cool Youtube Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-story-hack-for-stealthy-tech-users/"><u>[Updated] Insta Story Hack for Stealthy Tech Users</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-premier-manual-leveraging-mobizens-full-potential-for-mobile-capture-for-2024/"><u>[Updated] Premier Manual Leveraging Mobizen's Full Potential for Mobile Capture for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-exclusive-7-discreet-media-tools/"><u>2024 Approved Exclusive 7 Discreet Media Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-amazon-facebook-group-admin-dispute/"><u>Exposing the Amazon-Facebook Group Admin Dispute</u></a></li>
+<li><a href="https://facebook.techidaily.com/faux-profile-alert-unraveling-social-shadows/"><u>Faux Profile Alert: Unraveling Social Shadows</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-driver-issues-on-your-computer-for-smooth-windows-operation-a-step-by-step-guide/"><u>Fixing Driver Issues on Your Computer for Smooth Windows Operation - A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-past-to-present-a-detailed-tiktok-username-overhaul-guide-for-2024/"><u>From Past to Present A Detailed TikTok Username Overhaul Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-social-media-platforms-privacy-policy-changed-for-me/"><u>Has Social Media Platforms' Privacy Policy Changed for Me?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-redmi-note-12-4g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi Redmi Note 12 4G Is Unlocked</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-oneplus-nord-n30-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From OnePlus Nord N30 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-exorcism-how-to-delete-unwanted-images/"><u>Instagram Exorcism: How to Delete Unwanted Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-online-spotlight-with-facebooks-privacy-restriction-list/"><u>Limit Online Spotlight with Facebook's Privacy Restriction List</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mpg-to-ogg-converter-top-free-web-based-tools-movevid/"><u>MPG to OGG Converter: Top Free Web-Based Tools - MoveVid</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-perception-of-digital-life-too-much-damage-not-enough-gain/"><u>Public Perception of Digital Life: Too Much Damage, Not Enough Gain</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solutions-for-troubleshooting-and-fixing-kernel32dll-errors/"><u>Solutions for Troubleshooting and Fixing Kernel32.dll Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-concealed-codex-understanding-online-connection-invites/"><u>The Concealed Codex: Understanding Online Connection Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-cybersecurity-angle-to-social-medias-interactive-tests/"><u>The Cybersecurity Angle to Social Media's Interactive Tests</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-chats-a-guide-to-downloading-private-fb-messages/"><u>Unlocking Your Chats: A Guide to Downloading Private FB Messages</u></a></li>
 </ul></div>
 

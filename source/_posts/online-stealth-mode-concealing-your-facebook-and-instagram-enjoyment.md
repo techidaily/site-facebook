@@ -1,7 +1,7 @@
 ---
 title: "Online Stealth Mode: Concealing Your Facebook & Instagram Enjoyment"
-date: 2024-12-18T20:06:10.949Z
-updated: 2024-12-22T06:26:37.955Z
+date: 2024-12-20T20:50:30.956Z
+updated: 2024-12-27T17:51:43.346Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Instagram and Facebook Finally Remove Likes
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
@@ -58,17 +58,22 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-testing-titans-in-depth-comparison-of-gopros-hero5b-and-session/"><u>[New] Testing Titans In-Depth Comparison of GoPro's Hero5B & Session</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-enhancing-gaming-the-ultimate-xbox-screen-recorders-guide-for-2024/"><u>[Updated] Enhancing Gaming The Ultimate Xbox Screen Recorder's Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-defeating-darkness-in-youtube-videos/"><u>[Updated] In 2024, Defeating Darkness in Youtube Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-school-without-edgenuity-videos/"><u>[Updated] Mastering School Without Edgenuity Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-starter-guide-8-easy-youtube-money-makers/"><u>[Updated] Starter Guide 8 Easy YouTube Money-Makers</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-key-planning-tools-to-master-your-content-calendar/"><u>5 Key Planning Tools to Master Your Content Calendar</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-deeper-dive-into-personalized-advertising-facebooks-newsfeed-update/"><u>A Deeper Dive Into Personalized Advertising: Facebook's Newsfeed Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/baffling-befrienders-hide-your-list-precision/"><u>Baffling Befrienders: Hide Your List Precision</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-networks-grasping-the-essence-of-facebooks-virtual-world/"><u>Beyond Networks: Grasping the Essence of Facebook’s Virtual World</u></a></li>
-<li><a href="https://fox-info.techidaily.com/spectrumstreams-2024-worldwide-selection-at-fingertips/"><u>SpectrumStreams 2024 Worldwide Selection at Fingertips</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-metas-artificial-intelligence-an-in-depth-guide/"><u>Understanding Meta's Artificial Intelligence: An In-Depth Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154016371-unintentional-sharing-of-numbers-on-social-media-alert/"><u>Unintentional Sharing of Numbers on Social Media Alert</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-maximize-reach-in-telegram-a-marketers-playbook/"><u>[New] Maximize Reach in Telegram A Marketer's Playbook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-top-performers-in-the-world-of-live-game-broadcast-cams-for-2024/"><u>[New] Top Performers in the World of Live Game Broadcast Cams for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-art-of-hashtagging-strategies-for-maximum-impact-on-facebook-for-2024/"><u>[Updated] The Art of Hashtagging Strategies for Maximum Impact on Facebook for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-keeping-your-tiktok-age-up-to-date-a-quick-guide/"><u>2024 Approved Keeping Your TikTok Age Up-to-Date A Quick Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-updates-revamped-messaging-for-messenger-instagram-users/"><u>Facebook Updates: Revamped Messaging for Messenger, Instagram Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-hacks-users-invest-in-oculus-q2-costing-300-each/"><u>Facing Hacks? Users Invest in Oculus Q2, Costing $300 Each</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-tecno-camon-30-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Tecno Camon 30 Pro 5G Phones with/without a PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-infinix-note-30-5g-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Infinix Note 30 5G</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-from-apple-iphone-14-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes From Apple iPhone 14?</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-ray-ban-stories-on-facebook-how-do-they-work/"><u>Introducing Ray-Ban Stories on Facebook - How Do They Work?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/latest-updates-on-teslas-automaton-insights-into-launch-schedule-cost-projections-and-detailed-specifications/"><u>Latest Updates on Tesla's Automaton: Insights Into Launch Schedule, Cost Projections & Detailed Specifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-day-on-facebook-reminiscence-feature/"><u>Maximizing Day-on-Facebook Reminiscence Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmart-the-obfuscators-spotting-fake-profiles-with-precision/"><u>Outsmart the Obfuscators: Spotting Fake Profiles with Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweep-away-stored-views-delete-fb-watch-trails/"><u>Sweep Away Stored Views: Delete FB Watch Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-overestimated-world-of-facebook-statistics/"><u>The Overestimated World of Facebook Statistics</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-best-trailer-maker-software-for-videos/"><u>Updated Best Trailer Maker Software for Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-is-the-best-time-to-post-on-facebook/"><u>When Is the Best Time to Post on Facebook?</u></a></li>
 </ul></div>
 

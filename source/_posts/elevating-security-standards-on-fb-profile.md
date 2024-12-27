@@ -1,7 +1,7 @@
 ---
 title: Elevating Security Standards on FB Profile
-date: 2024-08-15T18:48:04.922Z
-updated: 2024-08-16T18:48:04.922Z
+date: 2024-12-22T20:29:47.427Z
+updated: 2024-12-27T18:34:21.747Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,19 @@ thumbnail: https://thmb.techidaily.com/c9d63107d989d631581c5dbe79eb35fbfb926a1d5
 
  Facebook’s Safety Check feature is one of the most well-known examples. Here’s how to use it to mark yourself as safe on Facebook during a crisis.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Mark Yourself as Safe on Facebook
 
 The process is the same whether using a mobile or desktop device.
 
 ![facebook crisis response page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-crisis-response-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Go to[Facebook's Crisis Response page](https://www.facebook.com/crisisresponse/) .
 2. You’ll then see a list of active crises, including ones potentially affecting people you know.
@@ -32,6 +40,10 @@ The process is the same whether using a mobile or desktop device.
 5. Select**I'm Safe** to share a post notifying friends that you're safe.
 
 ![safety check note facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/safety-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook uses your location data to show the crises most likely to affect you. However, in some cases, such as when traveling, it may be necessary to mark yourself as safe regarding an event outside where you usually reside.
 
@@ -47,23 +59,19 @@ The process is the same whether using a mobile or desktop device.
 
  Read more:[Common Facebook Problems and Errors (And How to Fix Them)](https://www.makeuseof.com/tag/fix-facebook-problems-errors/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## How to Check a Friend’s Safety
 
  You can also go to the**Safety Check** tab to touch base with an affected friend if you don’t see them showing up as safe through this feature.
 
 1. Select the**More** arrow and choose**Not marked as safe yet** .  
 ![friends not marked as safe yet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/friends-not-marked-as-safe-yet.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 2. Alternatively, use the**Search for friends** box under the**Friends in the area** heading.  
-![facebook safety check search for friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-safety-check-search-for-friends.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![facebook safety check search for friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-safety-check-search-for-friends.jpg)
 3. Provided you have Facebook friends in the affected area, you’ll see an**Ask If Safe** button next to their name.
 
  Suppose you don’t hear back from a friend after using the Safety Check feature to inquire about them? In that case, you should try other avenues of contacting them.
@@ -71,8 +79,9 @@ The process is the same whether using a mobile or desktop device.
  Related:[How to Find the Exact Date You Created Your Facebook Account](https://www.makeuseof.com/find-facebook-account-creation-date/)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Good Intentions Can Backfire
 
  Many things seem like good ideas at the time but eventually show some downsides. Such is the case with Facebook’s Safety Check.
@@ -81,23 +90,17 @@ The process is the same whether using a mobile or desktop device.
 
  It could also cause unnecessary worry among Facebook users. This is especially true if the person near the crisis doesn't use Facebook often and doesn't respond to requests to mark themselves as safe.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## Facebook Safety Check: Is It Worth Using?
 
  The next time you see a safety check notification pop up on Facebook, think carefully about responding to it.
 
  Do you have lots of friends who only communicate with you through the platform? If so, it may prove useful.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,4 +109,24 @@ The process is the same whether using a mobile or desktop device.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-chrome-os-native-screen-recorder/"><u>[New] 2024 Approved Chrome OS Native Screen Recorder</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elevate-edits-complimentary-image-enhancer-app-for-2024/"><u>[New] Elevate Edits - Complimentary Image Enhancer App for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-shoot-and-upload-immersive-footage-on-fb/"><u>[New] In 2024, The Ultimate Guide to Shoot & Upload Immersive Footage on FB</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-youtube-success-top-10-keyword-research-utilities-listed/"><u>[New] Unlocking YouTube Success Top 10 Keyword Research Utilities Listed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-transform-your-live-broadcasting-skills-using-dslr-on-personal-computers-for-2024/"><u>[Updated] Transform Your Live Broadcasting Skills Using DSLR on Personal Computers for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-tips-for-audio-addition-to-powerpoint-decks/"><u>2024 Approved Innovative Tips for Audio Addition to PowerPoint Decks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-turning-twitter-media-into-interactive-expressive-animated-gifs/"><u>2024 Approved Turning Twitter Media Into Interactive, Expressive Animated GIFs</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-updated-fingerprint-drivers-for-windows-systems-here/"><u>Download Updated Fingerprint Drivers for Windows Systems Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-convenience-with-easy-to-modify-fb-links/"><u>Enhance Convenience with Easy-to-Modify FB Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-challenge-in-the-wake-of-ios-145/"><u>Facebook's New Challenge in the Wake of iOS 14.5</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-intel-raid-software-and-driver-updates-compatible-with-win-11-win-10-win-8-and-win-7/"><u>Get the Newest Intel RAID Software & Driver Updates Compatible with Win 11, Win 10, Win 8, and Win 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-learning-with-poll-based-questions/"><u>Maximizing Social Learning with Poll-Based Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-the-metaverse-is-it-superior-to-facebooks-rift-2/"><u>Privacy in the Metaverse: Is It Superior to Facebook's Rift 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-content-circulation-facebook-listens-to-user-voices/"><u>Rethinking Content Circulation: Facebook Listens to User Voices</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-pledges-support-against-global-virus-threat/"><u>Social Media Pledges Support Against Global Virus Threat</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-disclosures-in-facebook-papers-released/"><u>The Essential Disclosures in Facebook Papers Released</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-societys-scorn-towards-online-friendship-groups/"><u>The Puzzle: Society's Scorn Towards Online Friendship Groups</u></a></li>
+</ul></div>
 

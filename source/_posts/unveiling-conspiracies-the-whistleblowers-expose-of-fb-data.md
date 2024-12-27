@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Conspiracies: The Whistleblower's Expose of FB Data"
-date: 2024-08-15T18:50:44.214Z
-updated: 2024-08-16T18:50:44.214Z
+date: 2024-12-21T16:07:31.798Z
+updated: 2024-12-27T19:44:03.169Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
@@ -28,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7 Key Revelations From the Facebook Papers
 
  Given the number of documents turned over to the media, it took a coordinated effort between multiple organizations to comb through and deliver detailed analysis. But, now, there are several major revelations into practices at Facebook regarding human rights, political violence, hate speech, harmful content, and other damning portrayals writ large.
@@ -46,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -62,4 +64,16 @@ thumbnail: https://thmb.techidaily.com/e1c4df4174fbb7e774640c12444893c833b651d1c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/2024-approved-gopro-vlogging-101-techniques-for-a-polished-look/"><u>2024 Approved GoPro Vlogging 101 Techniques for a Polished Look</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instagram-streamlining-the-process-of-image-addition/"><u>2024 Approved Instagram Streamlining the Process of Image Addition</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pivoting-from-srt-to-subtitle-format/"><u>2024 Approved Pivoting From SRT to Subtitle Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-how-facebook-opens-up-with-new-transparency-hub/"><u>Discover How Facebook Opens Up with New Transparency Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebook-supporters/"><u>Discovering Facebook Supporters</u></a></li>
+<li><a href="https://facebook.techidaily.com/e-identity-exposure-investigating-digital-dupes/"><u>E-Identity Exposure: Investigating Digital Dupes</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-music-discovery-integrating-spotify-with-facebook/"><u>Effortless Music Discovery: Integrating Spotify with Facebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-enhance-gaming-experience-with-the-best-speedy-extensions/"><u>In 2024, Enhance Gaming Experience with the Best Speedy Extensions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/incorporating-youtubes-video-content-on-your-domain/"><u>Incorporating YouTube's Video Content on Your Domain</u></a></li>
+</ul></div>
 

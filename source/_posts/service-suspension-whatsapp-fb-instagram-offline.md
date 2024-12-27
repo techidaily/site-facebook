@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2024-12-21T05:47:49.516Z
-updated: 2024-12-21T17:35:56.873Z
+date: 2024-12-26T16:35:31.690Z
+updated: 2024-12-27T18:53:56.133Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
@@ -41,13 +37,13 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -71,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -79,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -87,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
 
@@ -109,18 +109,22 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-tunes-terms-and-copyrights-on-instagram/"><u>[New] Tunes, Terms, and Copyrights on Instagram</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-transform-your-gaming-soundscape-ps5-and-ps4-edition/"><u>[Updated] In 2024, Transform Your Gaming Soundscape PS5 & PS4 Edition</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-premier-video-symposium-life-past-vidcon/"><u>[Updated] The Premier Video Symposium Life Past VidCon</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-oppo-a59-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Oppo A59 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
-<li><a href="https://facebook.techidaily.com/profit-paradigm-shift-top-strategies-for-wealth-building-on-social-media/"><u>Profit Paradigm Shift: Top Strategies for Wealth-Building on Social Media</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-best-10-exercise-tracking-mobile-apps-to-boost-your-gym-routine-2024-edition/"><u>The Best 10 Exercise Tracking Mobile Apps to Boost Your Gym Routine - 2024 Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-samsung-galaxy-s24-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Samsung Galaxy S24 Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlinking-spotify-from-your-fb-account-a-step-by-step-guide/"><u>Unlinking Spotify From Your FB Account: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/unlocking-facebook-video-success-key-strategies-revealed/"><u>Unlocking Facebook Video Success Key Strategies Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwind-with-these-six-reasons-to-let-go-of-facebook/"><u>Unwind with These Six Reasons to Let Go of Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-calls-for-judicial-review-on-indian-communication-policy/"><u>WhatsApp Calls for Judicial Review on Indian Communication Policy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-guffaw-generator-pictorial-editor/"><u>[New] In 2024, Guffaw Generator Pictorial Editor</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-quick-path-to-standout-instagram-reel-content/"><u>[New] In 2024, The Quick Path to Standout Instagram Reel Content</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-compiling-shaders-bug-in-call-of-duty-black-ops-cold-war-for-uninterrupted-play/"><u>How to Fix 'Compiling Shaders' Bug in Call of Duty: Black Ops Cold War for Uninterrupted Play</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-in-online-marketing/"><u>Identifying Prime Moments in Online Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-procedure-to-set-self-as-safe-on-fb/"><u>Identifying the Procedure to Set Self as Safe on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-update-the-hidden-menace-to-facebook/"><u>IOS 14.5 Update: The Hidden Menace to Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-places-to-embark-on-a-freelancing-quest/"><u>Leading Places to Embark on a Freelancing Quest</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mend-cracked-mkv-videos-easily-for-free-with-our-top-ranking-mkv-file-fixer-software/"><u>Mend Cracked MKV Videos Easily for Free With Our Top-Ranking MKV File Fixer Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-undisclosed-strategy-sustains-cost-free-chatting-experience/"><u>Messenger's Undisclosed Strategy Sustains Cost-Free Chatting Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/music-meets-messenger-exploring-facebooks-next-big-move-with-spotify/"><u>Music Meets Messenger: Exploring Facebook's Next Big Move with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-notables-the-top-4-shifts-in-online-societies/"><u>Networking Notables: The Top 4 Shifts in Online Societies</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-oppo-a2-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Oppo A2 Phone Now with These Tips</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-itel-p40-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Itel P40 has been deleted.</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/ripristina-i-tuoi-documenti-eliminati-da-tre-anni-indietro-metodi-gratis-e-semplici/"><u>Ripristina I Tuoi Documenti Eliminati Da Tre Anni Indietro - Metodi Gratis E Semplici</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/efinitive-guide-to-ios-and-android-maker-tools/"><u>The Definitive Guide to iOS & Android Maker Tools</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unstick-your-progress-how-to-fix-phasmophobias-persistent-90-load-in-new-patches/"><u>Unstick Your Progress: How to Fix Phasmophobia's Persistent 90% Load in New Patches</u></a></li>
+<li><a href="https://facebook.techidaily.com/workplace-from-facebook-all-you-need-to-know/"><u>Workplace From Facebook: All You Need to Know</u></a></li>
 </ul></div>
 

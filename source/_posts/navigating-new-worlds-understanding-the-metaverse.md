@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Worlds: Understanding the Metaverse"
-date: 2024-12-19T23:23:02.647Z
-updated: 2024-12-21T21:42:39.319Z
+date: 2024-12-23T19:46:36.146Z
+updated: 2024-12-27T17:06:24.096Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ So, what is the metaverse?
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Etymology and Origin of the Term "Metaverse" and Its Concept
 
 ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -62,10 +62,6 @@ Yet.
 
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
  But, what is the internet? Is it the information you view on your smartphone’s screen? Or, is it the servers storing that information? Or, is it the physical transoceanic landlines that allow the World Wide Web network to come together?
@@ -78,6 +74,10 @@ Yet.
 
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
@@ -87,7 +87,7 @@ Yet.
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Metaverse Precursors
@@ -95,7 +95,7 @@ Yet.
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
@@ -107,13 +107,13 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -136,14 +136,18 @@ Yet.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-10-awesome-ideas-for-igtv-videos-brands-shouldnt-miss-out-on-for-2024/"><u>[Updated] 10 Awesome Ideas for IGTV Videos Brands Shouldn't Miss Out On for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-10-best-travel-youtube-channels-you-may-want-to-follow/"><u>[Updated] 10 Best Travel Youtube Channels You May Want to Follow</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-enhancing-twitters-visual-capacity-to-fhd-level-for-2024/"><u>[Updated] Enhancing Twitter's Visual Capacity to FHD Level for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-the-world-through-your-lens-how-to-become-a-professional-travel-vlogger/"><u>2024 Approved Unveiling the World Through Your Lens How To Become A Professional Travel Vlogger</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-12-pro-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-alert-sidestep-these-three-risky-applications/"><u>Privacy Alert: Sidestep These Three Risky Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-sexts-metas-proactive-measures-online/"><u>Securing Sexts: Meta’s Proactive Measures Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-your-childs-online-journey-with-caution-on-facebook/"><u>Steering Your Child's Online Journey with Caution on Facebook</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-top-techniques-for-streamlining-console-video-saves/"><u>[Updated] Top Techniques for Streamlining Console Video Saves</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/1-lost-saved-excel-file-easy-steps-to-recover-your-data/"><u>1. Lost SAVED EXCEL FILE? Easy Steps to RECOVER Your Data</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Infinix Zero 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovations-in-balancing-exposures-for-perfect-pictures-for-2024/"><u>Innovations in Balancing Exposures for Perfect Pictures for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/joes-plan-leveraging-fb-tweet-and-snap-for-health/"><u>JOE'S PLAN: Leveraging FB, Tweet & Snap for Health</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-emoji-language-with-ease/"><u>Navigating Facebook Emoji Language with Ease</u></a></li>
+<li><a href="https://fox-info.techidaily.com/navigating-the-rainbow-skills-for-cinematic-tinting/"><u>Navigating the Rainbow Skills for Cinematic Tinting</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-the-real-facebook-defections/"><u>Sifting Through the Real Facebook Defections</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-social-habits-leave-facebook-behind/"><u>Transforming Social Habits: Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-apples-rationale-for-metaverse-absence/"><u>Unraveling Apple's Rationale for Metaverse Absence</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-11-interface-revolution-learning-the-widget-basics/"><u>Windows 11 Interface Revolution: Learning the Widget Basics</u></a></li>
 </ul></div>
 

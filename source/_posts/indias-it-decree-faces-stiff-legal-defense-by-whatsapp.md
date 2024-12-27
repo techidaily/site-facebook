@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2024-12-15T19:10:47.852Z
-updated: 2024-12-21T17:10:01.540Z
+date: 2024-12-25T19:11:56.244Z
+updated: 2024-12-27T17:00:14.286Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India's New IT Rules Threaten User Privacy
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
@@ -99,22 +99,24 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-harmonizing-music-posting-with-legal-standards/"><u>[Updated] 2024 Approved Harmonizing Music Posting with Legal Standards</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-gif-grabbers-handbook-a-comprehensible-guide-to-downloading-twitter-gifs/"><u>[Updated] 2024 Approved The GIF Grabber's Handbook A Comprehensible Guide to Downloading Twitter GIFs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-decoding-the-mystery-of-tiktoks-pfp-emoji/"><u>2024 Approved Decoding the Mystery of TikTok's PFP Emoji</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-video-on-ios-top-10-applications-to-watch/"><u>2024 Approved Mastering Video on iOS Top 10 Applications to Watch</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-changing-your-online-profile-password/"><u>A Step-by-Step Guide to Changing Your Online Profile Password</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-operation-principles-behind-photodna/"><u>Discovering the Operation Principles Behind PhotoDNA</u></a></li>
-<li><a href="https://fake-location.techidaily.com/essential-steps-for-auto-gpt-setup/"><u>Essential Steps for Auto-GPT Setup</u></a></li>
-<li><a href="https://games-able.techidaily.com/excellent-deals-in-virtual-reality-tech/"><u>Excellent Deals in Virtual Reality Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-embracing-100-clean-renewable-energy/"><u>FB Embracing 100% Clean, Renewable Energy</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c02-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Nokia C02 Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-access-free-photographic-treasures-through-favored-4-youtube-clips/"><u>In 2024, Access Free Photographic Treasures Through Favored 4 Youtube Clips</u></a></li>
-<li><a href="https://facebook.techidaily.com/influencers-and-the-wave-of-covid-misguidance/"><u>Influencers and the Wave of Covid Misguidance</u></a></li>
-<li><a href="https://win11.techidaily.com/managing-windows-11-shutdown-time-when-running-applications-are-present/"><u>Managing Windows 11 Shutdown Time when Running Applications Are Present</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-engaging-with-your-fb-audience/"><u>Mastering the Art of Engaging with Your FB Audience</u></a></li>
-<li><a href="https://facebook.techidaily.com/reeling-in-social-media-leadership-can-fbs-reels-outshine-tiktok/"><u>Reeling in Social Media Leadership: Can FB's Reels Outshine TikTok?</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-account-facebooks-2fa-step-by-step/"><u>Securing Your Account: Facebook's 2FA Step-by-Step</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-insight-into-vk-russias-social-network-explained/"><u>The Insight Into VK: Russia's Social Network Explained</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-full-breakdown-samsungs-immersive-camera-technology/"><u>[New] Full Breakdown Samsung's Immersive Camera Technology</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-navigating-the-path-to-youtube-video-co-creation-and-partnerships/"><u>[Updated] Navigating the Path to YouTube Video Co-Creation & Partnerships</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-top-10-hd-webcams-essential-purchasing-tips/"><u>2024 Approved Top 10 HD Webcams Essential Purchasing Tips</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-unleashing-the-power-of-cross-platform-video-playback-software/"><u>2024 Approved Unleashing the Power of Cross-Platform Video Playback Software</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124454-9781608825271-calming-the-rush-of-panic/"><u>Calming the Rush of Panic | Free Book</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comctl32dll-missing-heres-how-to-restore-the-file-and-fix-your-pc/"><u>Comctl32.dll Missing? Here's How to Restore the File & Fix Your PC</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/essential-tips-to-confirm-if-your-request-to-chatgpt-is-received/"><u>Essential Tips to Confirm if Your Request to ChatGPT Is Received</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-auto-play-youtube-iphoneandroid-no-notification/"><u>In 2024, Auto-Play YouTube IPhone/Android, No Notification</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Xiaomi 14? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-image-impact-alt-text-strategies-for-facebook/"><u>Maximizing Image Impact: Alt-Text Strategies for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-suitable-social-platforms-for-seniors/"><u>Most Suitable Social Platforms For Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-facebook-web-view-in-the-app/"><u>Preventing Facebook Web View in the App</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-safe-path-dodge-these-invasive-applications/"><u>Privacy-Safe Path: Dodge These Invasive Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-braces-for-a-cryptocurrency-commercial-surge/"><u>Social Media Braces for a Cryptocurrency Commercial Surge</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-showdown-tiktok-vs-the-giant-facebook/"><u>Social Media Showdown: TikTok Vs. The Giant, Facebook</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-must-have-9-tech-products-that-enhance-learning-and-study/"><u>The Must-Have 9 Tech Products That Enhance Learning and Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-what-youve-watched-on-facebook-lately/"><u>Uncovering What You've Watched on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/unhook-spotify-from-your-fb-account-now/"><u>Unhook Spotify From Your FB Account Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-creative-wealth-the-intersection-of-meta-reels-and-remunerations/"><u>Unlocking Creative Wealth: The Intersection of Meta, Reels & Remunerations</u></a></li>
 </ul></div>
 

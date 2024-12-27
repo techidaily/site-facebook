@@ -1,7 +1,7 @@
 ---
 title: How to List Facebook Blockers Effectively
-date: 2024-08-15T18:49:49.813Z
-updated: 2024-08-16T18:49:49.813Z
+date: 2024-12-23T19:55:50.713Z
+updated: 2024-12-27T16:25:32.585Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,21 @@ thumbnail: https://thmb.techidaily.com/157145562d322ac42b18debf7cc17b6e328143a79
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -39,15 +51,9 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -59,8 +65,9 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -70,20 +77,18 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Checking Your Facebook Blocked List
 
  It's fairly easy to view your blocked list on both the mobile app and web browser. It's important to periodically check this list to make sure you're not blocking people accidentally or by mistake. If you do find someone who shouldn't be there, simply unblock them with a click of a button. And if you want to re-establish a connection, go ahead and send them a friend request.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,4 +97,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-tips-for-enhancing-online-presence-with-imovie-on-vimeo/"><u>[New] 2024 Approved Tips for Enhancing Online Presence with iMovie on Vimeo</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-strategic-sharpening-for-pixel-perfect-photos/"><u>[New] Strategic Sharpening for Pixel-Perfect Photos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-step-by-step-instruction-on-downloading-installing-and-using-ez-grabber/"><u>[Updated] In 2024, Step-by-Step Instruction on Downloading, Installing & Using EZ Grabber</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-innovative-computer-components-with-toms-tech-reviews/"><u>Discover Innovative Computer Components with Tom's Tech Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-visibility-and-impact-8-key-differences-between-pages-and-profiles/"><u>Enhancing Visibility and Impact: 8 Key Differences Between Pages & Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-musicians-can-monetize-songs-with-facebooks-innovative-approach/"><u>How Musicians Can Monetize Songs with Facebook's Innovative Approach</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-comprehensive-guide-merging-primary-and-secondary-footage/"><u>In 2024, Comprehensive Guide Merging Primary and Secondary Footage</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfecting-iphone-cinematic-work-top-8-tips-for-excellent-pro-video-production/"><u>In 2024, Perfecting iPhone Cinematic Work Top 8 Tips for Excellent Pro Video Production</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-tecno-spark-20c-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Tecno Spark 20C to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-peer-communication-chamber-mastery-for-rookies/"><u>Pioneering Peer Communication: Chamber Mastery for Rookies</u></a></li>
+<li><a href="https://facebook.techidaily.com/preparation-tips-what-to-think-about-before-sweeping-accounts/"><u>Preparation Tips: What to Think About Before Sweeping Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/protocols-for-identifying-and-reporting-underage-users-on-fb/"><u>Protocols for Identifying and Reporting Underage Users on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-timing-guidelines/"><u>Social Media Timing Guidelines</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-your-fallout-76-connection-issues-on-pc-a-step-by-step-guide/"><u>Solving Your Fallout 76 Connection Issues on PC: A Step-by-Step Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-latest-on-sony-exploring-product-launches-and-developments-at-the-2024-state-of-play/"><u>The Latest on Sony - Exploring Product Launches and Developments at the 2024 State of Play</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-safety-net-what-you-mustnt-disclose-digitally/"><u>The Social Safety Net: What You Mustn't Disclose Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-to-delete-your-online-posts/"><u>Unveiling Secrets to Delete Your Online Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-user-information-effortlessly-on-facebook/"><u>Updating User Information Effortlessly on Facebook</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-redmi-note-13-proplus-5g-video-recovery-recover-deleted-videos-from-xiaomi-redmi-note-13-proplus-5g-by-fonelab-android-recover-video/"><u>Xiaomi Redmi Note 13 Pro+ 5G Video Recovery - Recover Deleted Videos from Xiaomi Redmi Note 13 Pro+ 5G</u></a></li>
+</ul></div>
 

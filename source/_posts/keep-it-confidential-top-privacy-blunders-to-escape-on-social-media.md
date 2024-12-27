@@ -1,7 +1,7 @@
 ---
 title: Keep It Confidential! Top Privacy Blunders to Escape on Social Media
-date: 2024-12-18T02:00:11.194Z
-updated: 2024-12-22T02:03:08.590Z
+date: 2024-12-25T17:24:57.479Z
+updated: 2024-12-27T18:44:13.294Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
@@ -37,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Location Data
 
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -90,13 +86,13 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -105,16 +101,12 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -122,11 +114,19 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -157,19 +157,17 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-add-mp3-elements-to-ppt-display-panels/"><u>[New] Add MP3 Elements to PPT Display Panels</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-complete-narrative-what-is-google-podcast/"><u>[New] Complete Narrative What Is Google Podcast?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-accelerate-your-file-changing-game-srt-to-txt-in-a-flash/"><u>2024 Approved Accelerate Your File Changing Game SRT to TXT in a Flash</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-in-promoting-vacancies-through-fb/"><u>Best Practices in Promoting Vacancies Through FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-spots-to-traverse-for-freelance-employment/"><u>Best Spots to Traverse for Freelance Employment</u></a></li>
-<li><a href="https://facebook.techidaily.com/capture-your-life-stories-mastering-facebook-on-this-day/"><u>Capture Your Life Stories: Mastering Facebook On This Day</u></a></li>
-<li><a href="https://facebook.techidaily.com/career-enhancement-through-effective-social-media-use/"><u>Career Enhancement Through Effective Social Media Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-off-mobile-browsing-feature-facebook/"><u>Cutting Off Mobile Browsing Feature: Facebook</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-designing-the-ideal-youtube-playlist-for-you/"><u>In 2024, Designing the Ideal YouTube Playlist for You</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Motorola Moto E13? | Dr.fone</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/step-by-step-solution-enabling-and-repairing-failed-vcenter-server-domain-authentications/"><u>Step-by-Step Solution: Enabling and Repairing Failed vCenter Server Domain Authentications</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/want-to-know-if-chatgpt-is-active-explore-these-amoebas-for-a-quick-status-update/"><u>Want to Know if ChatGPT Is Active? Explore These Amoebas for a Quick Status Update</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Lava Blaze 2 | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-harmonizing-with-instagram-a-songwriters-legal-framework/"><u>[New] Harmonizing with Instagram A Songwriter’s Legal Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-fb-tracking-with-off-facebook-activity-controls/"><u>Eliminate FB Tracking with Off-Facebook Activity Controls</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-15-plus-ios-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 15 Plus iOS? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/large-digital-entities-face-distrust-but-facebook-leads/"><u>Large Digital Entities Face Distrust, But Facebook Leads</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-2023-release-news-for-upcoming-oculus-quest-model/"><u>No 2023 Release News for Upcoming Oculus Quest Model</u></a></li>
+<li><a href="https://article-tips.techidaily.com/optimal-card-selection-for-professional-video-editing/"><u>Optimal Card Selection for Professional Video Editing</u></a></li>
+<li><a href="https://win-able.techidaily.com/overwatch-2-troubleshooting-guide-fixes-for-launch-failures-1-7/"><u>Overwatch 2 Troubleshooting Guide : Fixes for Launch Failures #1-7</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-scope-expansion-locating-page-and-profile-links-on-fb/"><u>Social Scope Expansion: Locating Page and Profile Links on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-reaccess-facebook-without-original-codes/"><u>Strategies to Reaccess Facebook Without Original Codes</u></a></li>
+<li><a href="https://techtrends.techidaily.com/toms-tech-review-insights-and-analysis-by-toms-hardware/"><u>Tom's Tech Review: Insights and Analysis by Tom's Hardware</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/trouble-with-apple-iphone-6-plus-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with Apple iPhone 6 Plus Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/weaving-a-memorable-tiktok-outro-narrative-for-2024/"><u>Weaving A Memorable TikTok Outro Narrative for 2024</u></a></li>
 </ul></div>
 

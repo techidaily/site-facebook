@@ -1,7 +1,7 @@
 ---
 title: Navigating Facebook Page Setup - The Admin Role
-date: 2024-08-15T18:45:57.364Z
-updated: 2024-08-16T18:45:57.364Z
+date: 2024-12-25T17:13:17.451Z
+updated: 2024-12-27T19:20:17.463Z
 tags:
   - facebook
 categories:
@@ -39,16 +39,14 @@ You actually have five roles to choose from on a Facebook page:
 
  Choosing the right people for the different roles ensures the page’s smooth performance and security.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## How to Add an Admin to Your Facebook Page on Browser
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
@@ -58,8 +56,9 @@ You actually have five roles to choose from on a Facebook page:
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Click on Settings
 
  Once in the**Settings** tab, you’ll find loads of other ways to change how the page performs, from letting visitors share and comment on your posts to censoring profanity and connecting Instagram and WhatsApp.
@@ -67,6 +66,10 @@ You actually have five roles to choose from on a Facebook page:
  In terms of how to make someone an admin on your Facebook page, you need to visit the**Page roles** tab on the**Page settings** menu.
 
 ![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Click on Page Roles
 
@@ -85,8 +88,9 @@ You actually have five roles to choose from on a Facebook page:
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Edit an Admin’s Page Role to Remove Them
 
  If you want to replace or remove your extra administrator, find them in the**Existing Page roles** and click the**Edit** button beside their name.
@@ -96,8 +100,13 @@ You actually have five roles to choose from on a Facebook page:
 ![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add an Admin to Your Facebook Page on Mobile
 
  The steps for assigning a new page admin role on Facebook are the same on mobile, except that the dashboard and buttons differ slightly from the browser-based system.
@@ -109,14 +118,8 @@ Android and iOS platforms differ slightly as well.
 ![Facebook Page Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-page-settings.png)
 
 ![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -132,14 +135,11 @@ The app usually asks for your password to reach the final steps.
 
  There are several measures you can take to keep members happy, safe, and active, like enabling anonymous posting, setting firm rules, and monitoring the situation with your team’s help. All-in-all, good cooperation and communication are key.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +148,20 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-ultimate-guide-to-best-5k-displays-8-edition/"><u>[New] 2024 Approved The Ultimate Guide to Best 5K Displays - #8 Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/beyond-wirecast-top-video-broadcasting-software-for-2024/"><u>Beyond WireCast Top Video Broadcasting Software for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/easy-setup-tutorial-activating-your-account-for-microsoft-bings-smart-search-features/"><u>Easy Setup Tutorial: Activating Your Account for Microsoft Bing's Smart Search Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-your-personalized-facebook-safety-mode/"><u>How to Enable Your Personalized Facebook Safety Mode</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-enjoy-facebook-messaging-features-without-having-your-own-facebook-page/"><u>How to Enjoy Facebook Messaging Features without Having Your Own Facebook Page</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-selection-of-top-free-srt-translators-key-insights-revealed-for-2024/"><u>Mastering Selection of Top Free SRT Translators – Key Insights Revealed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-disconnect-between-instagram-and-facebook/"><u>Navigating the Disconnect Between Instagram and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-your-digital-face-in-the-facebook-world/"><u>Sculpting Your Digital Face in the Facebook World</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-challenge-facebook-vs-apples-ios-145-features/"><u>The New Challenge: Facebook Vs. Apple's iOS 14.5 Features</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-apple-iphone-11-pro-max-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/top-strategies-to-resolve-audio-distortions-for-logitech-g-pro-x-pc-users-2024s-ultimate-fixes/"><u>Top Strategies to Resolve Audio Distortions for Logitech G Pro X PC Users - 2024'S Ultimate Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-id-a-comprehensive-guide/"><u>Unlocking Your Facebook ID: A Comprehensive Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Excluding Political & Religious Discussions in Social Media
-date: 2024-08-15T18:47:38.147Z
-updated: 2024-08-16T18:47:38.147Z
+date: 2024-12-25T17:40:16.964Z
+updated: 2024-12-27T16:56:22.302Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/6644f0a2d74892fa3a39d2d46d9f44395a7ca3377
 
  Facebook will be removing "sensitive information" from user profiles, including addresses, political views, sexual orientation, and religious views. These fields have existed for years on the social media platform, but will be deprecated in a December update.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook to Remove Sensitive Information
 
  Facebook gathers plenty of data from users and has extensive profile fields that allow users to link to family members, show their job history, and flag major life milestones. However, the social media site has attracted controversy in the past for how advertisers were able to use more sensitive data about users to target ads.
@@ -26,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/6644f0a2d74892fa3a39d2d46d9f44395a7ca3377
  But the notice has also started appearing to more users, including MUO staff. Depending on what sensitive information you have on your profile, the notice may differ. However, it confirms that the information will be removed starting 1 December 2022\. Fields that will be removed include**Address** ,**Political Views** ,**Religious Views** , and**Interested In** .
 
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
 
@@ -40,20 +48,18 @@ thumbnail: https://thmb.techidaily.com/6644f0a2d74892fa3a39d2d46d9f44395a7ca3377
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Say Goodbye to Sensitive Information Fields on Facebook
 
  How this update will play out in terms of targeted advertising remains to be seen. While the removal of this information prevents users from directly noting this information in profile fields, advertisers still have plenty of other ways to target you according to these categories by using other data points.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -62,4 +68,16 @@ thumbnail: https://thmb.techidaily.com/6644f0a2d74892fa3a39d2d46d9f44395a7ca3377
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-much-does-pewdiepie-make/"><u>[New] 2024 Approved How Much Does PewDiePie Make</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dealing-with-slow-iphone-screen-turn-off-tips-to-speed-up-the-process/"><u>Dealing with Slow iPhone Screen Turn-Off: Tips to Speed Up the Process</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/fresh-take-on-sony-s6500-hd-dvd-and-bd-player/"><u>Fresh Take on Sony S6500 HD DVD & BD Player</u></a></li>
+<li><a href="https://fox-access.techidaily.com/harness-the-power-of-animoji-on-your-iphone-x/"><u>Harness the Power of Animoji on Your iPhone X</u></a></li>
+<li><a href="https://facebook.techidaily.com/increasing-visibility-of-jobs-with-facebook-posts/"><u>Increasing Visibility of Jobs with Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-facebook-photo-selections/"><u>Perfecting Facebook Photo Selections</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-modernization-trip-going-from-win7-to-11/"><u>The Modernization Trip: Going From Win7 To 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tech-titans-meet-zucks-pet-the-crypto-goat/"><u>The Tech Titans Meet: Zuck's Pet, the Crypto-Goat</u></a></li>
+<li><a href="https://facebook.techidaily.com/unavailable-zones-the-3-countries-without-facebook/"><u>Unavailable Zones: The 3 Countries Without Facebook</u></a></li>
+</ul></div>
 

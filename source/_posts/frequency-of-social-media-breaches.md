@@ -1,7 +1,7 @@
 ---
 title: Frequency of Social Media Breaches
-date: 2024-12-16T19:32:47.428Z
-updated: 2024-12-22T03:00:04.057Z
+date: 2024-12-20T19:44:10.698Z
+updated: 2024-12-27T18:45:48.417Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Common Are Social Media Hacks?
@@ -46,12 +46,16 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Certain things can make you more or less likely to experience a social media account hack.
@@ -64,13 +68,13 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Risks Associated With a Social Media Hack?
 
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
 
@@ -82,13 +86,13 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Handle a Social Media Hack
 
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -121,22 +121,14 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ilmmakers-choice-for-steady-videos-for-2024/"><u>[New] Filmmaker's Choice for Steady Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-guide-to-understanding-youtubes-earnings-mechanics-cpm/"><u>[New] The Essential Guide to Understanding YouTube's Earnings Mechanics (CPM)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-smooth-transition-of-short-videos-to-youtube-device-guide-for-2024/"><u>[Updated] Smooth Transition of Short Videos to YouTube - Device Guide for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-features-of-workplace-from-facebook-for-collaborative-project-management/"><u>8 Features of Workplace From Facebook for Collaborative Project Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-detailed-look-at-facebooks-help-solutions/"><u>A Detailed Look at Facebook's Help Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-online-safety-features-by-sites/"><u>Assessing Online Safety Features by Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/behavior-tracked-data-sold-the-new-trend/"><u>Behavior Tracked, Data Sold: The New Trend</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/cataloging-fb-video-ratios/"><u>Cataloging FB Video Ratios</u></a></li>
-<li><a href="https://facebook.techidaily.com/chat-ghoster-detector-lost-screen-captures-on-messenger/"><u>Chat Ghoster Detector: Lost Screen Captures on Messenger</u></a></li>
-<li><a href="https://win-forum.techidaily.com/connecting-with-millions-insights-into-facebook-twitter-instagram-and-youtube-usage/"><u>Connecting with Millions: Insights Into Facebook, Twitter, Instagram, and YouTube Usage</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/perfecting-file-formats-transforming-docx-into-plain-pdf-text-via-windows-11/"><u>Perfecting File Formats: Transforming DOCX Into Plain PDF Text via Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamp-your-page-personalize-the-url-notify-friends/"><u>Revamp Your Page: Personalize the URL, Notify Friends</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/social-snippets-showcase-twitters-trending-threads-for-2024/"><u>Social Snippets Showcase Twitter’s Trending Threads for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-subtle-art-of-digital-etiquette-in-connection-requests/"><u>The Subtle Art of Digital Etiquette in Connection Requests</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-nokia-g310-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Nokia G310 Device</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/sh-potential-creating-a-youtube-channel-that-shines-in-games/"><u>Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-to-revitalize-your-facebook-identity-snapshot/"><u>When to Revitalize Your Facebook Identity Snapshot</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-bringing-youtube-home-to-your-instagram-story/"><u>[New] In 2024, Bringing YouTube Home to Your Instagram Story</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-celestial-vision-high-definition-touch-screens/"><u>[Updated] Celestial Vision High Definition Touch Screens</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-navigating-netizen-networks-examining-your-and-competing-channels/"><u>[Updated] In 2024, Navigating Netizen Networks Examining Your and Competing Channels</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/advanced-techniques-flawless-insertion-of-vimeo-video-in-slides-for-2024/"><u>Advanced Techniques Flawless Insertion of Vimeo Video in Slides for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/expand-your-professional-circle-by-attracting-business-clients-on-facebook/"><u>Expand Your Professional Circle by Attracting Business Clients on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-unity-on-facebook-acknowledging-each-member/"><u>Group Unity on Facebook: Acknowledging Each Member</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/securing-professional-confidentiality-safeguarding-data-with-chatgpt/"><u>Securing Professional Confidentiality: Safeguarding Data with ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-whitelisted-policies/"><u>Unveiling Facebook’s Whitelisted Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-metas-endorsement-mean-for-you/"><u>What Does Meta's Endorsement Mean for You?</u></a></li>
 </ul></div>
 

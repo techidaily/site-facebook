@@ -1,7 +1,7 @@
 ---
 title: "Stealthy Forum Participation: A Guide"
-date: 2024-08-15T18:53:05.882Z
-updated: 2024-08-16T18:53:05.882Z
+date: 2024-12-22T16:20:23.574Z
+updated: 2024-12-27T18:08:53.811Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/11a5b5bdf5c605b4fbfac8e2beadd347faae794ed
 
  Here’s all you need to know about anonymous posting, along with a walkthrough for using it in a Facebook group.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Brief Background on Anonymous Group Posts
 
  In June 2020, [Facebook](https://www.facebook.com/community/whats-new/new-parenting-group-type/) announced the introduction of a new group type for parents in its community. It came with some features, one of which was the ability to share anonymous group posts.
@@ -26,23 +30,23 @@ thumbnail: https://thmb.techidaily.com/11a5b5bdf5c605b4fbfac8e2beadd347faae794ed
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Post Anonymously in a Facebook Group
 
 ![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![create an anonymous post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-post.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -59,9 +63,6 @@ Close
 
 **Note:** This feature is only available in groups set as parenting groups.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What You Need to Know About Anonymous Posts
 
  All anonymous posts are subject to approval by admins, even if post approval is turned off on the group. This is understandable, as it helps keep spammers at bay.
@@ -73,8 +74,9 @@ Close
  Some post formats are disabled for anonymous posts to protect you from accidentally exposing your identity. You can’t go live or tag people in the Anonymous Post interface.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Now You Know How to Share an Anonymous Post on Facebook
 
  Posting anonymously in a Facebook group is an effective way to share information and express opinions, without revealing your identity to group members.
@@ -83,14 +85,11 @@ Close
 
  You can think of it as an effective way to get your voice heard, but without the pressure of being seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -99,4 +98,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enhancing-speeds-a-safe-guide-for-rapid-music-streaming/"><u>[New] 2024 Approved Enhancing Speeds A Safe Guide for Rapid Music Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mirthvid-quick-start-for-video-makers/"><u>[New] 2024 Approved MirthVid Quick Start for Video Makers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-uncover-the-best-practices-for-video-seo-on-facebook-for-2024/"><u>[New] Uncover the Best Practices for Video SEO on Facebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-reasoning-why-multiple-profiles-are-accepted-under-a-single-account-id/"><u>Analyzing the Reasoning: Why Multiple Profiles Are Accepted Under a Single Account ID</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-ios-video-streaming-tools-for-iphones-ipads/"><u>Best iOS Video Streaming Tools for iPhones, iPads</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-facebook-messenger-dependency/"><u>Breaking Free From Facebook Messenger Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-digital-display-a-guide-to-photo-collage-making/"><u>Crafting Digital Display: A Guide to Photo Collage Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153995431-enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Tecno Pop 8 | Dr.fone</u></a></li>
+</ul></div>
 

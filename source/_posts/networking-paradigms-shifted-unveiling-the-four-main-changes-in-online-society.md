@@ -1,7 +1,7 @@
 ---
 title: "Networking Paradigms Shifted: Unveiling the Four Main Changes in Online Society"
-date: 2024-12-16T04:00:51.581Z
-updated: 2024-12-21T20:58:55.598Z
+date: 2024-12-26T19:33:26.464Z
+updated: 2024-12-27T19:47:13.828Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Facebook’s Increased Focus on the Metaverse
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Elon Musk Took Over Twitter
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  Reels are Instagram’s answer to TikTok gaining popularity. TikTok isn’t the only social media that Instagram copied in 2022 though.[Instagram also tested Candid Stories](https://www.makeuseof.com/instagram-candid-challenges-test-bereal-feature/) in 2022 which are the same concept as new social media app BeReal, where a notification at a random time each day prompts you to immediately post a picture of whatever you are doing at that moment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. The Rise of BeReal
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Social Media in 2022
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
@@ -97,22 +97,18 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-essential-guide-to-creating-popularity-with-youtube-opens/"><u>[New] 2024 Approved Essential Guide to Creating Popularity with YouTube Opens</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-best-video-speed-controller-extensions-a-complete-guide/"><u>[New] Best Video Speed Controller Extensions | A Complete Guide|</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>[New] In 2024, Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/erfect-your-mobile-shoot-expert-picks-of-the-best-9-cam-gear-for-2024/"><u>[New] Perfect Your Mobile Shoot Expert Picks of the Best 9 Cam Gear for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-best-practices-facebooks-role-in-dynamic-work-environments/"><u>8 Best Practices: Facebook's Role in Dynamic Work Environments</u></a></li>
-<li><a href="https://facebook.techidaily.com/anonymous-contribution-techniques-to-groups/"><u>Anonymous Contribution Techniques to Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-act-distributing-content-wisely-amongst-fb-groups/"><u>Balancing Act: Distributing Content Wisely Amongst Fb Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-10-valid-reasons-to-leave-facebook-behind/"><u>Beyond the Newsfeed: 10 Valid Reasons to Leave Facebook Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-the-loop-stop-automated-posts-in-networks/"><u>Break the Loop: Stop Automated Posts in Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-through-facebooks-lockout-barrier/"><u>Breaking Through Facebook's Lockout Barrier</u></a></li>
-<li><a href="https://facebook.techidaily.com/carolyn-everson-announces-departure-from-fb/"><u>Carolyn Everson Announces Departure From FB</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-6s-plus-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your iPhone 6s Plus</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/step-by-step-tutorial-on-converting-3ga-audio-to-mp3-for-free/"><u>Step-by-Step Tutorial on Converting 3GA Audio to MP3 for Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154685992-take-your-fb-content-global-upload-and-transfer-to-major-websites-now/"><u>Take Your Fb Content Global: Upload and Transfer to Major Websites Now</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/the-recorders-report-card-best-in-class-rated/"><u>The Recorder's Report Card Best in Class Rated</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/understanding-graphics-card-malfunctions-identifying-common-triggers-insights-from-yl-computing/"><u>Understanding Graphics Card Malfunctions: Identifying Common Triggers - Insights From YL Computing</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-twitter-elite-moments-live-on-snapchat-for-2024/"><u>[New] Twitter Elite Moments Live on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-quality-guffaws-uncover-the-top-15-youtube-comedy-talents/"><u>[Updated] In 2024, Quality Guffaws Uncover the Top 15 YouTube Comedy Talents</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevate-facebook-videos-with-synchronized-musical-charm/"><u>2024 Approved Elevate Facebook Videos with Synchronized Musical Charm</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1726027394754-youtube/"><u>格安でファイルフォーマット変更 - YouTube動画保存のコツ</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagrams-end-to-end-encryption-awaiting-2022/"><u>Facebook and Instagram's End-to-End Encryption Awaiting 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-update-revamped-reels-rooms-in-stories/"><u>Facebook's Upcoming Update: Revamped Reels, Rooms in Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-newsfeed-just-got-easier-on-fb/"><u>Personalizing Your Newsfeed Just Got Easier on FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simplified-steps-for-effective-telegram-web-use-for-2024/"><u>Simplified Steps for Effective Telegram Web Use for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-fb-image-exposure-settings/"><u>Tailoring FB Image Exposure Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-return-of-trump-via-meta-platforms/"><u>The Return of Trump via Meta Platforms</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-xs-max-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone XS Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upside-to-connectivity-9-good-aspects-of-online-communities/"><u>The Upside to Connectivity: 9 Good Aspects of Online Communities</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/unraveling-the-mystery-behind-your-screens-darkness-a-guide-by-yl-computing/"><u>Unraveling the Mystery Behind Your Screen's Darkness: A Guide by YL Computing</u></a></li>
 </ul></div>
 

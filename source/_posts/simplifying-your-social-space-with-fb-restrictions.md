@@ -1,7 +1,7 @@
 ---
 title: Simplifying Your Social Space with Fb Restrictions
-date: 2024-08-15T18:47:25.796Z
-updated: 2024-08-16T18:47:25.796Z
+date: 2024-12-25T19:35:30.084Z
+updated: 2024-12-27T17:15:33.463Z
 tags:
   - facebook
 categories:
@@ -26,14 +26,8 @@ thumbnail: https://thmb.techidaily.com/6125c16091ce0e7f3e660bdf2f814f5a9cf410dde
 ### 1\. Put Privacy on Your Posts
 
 ![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-post-audience.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -49,14 +43,23 @@ Close
 
  If you have a business and are trying to get customers through Facebook, we recommend[creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Limit People Who Can Search You
 
 ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![How people find and contact you](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/How-people-find-and-contact-you.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -69,6 +72,10 @@ Close
  Limit them from searching your personal Facebook account by changing the settings. This feature is helpful for people who want to keep their professional and personal lives separate.
 
  If your[Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Change Your Messaging Privacy
 
@@ -87,27 +94,22 @@ Close
  Simply open the chat of the person and tap**Block** . Choose**Block Messages and Calls** to stop receiving messages from that specific account. You can unblock them by going through the same steps.
 
 ![Restrict Block or Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Restrict-Block-or-Report.jpg)
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Blocking someone’s messages means they will still be added to your Facebook account, and you can communicate with them through comments, but they won’t be able to text you on Messenger.
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Unfriend or Block a Facebook Account
 
 ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
 ![Block user on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Block-user-on-Facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -123,9 +125,6 @@ Close
 
  You can also[report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Make Facebook a Safe Space for Yourself
 
  Facebook is one of the most widely used applications of all time. Some people like to have some personal space and avoid unwanted messages.
@@ -134,14 +133,11 @@ Close
 
  Multiple safety options make it possible to create a safe space for yourself and your contacts. We recommend reporting any harmful or abusive activity that violates your safety and Facebook policies before blocking that contact.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +146,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-step-by-step-guide-to-perfectly-pair-videos-and-stories/"><u>[Updated] 2024 Approved Step-by-Step Guide to Perfectly Pair Videos and Stories</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data-for-2024/"><u>Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/governments-counteroffensive-against-monopolistic-tech-firms/"><u>Government's Counteroffensive Against Monopolistic Tech Firms</u></a></li>
+<li><a href="https://win11.techidaily.com/leading-7-tools-and-services-for-masterful-youtube-clips-desktop-apps-vs-web-based-options/"><u>Leading 7 Tools and Services for Masterful YouTube Clips: Desktop Apps Vs. Web-Based Options</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/mastering-the-art-of-zoom-filters-for-premium-sessions/"><u>Mastering the Art of Zoom Filters for Premium Sessions</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-in-2024-top-10-robotic-voice-generators/"><u>New In 2024, Top 10 Robotic Voice Generators</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-advantage-of-facebooks-725-million-settlement-provision/"><u>Taking Advantage of Facebook's $725 Million Settlement Provision</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-simplifying-life-why-eliminate-facebook/"><u>The Art of Simplifying Life – Why Eliminate Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-and-your-feed-a-look-at-usage-patterns/"><u>The Social Fabric and Your Feed: A Look at Usage Patterns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshackled-how-abstaining-from-social-screens-changed-me/"><u>Unshackled: How Abstaining From Social Screens Changed Me</u></a></li>
+<li><a href="https://win-best.techidaily.com/3gpwebm/"><u>オンラインで手軽な3GPからWEBMへのフリー変換ツール - マヴァヴィによるチュートリアル</u></a></li>
+</ul></div>
 

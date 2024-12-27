@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Selection Process for My FB Ads
-date: 2024-08-15T18:49:48.702Z
-updated: 2024-08-16T18:49:48.702Z
+date: 2024-12-23T17:30:17.348Z
+updated: 2024-12-27T17:17:58.509Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
 
  Facebook’s**Why am I seeing this ad** option can be useful, but if you really want to learn more about ads on Facebook and how to adjust them to your interests, continue reading.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Know What Ads to Show You?
 
  The way Facebook decides which ads to show you is simply based on the information that you provide, both online and offline.
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
  By using information such as your age, location, app use, page likes, and data from the sites you browse, Facebook is able to learn which advertisements could get your attention.
 
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
 
@@ -38,16 +46,13 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
  Related:[Why Targeted Ads Are a Serious Threat to Your Privacy](https://www.makeuseof.com/tag/targeted-ads-threat-privacy/)  This category includes posts users share on their timeline, pages that they “Like,” and apps that they use.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Behaviors
 
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ### Demographics
 
  This subcategory will reach people by carefully considering certain details, such as their employment, finance, income, household, education, language, and lifestyle.
@@ -64,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
 
  However, since[Facebook’s News Feed](https://www.facebook.com/help/1155510281178725) is still a mystery to many, it has provided a detailed explanation of how all of this works.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Adjust Your Ad Preferences on Facebook
 
  Did you know that you can easily adjust your ad preferences on Facebook?
@@ -71,16 +80,10 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
  You just have to open Facebook. Click on the small triangle in the corner of the screen, then go to**Settings & Privacy** .
 
 ![Facebook Settings & Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings-And-Privacy.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  After that, click**Settings** .
 
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
@@ -93,29 +96,24 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
  The**Ad Settings** section allows you to choose whether you want Facebook to keep showing you personalized ads based on the data from your activity or not.
 
 ![Facebook Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Ad-Settings.jpg)
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 
  Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Let Facebook Know Your Ad Preferences
 
  In order to specifically target users, Facebook uses a lot of complex math and algorithms. It all boils down to the information that you decided to make public. To make your Facebook experience more pleasant, Facebook has provided its users with ways to adjust their ad preferences.
 
  That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +122,20 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-essential-tips-for-designing-engaging-fb-video-covers-for-2024/"><u>[New] Essential Tips for Designing Engaging FB Video Covers for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-perfect-your-gameplay-tips-for-professional-minecraft-sessions-on-mac/"><u>[Updated] 2024 Approved Perfect Your Gameplay Tips for Professional Minecraft Sessions on Mac</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-top-5-mkv-players-for-mac/"><u>[Updated] In 2024, Top 5 MKV Players for Mac</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-ultimate-text-effect-strategies/"><u>2024 Approved Ultimate Text Effect Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-self-safety-marks-on-facebook-network/"><u>Enhancing Self-Safety Marks on Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/envision-your-neighborhoods-future-with-a-social-media-giant-as-local-store-owner/"><u>Envision Your Neighborhood's Future with a Social Media Giant as Local Store Owner</u></a></li>
+<li><a href="https://facebook.techidaily.com/hockey-groups-reject-online-communication/"><u>Hockey Groups Reject Online Communication</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-v29e-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Vivo V29e Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-the-maze-of-personal-style-and-business-identity-for-2024/"><u>Navigating the Maze of Personal Style & Business Identity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-vs-hyperreality-dissecting-metaverse-and-virtual-reality-differences/"><u>Real Vs. Hyperreality: Dissecting Metaverse and Virtual Reality Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-big-screen-at-your-fingertips-with-fb-and-twt/"><u>The Big Screen at Your Fingertips with FB & Twt</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-newbies-guide-to-av1-codec/"><u>The Newbie's Guide to AV1 Codec</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-datas-best-friend-avoid-untrustworthy-apps/"><u>Your Data's Best Friend: Avoid Untrustworthy Apps</u></a></li>
+</ul></div>
 

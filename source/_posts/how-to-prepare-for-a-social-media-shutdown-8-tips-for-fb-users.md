@@ -1,7 +1,7 @@
 ---
 title: "How to Prepare for a Social Media Shutdown: 8 Tips for FB Users"
-date: 2024-08-15T18:47:18.133Z
-updated: 2024-08-16T18:47:18.133Z
+date: 2024-12-20T18:59:44.836Z
+updated: 2024-12-27T19:39:33.040Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
 
  Regardless of the reason, you must perform these eight things before deleting your Facebook account. Let's dive into these factors so that you know what to do.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Inform Your Close Contacts About Your Decision
 
 ![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
@@ -30,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
  Informing your close contacts about such decisions builds better relationships and keeps them close to you.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Save the Media You Wish to Keep
 
  Regular Facebook users upload pictures and videos on the app. Before deciding to delete your Facebook account, you must have shared memorable media with friends. The ideal practice is to save the memories that actually mean something in your life.
@@ -43,9 +48,6 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
 ## 3\. Decide What to Do With Messenger
 
 ![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 
  Initially, Facebook had an integrated messaging and chat system, but that’s not the case anymore. Messenger is a separate app that allows you to call and message people.
 
@@ -59,26 +61,28 @@ thumbnail: https://thmb.techidaily.com/04c62b2f290b2c5f1899e5598ab465be77832cb08
 
 ![Facebook Messenger profile image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Messenger-profile-image.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Messenger Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Messenger-Account-Settings.JPG)
 
 ![Personal information on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-information-on-Messenger.JPG)
 
 ![Manage account of Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Manage-account-of-Messenger.JPG)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 ![Deactivate Messenger account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-Messenger-account.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Change Your Page Admins
 
  Your Facebook pages also get affected when you delete your Facebook account. Pages with sole owners and no other admins get unpublished once the account is deleted. This implies that the page is no longer visible to the public and its members. Also, it loses all the progress, engagement, and likes.
@@ -91,17 +95,9 @@ Close
 
  Once you have talked to someone and promoted them as an admin of your group, they will manage the group, even after you’re gone.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Wind Up Any Professional Business
 
 ![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 
  Facebook has become a hub of professional businesses where everyone can thrive equally. We understand that leaving all that can be difficult if you are among those people. What will happen to your customers? Can you survive without your business?
 
@@ -121,6 +117,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  After downloading, take time to review your data and arrange it into different folders. You can also label them with the names of events, people, and places.
 
  Besides being easy to find, it becomes convenient to discard excess data and get rid of repetitive content.
@@ -133,24 +133,17 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 **Download:** Google Photos for[iOS](https://apps.apple.com/us/app/google-photos/id962194608) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017148/https://play.google.com/store/apps/details?id=com.google.android.apps.photos&hl=en&gl=US)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Leave Facebook But Not the Memories
 
  Despite being an exciting and useful app, some people think it’s better to put an end to using Facebook. When leaving the app for good, organize your memories and save valuable content by downloading it from the app.
 
  You have the option to wind up or pass on any Facebook pages and groups to someone equally passionate about them as you were. If Facebook isn't your thing, try something else. Maybe you’ll find an app that accurately represents your social media presence.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +152,19 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-iphones-best-camera-recording-aid/"><u>[New] 2024 Approved IPhone's Best Camera Recording Aid</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagrams-most-appreciated-ae-layouts/"><u>[Updated] Mastering Instagram's Most Appreciated AE Layouts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-remedies-for-disabling-obs-fullscreen-for-2024/"><u>[Updated] Remedies for Disabling OBS Fullscreen for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streamline-your-content-with-essential-ratio-knowledge-for-youtube/"><u>[Updated] Streamline Your Content with Essential Ratio Knowledge for YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/chill-vibes-at-the-beijing-winter-olympics-2022-for-2024/"><u>Chill Vibes at the Beijing Winter Olympics 2022 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/liberate-your-mindset-the-case-against-facebook/"><u>Liberate Your Mindset: The Case Against Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-mapping-techniques-finding-facebook-profilepage-links/"><u>Social Mapping Techniques: Finding Facebook Profile/Page Links</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-four-main-perks-that-make-claude-3-a-superior-choice-over-chatgpt/"><u>The Four Main Perks That Make Claude 3 a Superior Choice Over ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-must-have-features-in-crowdflower-software-for-marketers/"><u>Top 8 Must-Have Features in CrowdFlower Software for Marketers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ultimate-timeline-tools-at-no-cost-for-2024/"><u>Ultimate Timeline Tools at No Cost for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-truths-from-the-hidden-files-of-facebook/"><u>Uncovering Truths From The Hidden Files of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-portions-of-facebooks-725m-settlement-fund/"><u>Unlocking Portions of Facebook's $725M Settlement Fund</u></a></li>
+</ul></div>
 

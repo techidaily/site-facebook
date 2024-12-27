@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2024-12-14T21:00:38.387Z
-updated: 2024-12-22T06:50:19.503Z
+date: 2024-12-23T20:00:55.862Z
+updated: 2024-12-27T18:40:13.686Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -40,13 +44,13 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
 
@@ -56,13 +60,13 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -90,6 +94,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
@@ -103,16 +111,12 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
 
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -129,10 +133,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -157,22 +157,15 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/300-rifts-as-key-to-unlocking-post-hack-credentials/"><u>$300 Rifts as Key to Unlocking Post-Hack Credentials</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-valheim-vegetation-value-optimal-sapling-guidance/"><u>2024 Approved Valheim Vegetation Value Optimal Sapling Guidance</u></a></li>
-<li><a href="https://facebook.techidaily.com/30-social-media-abbreviations-every-user-should-know/"><u>30 Social Media Abbreviations Every User Should Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/accelerate-connections-with-3-easy-to-learn-facebook-tag-strategies/"><u>Accelerate Connections with 3 Easy-to-Learn Facebook Tag Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/activism-affects-apps-groups-seek-to-lower-social-media-stars/"><u>Activism Affects Apps: Groups Seek to Lower Social Media Stars</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-social-fallout-exiting-virtual-gatherings-wisely/"><u>Avoiding Social Fallout: Exiting Virtual Gatherings Wisely</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-facebooks-new-sonic-connectivity-feature/"><u>Breaking: Facebook's New Sonic Connectivity Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-worlds-or-converging-the-metaverse-and-virtual-reality-split/"><u>Bridging Worlds or Converging? The Metaverse & Virtual Reality Split</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/cementing-your-place-in-youtube-by-mastering-creative-studio-techniques-for-2024/"><u>Cementing Your Place in YouTube by Mastering Creative Studio Techniques for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-custom-viewability-in-social-media-sphere/"><u>Crafting Custom Viewability in Social Media Sphere</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-boost-fps-in-tainted-grail-conquest/"><u>How to Boost FPS in Tainted Grail: Conquest</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-earnings-on-youtube-the-crucial-number-of-video-views-for-money/"><u>In 2024, Earnings on YouTube The Crucial Number of Video Views for Money</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-how-to-mix-audio-tracks-into-one-file-for-a-video/"><u>In 2024, How to Mix Audio Tracks Into One File for A Video?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Vivo S18e? | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/in-2024-top-7-online-auto-subtitle-translators-for-content-creators/"><u>In 2024, Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
-<li><a href="https://techidaily.com/remove-honor-v-purse-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Honor V Purse unlock screen</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-poco-m6-pro-4g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Poco M6 Pro 4G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-the-ultimate-list-recording-digital-tv-programming/"><u>[New] 2024 Approved The Ultimate List Recording Digital TV Programming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-vision-to-visual-impact-youtube-trailers-via-filmora/"><u>[New] From Vision to Visual Impact YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-high-speed-fb-video-techniques-for-smooth-playback/"><u>[New] High-Speed FB Video Techniques for Smooth Playback</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-masterpieces-14-animated-textual-works/"><u>[New] Masterpieces 14 Animated Textual Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-block-in-app-web-view-on-fb/"><u>How to Block In-App Web View on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/show-your-location-in-a-flash-via-fb-chat/"><u>Show Your Location in a Flash via FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-in-strategy-setting-up-and-using-your-facebook-portal-tv/"><u>Step-In Strategy: Setting Up and Using Your Facebook Portal TV</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-smartwatch-functions-and-features/"><u>The Ultimate Guide to Smartwatch Functions & Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-hashtags-for-more-facebook-shares/"><u>Unlocking the Power of Hashtags for More Facebook Shares</u></a></li>
+<li><a href="https://program-issues.techidaily.com/xcom-2-stability-issues-fixing-game-crashes-on-windows-platforms/"><u>XCOM 2 Stability Issues: Fixing Game Crashes on Windows Platforms</u></a></li>
 </ul></div>
 

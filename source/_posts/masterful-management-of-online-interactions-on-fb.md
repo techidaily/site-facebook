@@ -1,7 +1,7 @@
 ---
 title: Masterful Management of Online Interactions on FB
-date: 2024-08-15T18:51:23.979Z
-updated: 2024-08-16T18:51:23.979Z
+date: 2024-12-21T18:21:33.858Z
+updated: 2024-12-27T18:36:54.350Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,11 @@ thumbnail: https://thmb.techidaily.com/c3ba901f926249b24c063d003163e0cc5d148f077
 
  Limiting people on Facebook is super easy. Here are some tips for prohibiting people from contacting you on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Put Privacy on Your Posts
 
 ![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
 
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-post-audience.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -53,7 +47,15 @@ Close
 
 ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![How people find and contact you](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/How-people-find-and-contact-you.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -67,9 +69,6 @@ Close
 
  If your[Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Change Your Messaging Privacy
 
  Facebook has made Messenger its main messaging app. It comes with[several exciting features](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) and privacy settings that encourage users to maintain their desired privacy levels.
@@ -80,9 +79,6 @@ Close
 
  This feature updates your conversations whenever a contact changes their device, reinstalls Messenger, or resets their phone.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Block Messages or Restrict Someone
 
  Is someone irritating to the extent that you don't want them to message you anymore? If so, consider blocking their messages. This feature enables users to only block their messages on Messenger rather than the person itself.
@@ -91,23 +87,25 @@ Close
 
 ![Restrict Block or Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Restrict-Block-or-Report.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Blocking someone’s messages means they will still be added to your Facebook account, and you can communicate with them through comments, but they won’t be able to text you on Messenger.
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Unfriend or Block a Facebook Account
 
 ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
 ![Block user on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Block-user-on-Facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -124,8 +122,9 @@ Close
  You can also[report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make Facebook a Safe Space for Yourself
 
  Facebook is one of the most widely used applications of all time. Some people like to have some personal space and avoid unwanted messages.
@@ -134,14 +133,11 @@ Close
 
  Multiple safety options make it possible to create a safe space for yourself and your contacts. We recommend reporting any harmful or abusive activity that violates your safety and Facebook policies before blocking that contact.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +146,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-highlight-hacks-10-ways-to-captivate-your-followers-for-2024/"><u>[New] Highlight Hacks 10 Ways to Captivate Your Followers for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-short-segment-screenplay-snippet/"><u>[New] Short Segment Screenplay Snippet</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-capture-and-store-facebook-videos-in-hd-for-2024/"><u>[Updated] Capture and Store Facebook Videos in HD for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-next-gen-videostreaming-hubs-triumph-beyond-youtube/"><u>[Updated] Next-Gen Videostreaming Hubs Triumph Beyond Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-screen-reporter-the-ultimate-youtubers-friend/"><u>[Updated] Premium Screen Reporter The Ultimate YouTuber's Friend</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disruption-why-big-tech-faces-government-scrutiny/"><u>Decoding the Disruption: Why Big Tech Faces Government Scrutiny</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-operation-of-photodna-technology/"><u>Delving Into the Operation of PhotoDNA Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/departing-leader-of-facebooks-advertising-strategy/"><u>Departing Leader of Facebook's Advertising Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/dialing-back-time-my-first-day-on-facebook/"><u>Dialing Back Time: My First Day on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-8-key-functions-to-elevate-your-campaign-strategy/"><u>Discover 8 Key Functions to Elevate Your Campaign Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/diversify-chat-partners-integrate-new-individuals-into-fb-messenger/"><u>Diversify Chat Partners: Integrate New Individuals Into FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-purging-facial-data-impact-user-safety-on-facebook/"><u>Does Purging Facial Data Impact User Safety on Facebook?</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/easy-guide-customizing-your-pcs-volume-and-speaker-configurations-via-windows-control-panel-tips-by-yl-computing/"><u>Easy Guide: Customizing Your PC's Volume & Speaker Configurations via Windows Control Panel - Tips by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-process-for-detaching-spotify-from-facebook/"><u>Easy Process for Detaching Spotify From Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/fb-melody-cache-legally/"><u>FB Melody Cache (Legally)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-optimal-focus-techniques-for-videoleap-users/"><u>In 2024, Optimal Focus Techniques for Videoleap Users</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/profit-from-publishing-shopping-reviews-for-2024/"><u>Profit From Publishing Shopping Reviews for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Top Podcasts of '22 - Comprehensive Review & Ratings
-date: 2024-08-15T18:53:14.517Z
-updated: 2024-08-16T18:53:14.517Z
+date: 2024-12-22T16:28:04.748Z
+updated: 2024-12-27T17:34:33.756Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,18 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 
  You can subscribe to the Really Useful Podcast on[Apple Podcasts](https://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) ,[Spotify](https://open.spotify.com/show/283gDxLd6OTNEpRq6tN7ha) ,[Google Podcasts](https://www.google.com/podcasts?feed=aHR0cHM6Ly9hbmNob3IuZm0vcy8zMWJlNDcwL3BvZGNhc3QvcnNz) ,[Amazon Music and Audible](https://music.amazon.co.uk/podcasts/20ab73d4-5da2-46c7-a17f-dc6eb39bdb48/The-Really-Useful-Podcast) ,[Player FM](https://player.fm/series/the-really-useful-podcast-2491856) , or copy the[RSS feed](https://feeds.transistor.fm/the-really-useful-podcast) into your podcast player.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Shownotes
 
 Here's everything we discuss in this week's 2022 special:
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### High points of 2022
 
 * Meta crash and burn
@@ -33,8 +38,9 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Low points of 2022
 
 * [Cryptocurrency crash](https://www.makeuseof.com/us-justice-department-seizes-billions-bitcoin/)
@@ -45,9 +51,9 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best devices of 2022
 
 * [Nothing Phone (1)](https://www.makeuseof.com/nothing-phone-1-review/)
@@ -55,8 +61,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best games of 2022
 
 * [Vampire Survivors](https://poncle.itch.io/vampire-survivors)
@@ -67,14 +74,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Christian Cawley, Gavin Phillips, and Ben Stegner host this podcast. You can contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) ,[@gavinspavin](https://twitter.com/gavinspavin) , and[@stegnersaurus](https://twitter.com/stegnersaurus) , with your suggestions for future topics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -83,4 +87,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-top-picks-elite-4k-displays-for-cutting-edge-editing-for-2024/"><u>[New] Top Picks Elite 4K Displays for Cutting-Edge Editing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-supremacy-on-the-horizon-metas-initiative/"><u>AI Supremacy on the Horizon - Meta's Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-busters-reviving-online-friendships/"><u>Ban Busters: Reviving Online Friendships</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-a-savvy-shopper-top-9-security-measures-for-facebook-sales/"><u>Be a Savvy Shopper: Top 9 Security Measures for Facebook Sales</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/collaboration-facebook-and-rust-for-code-enhancement/"><u>Collaboration: Facebook & Rust for Code Enhancement</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/complete-tutorial-how-to-rejuvenate-your-computers-motherboard-drivers-in-windows-environments/"><u>Complete Tutorial: How to Rejuvenate Your Computer's Motherboard Drivers in Windows Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-effective-job-posts-on-facebook/"><u>Crafting Effective Job Posts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-down-on-selective-marketing-in-digital-communities/"><u>Cut Down on Selective Marketing in Digital Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-off-default-mass-tagging-feature/"><u>Cut Off Default Mass-Tagging Feature</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-create-an-instagram-business-account/"><u>How to Create an Instagram Business Account</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-taking-your-aerial-game-to-new-heights-with-dji-spark-reviewed/"><u>In 2024, Taking Your Aerial Game to New Heights with DJI Spark Reviewed</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-your-airpods-connection-issues-on-pc-a-2024-guide/"><u>Solving Your AirPods Connection Issues on PC: A 2024 Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unleash-video-magic-the-best-camcorders-to-try/"><u>Unleash Video Magic – The Best Camcorders to Try</u></a></li>
+</ul></div>
 

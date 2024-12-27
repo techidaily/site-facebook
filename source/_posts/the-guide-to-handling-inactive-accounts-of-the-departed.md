@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2024-12-18T22:45:34.706Z
-updated: 2024-12-21T23:53:01.387Z
+date: 2024-12-24T16:05:29.246Z
+updated: 2024-12-27T19:49:08.778Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Memorialized
 
  A memorialized Facebook profile becomes a platform for people to remember their loved ones. You can share their memories and talk about them. Once an account is memorialized, it gets “Remembering” in front of the name.
@@ -40,9 +36,17 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
 6. Tap**Send** .
@@ -56,7 +60,7 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
@@ -72,7 +76,7 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -82,10 +86,6 @@ To get a Facebook account memorialized, follow these steps:
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
@@ -97,7 +97,7 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -123,17 +123,20 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-exploring-high-frame-rate-filming-with-yi-for-2024/"><u>[Updated] Exploring High Frame Rate Filming with YI for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streamlining-minecraft-recordings-on-apple-devices/"><u>2024 Approved Streamlining Minecraft Recordings on Apple Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-essential-steps-to-escape-sophisticated-scams/"><u>3 Essential Steps to Escape Sophisticated Scams</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/activate-advanced-protection-features-for-win-11s-edge-using-defender-aguard/"><u>Activate Advanced Protection Features for Win 11'S Edge Using Defender Aguard</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-pitfalls-in-social-media-spot-these-14-common-deceptions/"><u>Avoid Pitfalls in Social Media: Spot These 14 Common Deceptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/ban-defying-the-persistence-of-anti-vax-content-on-fb/"><u>Ban-Defying: The Persistence of Anti-Vax Content on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-connection-with-facebook-daily-replay/"><u>Boosting Connection with Facebook Daily Replay</u></a></li>
-<li><a href="https://facebook.techidaily.com/controlling-access-manage-apps-and-sites-connected-to-your-fb-account/"><u>Controlling Access: Manage Apps and Sites Connected to Your Fb Account</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/video-lessons-to-visual-gigs-youtube-videos-converted-seamlessly/"><u>From Video Lessons to Visual Gigs YouTube Videos Converted Seamlessly</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabled-apple-iphone-se-how-to-unlock-a-disabled-apple-iphone-se-drfone-by-drfone-ios/"><u>In 2024, Disabled Apple iPhone SE How to Unlock a Disabled Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/which-vimeo-e-sy-option-suits-your-needs/"><u>Which Vimeo E-Sy Option Suits Your Needs?</u></a></li>
-<li><a href="https://techidaily.com/y78plus-t1-edition-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Y78+ (T1) Edition support - Turn Off Screen Lock.</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-elevate-your-videos-the-essential-guide-to-screencasts-today/"><u>[Updated] 2024 Approved Elevate Your Videos The Essential Guide to Screencasts Today</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/1728483451318-windows-server/"><u>「一週間毎に実行するWindows Serverバックアップ計画作成法」</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-6s-plus-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone 6s Plus Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/common-fixes-for-resident-evil-4-reborn-gaming-issues/"><u>Common Fixes for 'Resident Evil 4 Reborn' Gaming Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pauses-trump-ban-review-by-regulatory-council/"><u>Facebook Pauses Trump Ban Review by Regulatory Council</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-concerns-escalate-with-ios-145/"><u>Facebook's Privacy Concerns Escalate with iOS 14.5</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-everyone-group-notification-feature/"><u>Halt Everyone Group Notification Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-often-are-social-media-accounts-hacked/"><u>How Often Are Social Media Accounts Hacked?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-a-lost-apple-iphone-se-2022-for-free-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track a Lost Apple iPhone SE (2022) for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-owners-dodge-location-monitoring/"><u>IPhone Owners Dodge Location Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-a-mark-messengers-formatting-fundamentals/"><u>Make a Mark: Messenger's Formatting Fundamentals</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/must-have-specifications-in-mac-audio-editing-applications-for-2024/"><u>Must-Have Specifications in Mac Audio Editing Applications for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-telegrams-advantages-when-fb-was-offline/"><u>Unveiling Telegram's Advantages When FB Was Offline</u></a></li>
+<li><a href="https://windows11.techidaily.com/wintools-comparison-how-chkdsk-and-sfc-differ-from-dissect/"><u>WinTools Comparison: How CHKDSK and SFC Differ From Dissect</u></a></li>
 </ul></div>
 

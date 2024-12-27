@@ -1,7 +1,7 @@
 ---
 title: Traverse Through Virtual Relationships in FB Timeline
-date: 2024-08-15T18:51:46.866Z
-updated: 2024-08-16T18:51:46.866Z
+date: 2024-12-24T18:44:05.593Z
+updated: 2024-12-27T17:18:36.838Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3
 
 ## Traverse Through Virtual Relationships in FB Timeline
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How to See Your Friendship History on Facebook](#how-to-see-your-friendship-history-on-facebook)
@@ -22,8 +26,9 @@ thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3
 * [Is There a Privacy Risk to Viewing Your Facebook Friendships?](#is-there-a-privacy-risk-to-viewing-your-facebook-friendships)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Viewing your friendship history on Facebook lets you see common interests and interactions with friends through a button or URL.
@@ -34,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3
 
  Here's all you need to know about accessing your friendship history on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## How to See Your Friendship History on Facebook
 
  By viewing your friendship history on Facebook, you'll see a list of things you have in common and photos or posts you're both tagged in. There are two ways to view your Facebook friendship history: through a button on the friend's page or a custom URL.
@@ -52,13 +50,18 @@ No advertising on the website.
 3. Click**See Friendship** .
 
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -72,29 +75,9 @@ Close
  You should now be looking at a page that shows any posts, events, photos, and videos the two people are tagged in. At the top it will say,**You and \[Your Friend\]** .
 
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -104,8 +87,9 @@ Key features:
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -114,14 +98,11 @@ Key features:
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +111,26 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-audience-captivation-through-crossfade-mastery-in-audacity/"><u>[New] 2024 Approved Audience Captivation Through Crossfade Mastery in Audacity</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-sleeper-strikers-top-10-undetected-fb-memes/"><u>[New] In 2024, Sleeper Strikers Top 10 Undetected FB Memes</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-the-world-of-youtube-titling-and-tagging/"><u>[Updated] 2024 Approved Navigating the World of YouTube Titling and Tagging</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-the-art-of-igtv-production-phone-and-dslr-techniques/"><u>[Updated] Mastering the Art of IGTV Production Phone and DSLR Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-uniform-visual-clarity-in-microsoft-teams-conferences-for-2024/"><u>[Updated] Uniform Visual Clarity in Microsoft Teams Conferences for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decluttering-tips-for-social-media-savvy/"><u>Decluttering Tips for Social Media Savvy</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-changes-to-home-and-activity-tabs-on-fb/"><u>Decoding Changes to Home and Activity Tabs on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-wait-on-default-e2e-encryption-adoption-until-2023/"><u>Decoding Meta’s Wait on Default E2E Encryption Adoption Until 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-puzzle-essential-findings-from-social-media-snooping/"><u>Decoding the Puzzle: Essential Findings From Social Media Snooping</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discourse-analysis-negative-impact-dominant/"><u>Digital Discourse Analysis: Negative Impact Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-honesty-from-hoodwinked-havens-online/"><u>Discerning Honesty From Hoodwinked Havens Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-virtual-cosmos-is-facebook-a-major-player/"><u>Dissecting the Virtual Cosmos: Is Facebook a Major Player?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-virtual-bonds-the-impact-of-fb-expat-circles/"><u>Dissecting Virtual Bonds: The Impact of FB Expat Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-social-identity-with-a-new-page-title/"><u>Elevate Social Identity with a New PAGE Title</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722963344989-expansion-plans-new-markets-products-or-production-facilities-on-the-horizon/"><u>Expansion Plans: New Markets, Products, or Production Facilities on the Horizon</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-thunderbolt-support-program-for-microsoft-windows/"><u>Get the Newest Thunderbolt Support Program for Microsoft Windows</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/gratuit-online-omzetten-van-een-pgm-naar-jpeg-met-movavi-direct-en-efficient/"><u>Gratuit Online Omzetten Van Een PGM Naar JPEG Met Movavi - Direct en Efficiënt</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/initiate-seamless-gaming-streams-mastering-obs-recording-for-2024/"><u>Initiate Seamless Gaming Streams Mastering OBS Recording for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/unveiling-the-purpose-behind-facebooks-blue-emoji/"><u>Unveiling the Purpose Behind Facebook's Blue Emoji</u></a></li>
+</ul></div>
 

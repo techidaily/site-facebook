@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2024-12-17T20:52:53.950Z
-updated: 2024-12-21T17:36:35.739Z
+date: 2024-12-25T16:22:00.824Z
+updated: 2024-12-27T19:17:59.229Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -47,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -61,19 +57,23 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -92,11 +92,11 @@ Close
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
@@ -121,16 +121,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-enhance-your-online-presence-4-streaming-methods-for-desktop-users/"><u>[Updated] 2024 Approved Enhance Your Online Presence 4 Streaming Methods for Desktop Users</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-elite-4k-screens-the-ultimate-choice/"><u>[Updated] Elite 4K Screens – The Ultimate Choice</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-high-quality-8-android-video-callers-for-groups-above-four/"><u>2024 Approved High-Quality 8 Android Video Callers for Groups Above Four</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprehensive-approach-to-creating-engaging-facebook-events/"><u>A Comprehensive Approach to Creating Engaging Facebook Events</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210758949-9781639365302-ashes-and-stones/"><u>Ashes and Stones | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-clickbait-the-real-costs-of-social-sharing/"><u>Beyond Clickbait: The Real Costs of Social Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-rumor-and-fiction-understanding-the-true-essence-of-fb-papers/"><u>Beyond Rumor and Fiction: Understanding the True Essence of FB Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-streamlined-music-royalties-process/"><u>Breaking Down Facebook’s Streamlined Music Royalties Process</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-private-online-presence-essential-tips-for-fb-users/"><u>Crafting a Private Online Presence: Essential Tips for FB Users</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-chatgpt-a-guide-to-organizing-conversations-with-folders/"><u>Mastering ChatGPT: A Guide to Organizing Conversations with Folders</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96180167-9781938289811-warrior-goddess-wisdom/"><u>Warrior Goddess Wisdom | Free Book</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-maximizing-video-reach-through-title-and-tag-synergy/"><u>[New] 2024 Approved Maximizing Video Reach Through Title & Tag Synergy</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-newcomers-pathway-maximizing-money-on-periscope-platform/"><u>[New] 2024 Approved Newcomer's Pathway Maximizing Money on Periscope Platform</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-explorers-blueprint-how-to-unearth-hidden-discord-communities/"><u>[New] The Explorer's Blueprint How to Unearth Hidden Discord Communities</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-audience-allure-techniques-for-creating-engaging-snap-advertising-for-2024/"><u>[Updated] Audience Allure Techniques for Creating Engaging Snap Advertising for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-short-track-speed-skating-olympics-2022-highlights/"><u>[Updated] Short Track Speed Skating Olympics 2022 Highlights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/a-thorough-analysis-how-a-smaller-lens-enhances-the-impact-of-marvels-spiderman-with-miles-morales/"><u>A Thorough Analysis: How a Smaller Lens Enhances the Impact of Marvel's Spiderman with Miles Morales</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/complete-guide-to-safely-updating-lenovos-bluetooth-drivers-on-windows-7-and-10-devices/"><u>Complete Guide to Safely Updating Lenovo's Bluetooth Drivers on Windows 7 & 10 Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-phase-out-clear-instructions-for-facebook/"><u>Groups Phase-Out: Clear Instructions for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-shopping-online-top-9-facebook-marketplace-safety-strategies/"><u>Secure Shopping Online: Top 9 Facebook Marketplace Safety Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-legal-landscape-for-selfie-submissions/"><u>The Legal Landscape for Selfie Submissions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/tricks-for-faster-instagram-video-views/"><u>Tricks for Faster Instagram Video Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-silent-scream-from-fb/"><u>Understanding The Silent Scream From FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlocking-communication-the-worlds-hardest-languages-decoded/"><u>Unlocking Communication: The World’s Hardest Languages Decoded</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-concealed-causes-behind-fb-disabled/"><u>Unveiling the Concealed Causes Behind FB Disabled</u></a></li>
 </ul></div>
 

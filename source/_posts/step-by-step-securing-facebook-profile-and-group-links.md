@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step: Securing Facebook Profile & Group Links"
-date: 2024-08-15T18:47:41.366Z
-updated: 2024-08-16T18:47:41.366Z
+date: 2024-12-25T18:53:38.546Z
+updated: 2024-12-27T16:23:17.462Z
 tags:
   - facebook
 categories:
@@ -30,9 +30,9 @@ thumbnail: https://thmb.techidaily.com/95f65ec843e39dc81b80b6ffcbfef45d788958cee
  However, depending on whether you're using the mobile app or not, finding these links can be more complicated than expected at times.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Find a Facebook Profile Link on PC
 
 To find your own Facebook profile link:
@@ -42,8 +42,9 @@ To find your own Facebook profile link:
 3. The link in the address bar is the URL of your Facebook profile. Copy and paste it to the desired location.
 
 ![Your Facebook URL](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Your-facebook-URL.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To find the Facebook profile URL of another user:
@@ -53,9 +54,9 @@ To find the Facebook profile URL of another user:
  2\. Once their profile is loaded, the link in the address bar will change to their Facebook username.
 
 ![Facebook URL of another user on PC](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Facebook-URL-of-another-user-on-PC.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3\. Copy the URL from the address bar and paste it at the desired location. The format for the URL is <https://www.facebook.com/username>.
@@ -64,11 +65,16 @@ To find the Facebook profile URL of another user:
 
  You can find a Facebook profile URL on your smartphone through the Facebook mobile app or the browser.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Finding a Profile URL on the Facebook App
 
 ![Open menu on the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Open-menu-on-Facebook-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Go to see your profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-see-your-profile.jpg)
@@ -90,19 +96,10 @@ Close
  If you're using the Facebook mobile website, follow these steps to find your profile's link:
 
 ![Three horizontal bars on the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Three-horizontal-bars-on-the-Facebook-app.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 
 ![Go to your Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-your-Facebook-profile.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Copy link from the drop down menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-from-the-drop-down-menu.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -115,8 +112,9 @@ Close
  If you're searching for the link to another user's profile, follow these steps:
 
 ![Search a profile on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Search-a-profile-on-the-browser.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![URL of another user on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/URL-of-another-user-on-the-browser.jpg)
@@ -126,16 +124,10 @@ Close
 1. Use the search bar to find the profile.
 2. Open the profile and click on the address bar. The link is their Facebook Profile URL. Copy and paste it to the desired field.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## How to Find and Share a Facebook Page Link
 
  You can search for and find a Facebook page's link on both using either your PC or smartphone.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Finding a Facebook Page URL on PC
 
 1. Log in to your Facebook account using your desktop browser.
@@ -149,14 +141,12 @@ Close
 If you're using the Facebook app:
 
 ![Arrow-on-top-of-a-Facebook-page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Arrow-on-top-of-a-Facebook-page.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Copy link of the Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-the-Facebook-page.jpg)
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -177,8 +167,9 @@ Close
 3. Copy the link in the address bar as it’s the URL of the page.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Find a Facebook Group URL
 
  Facebook groups can be public or private. You can share any group by copying its link.
@@ -191,6 +182,10 @@ Close
 
 ![Go to Share and Copy Link](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-Share-and-Copy-Link.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Find a Facebook Group Link on Mobile
 
  When using a smartphone, you can use your Facebook app or browser to find the URL of any group.
@@ -200,9 +195,6 @@ If you opt for the Facebook app:
 ![Share Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-Facebook-group.jpg)
 
 ![Copy link of Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Copy-link-of-Facebook-group.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -215,6 +207,10 @@ If you're going with a mobile web browser:
 ![Go to the Facebook group on the browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Go-to-the-Facebook-group-on-the-browser.jpg)
 
 ![Share the group via browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Share-the-group-via-browser.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -229,14 +225,11 @@ Close
 
  When copying URLs of profiles and groups, it is essential to remember that contents in the Private/Friends Only mode are only accessible by people added in that particular section.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -245,4 +238,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-as-a-learning-tool-insider-advice-for-teachers/"><u>[New] 2024 Approved YouTube as a Learning Tool Insider Advice for Teachers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-navigating-the-digital-realm-uploading-with-premiere-and-youtube/"><u>[New] Navigating the Digital Realm Uploading with Premiere & YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-best-laptops-for-video-editing/"><u>[New] The Best Laptops for Video Editing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cost-free-win-10-screencast-solutions-top-5-picks/"><u>[Updated] 2024 Approved Cost-Free Win 10 Screencast Solutions Top 5 Picks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/2024-ultimate-selection-leading-security-keys-vetted-by-professionals-zdnet/"><u>2024 Ultimate Selection: Leading Security Keys Vetted by Professionals | ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-do-you-hide-your-chats-on-messenger/"><u>How Do You Hide Your Chats on Messenger?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-asus-rog-phone-7-ultimate-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Asus ROG Phone 7 Ultimate Quickly? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-how-to-record-a-powerpoint-presentation/"><u>In 2024, How to Record a PowerPoint Presentation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unraveling-the-latest-features-of-lgs-360-camera-series/"><u>In 2024, Unraveling the Latest Features of LG's 360 Camera Series</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unveiling-the-best-practices-in-cds-ripping-and-burning-with-win-media/"><u>In 2024, Unveiling the Best Practices in Cds Ripping & Burning with Win, Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-invisible-participation-in-fb-groups/"><u>Mastering Invisible Participation in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-free-digital-aides-to-streamline-social/"><u>Prime Free Digital Aides to Streamline Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/pushing-boundaries-in-smm-creativity-using-ripl/"><u>Pushing Boundaries in SMM Creativity Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-remedies-for-popular-facebook-challenges-and-hurdles/"><u>Quick Remedies for Popular Facebook Challenges and Hurdles</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-strategy-combined-coverage-of-the-wnb/"><u>Social Strategy: Combined Coverage of the WNB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-elevate-your-fb-profile-professionally/"><u>Strategies to Elevate Your FB Profile Professionally</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-of-facebooks-renaming-rumor/"><u>Unveiling the Secrets of Facebook's Renaming Rumor</u></a></li>
+</ul></div>
 

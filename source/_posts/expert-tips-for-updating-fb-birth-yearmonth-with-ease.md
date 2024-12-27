@@ -1,7 +1,7 @@
 ---
 title: Expert Tips for Updating FB Birth Year/Month with Ease
-date: 2024-08-15T18:47:45.614Z
-updated: 2024-08-16T18:47:45.614Z
+date: 2024-12-22T19:49:45.386Z
+updated: 2024-12-27T17:50:42.066Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/07f3d5f057a0a1f3c1d2492add732e27fc47138ba
 
  If you've ever received greetings from your Facebook friends on a date that wasn't your birthday, this article is for you. We'll show you how to change your Facebook birthday to avoid those wishes coming on the wrong date.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Know Before Changing Your Birthday on Facebook
 
  Before we go into the steps to changing your birthday on Facebook, let us cover some preliminary information.
@@ -31,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/07f3d5f057a0a1f3c1d2492add732e27fc47138ba
 
  Also, you can only change your birthday three times. Well, maybe more, but you'll have to send a request for the fourth time, and Facebook staff will make the change for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Your Birthday on the Facebook App
 
 Follow the steps below to edit your birthday on the Facebook app.
@@ -38,19 +46,14 @@ Follow the steps below to edit your birthday on the Facebook app.
 ![facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page.jpg)
 
 ![Edit basic info on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Edit-basic-info-on-facebook-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -62,8 +65,9 @@ Close
 6. Check the confirmation box, scroll down, and tap**Save** .
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Change Your Facebook Birthday on the Web
 
 Here's how:
@@ -83,16 +87,13 @@ Here's how:
 * Scroll down to where you'll find your birth date and birth year.
 
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Request a Birthday Change to Facebook
@@ -107,8 +108,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Select a reason for the change in the dropdown menu and click send.
 
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Facebook will then correct the error in your birthdate as soon as your request is processed.
@@ -119,14 +121,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  One other importance of having accurate information, like birthdays, on your Facebook account is that they sometimes require government-issued IDs that show your actual birthday when retrieving an account. So if the birthdate on your ID and on the social media platform doesn't match up, you might lose your account permanently.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +134,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/ed-digital-splendor-on-youtube-the-hue-harmonization-way/"><u>[Updated] Digital Splendor on YouTube The Hue Harmonization Way</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/addressing-the-lack-of-novelty-in-virtual-reality-for-2024/"><u>Addressing the Lack of Novelty in Virtual Reality for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210089121-9781952312304-faith-without-works/"><u>Faith Without Works | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-request-a-refund-on-facebook/"><u>How to Request a Refund on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/identify-potential-threats-to-your-fb-profile/"><u>Identify Potential Threats to Your FB Profile</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-client-engagement-through-facebook-marketing-strategies/"><u>Mastering Client Engagement Through Facebook Marketing Strategies</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/step-by-step-guide-to-successfully-watching-high-definition-8k-4320p-content-on-mac-and-pc/"><u>Step-by-Step Guide to Successfully Watching High-Definition 8K, 4320P Content on Mac and PC</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-selecting-the-ideal-livestream-service/"><u>The Art of Selecting the Ideal Livestream Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-cleaning-your-fb-discussions/"><u>The Ultimate Guide to Cleaning Your FB Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-potential-identifying-best-tools-for-corporate-reach/"><u>Unleash Potential: Identifying Best Tools for Corporate Reach</u></a></li>
+</ul></div>
 

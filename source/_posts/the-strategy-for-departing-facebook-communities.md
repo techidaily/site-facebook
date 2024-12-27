@@ -1,7 +1,7 @@
 ---
 title: The Strategy for Departing Facebook Communities
-date: 2024-08-15T18:48:01.640Z
-updated: 2024-08-16T18:48:01.641Z
+date: 2024-12-23T19:47:28.565Z
+updated: 2024-12-27T17:20:28.072Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/b6441b39a339f8611b1685213d19341febe69f71b
 
 Here's all you need to know...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Leave a Facebook Group on Desktop
 
  First of all, if you’re new to Facebook groups, you may want to read this[intro to Facebook groups](https://www.makeuseof.com/tag/facebook-closed-secret-groups/) , to understand how to use them better.
@@ -39,26 +43,27 @@ Here's all you need to know...
 
 ![leave Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You’ll see a popup that asks if you’re sure. In that popup, you can also pick the option that prevents people from adding you to the group again in the future.
 
 ![leave-Facebook-group-are-you-sure](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-are-you-sure.png)
 
  That’s it, you’re no longer a member of that group, and won’t receive any more notifications from it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do I Leave a Facebook Group on My Mobile?
 
 ![your-facebook-groups-app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/your-Facebook-groups-app.png)
 
 ![mobile Facebook groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/mobile-Facebook-groups.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 ![Your groups on Facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Your-groups-on-Facebook-mobile.png)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -71,19 +76,18 @@ Close
 5. The last screen will ask for some feedback, which you can just close if you don’t have any.
 
 ![leave Facebook group app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-app.png)
+
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![leave Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-mobile.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![feedback about Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/feedback-about-Facebook-group-mobile.png)
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -91,23 +95,17 @@ Close
 
  Read more: [Ways Facebook Is Cracking Down on Groups Which Break the Rules](https://www.makeuseof.com/ways-facebook-cracking-down-on-groups-break-rules/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ## Stay in a Facebook Group, but Receive Less Spam
 
  If you’re only annoyed about the number of notifications and posts you get from a group, but like it otherwise, you don’t have to leave it. First, you can manage the notifications, and only receive alerts about highlights, posts from friends, or none at all.
 
  You can also choose to unfollow the group, which will block all of its content from your feed but will still allow you to visit it and post in it without interruptions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +114,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-movavi-screen-recorder-11-review/"><u>[Updated] In 2024, Movavi Screen Recorder 11 Review</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-kinemaster-insider-the-art-of-seamless-video-transitions/"><u>[Updated] Kinemaster Insider The Art of Seamless Video Transitions</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-path-to-richer-textual-design-in-ae/"><u>2024 Approved The Path to Richer Textual Design in AE</u></a></li>
+<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-the-art-of-youtube-success-with-premier-rank-tools-for-2024/"><u>Master the Art of YouTube Success with Premier Rank Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/nearly-all-iphones-dodging-app-data-collection/"><u>Nearly All iPhones Dodging App Data Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-an-invalidated-facebook-login-attempt/"><u>Recovering an Invalidated Facebook Login Attempt</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/regain-power-to-edit-and-markup-in-windows-based-pdfs/"><u>Regain Power to Edit and Markup in Windows-Based PDFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reemergence-of-second-life-metaverse-trends-examined/"><u>The Reemergence of Second Life: Metaverse Trends Examined</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-xiaomi-redmi-k70e-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Xiaomi Redmi K70E to Gmail | Dr.fone</u></a></li>
+</ul></div>
 

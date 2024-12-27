@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2024-12-21T04:39:42.046Z
-updated: 2024-12-22T00:10:41.140Z
+date: 2024-12-24T16:22:54.303Z
+updated: 2024-12-27T19:01:54.060Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Enjoy Your Favorite Spotify Content on the Facebook App
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
@@ -61,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -77,7 +77,7 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
@@ -101,19 +101,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-home-studio-heroics-your-path-to-effectful-artistry/"><u>[New] 2024 Approved Home Studio Heroics Your Path to Effectful Artistry</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-timeless-stop-motion-films-a-celebratory-15-list/"><u>[New] Timeless Stop-Motion Films - A Celebratory 15 List</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-luminous-likes-three-proven-ways-for-insta-highlights/"><u>[Updated] Luminous Likes Three Proven Ways for Insta Highlights</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-an-online-persona-with-a-facebook-image/"><u>Creating an Online Persona with a Facebook Image</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-big-blunders-a-list-of-5-user-missteps/"><u>Facebook's Big Blunders: A List of 5 User Missteps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-y100i-by-fonelab-android-recover-video/"><u>How to recover old videos from your Y100i</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-honor-magic5-ultimate-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Honor Magic5 Ultimate to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/linkedins-sneaky-approach-to-user-activity-and-app-availability/"><u>LinkedIn's Sneaky Approach to User Activity and App Availability</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/movavi-video-converter-easily-change-your-videos-from-3gp-to-high-quality-mp4-and-various-formats/"><u>Movavi Video Converter: Easily Change Your Videos From 3GP to High-Quality MP4 and Various Formats!</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls</u></a></li>
-<li><a href="https://facebook.techidaily.com/shielding-your-snapshots-from-public-eyes/"><u>Shielding Your Snapshots From Public Eyes</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-ties-7-innovative-ways-online-to-converge/"><u>Social Ties: 7 Innovative Ways Online to Converge</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/syncing-songs-safely-with-insta-rules-for-2024/"><u>Syncing Songs Safely with Insta Rules for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455490-9798218506162-transformative-declarations/"><u>Transformative Declarations | Free Book</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-balance-tint-editor-pro/"><u>[New] Balance Tint Editor Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-mirth-mechanics-gratis-tools-to-amuse-and-entertain-for-2024/"><u>[New] Mirth Mechanics Gratis Tools to Amuse and Entertain for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-perfecting-the-synergy-of-visuals-and-voiceovers-in-videos/"><u>[New] Perfecting the Synergy of Visuals and Voiceovers in Videos</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-from-setting-up-to-broadcasting-a-discoguide/"><u>[Updated] From Setting Up to Broadcasting A DiscoGuide</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-audiences-to-establish-authority/"><u>Engaging Audiences to Establish Authority</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-insights-on-constructing-high-quality-srt-files-for-2024/"><u>Expert Insights on Constructing High-Quality SRT Files for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/improved-account-safety-receive-instagram-codes-on-whatsapp/"><u>Improved Account Safety: Receive Instagram Codes on WhatsApp</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-vivo-y36i-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Vivo Y36i to Another | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimize-accessibility-top-free-speech-conversion-tools-for-macos/"><u>In 2024, Optimize Accessibility Top Free Speech Conversion Tools for MacOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/recognize-the-risks-avoid-these-14-standard-facebook-scams/"><u>Recognize the Risks: Avoid These 14 Standard Facebook Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-model-adapted-by-social-platforms-for-better-knowledge-sharing/"><u>Twitter's Model Adapted by Social Platforms for Better Knowledge Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-facebooks-safety-features-how-to-enable-protect/"><u>Unlocking Facebook's Safety Features: How to Enable Protect</u></a></li>
 </ul></div>
 

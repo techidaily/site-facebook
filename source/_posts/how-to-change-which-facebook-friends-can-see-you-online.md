@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-12-14T17:07:50.302Z
-updated: 2024-12-22T00:59:57.971Z
+date: 2024-12-25T16:02:18.523Z
+updated: 2024-12-27T20:55:11.769Z
 tags:
   - facebook
 categories:
@@ -50,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -64,11 +68,11 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
 
@@ -83,10 +87,14 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -102,7 +110,7 @@ Close
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
@@ -125,19 +133,11 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -160,24 +160,24 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-skip-without-missing-tips-on-bypassing-edgenuity-video-lessons/"><u>[New] How to Skip Without Missing Tips on Bypassing Edgenuity Video Lessons</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-splitcam-review-does-it-reign-supreme-in-video-tech/"><u>[New] SplitCam Review Does It Reign Supreme in Video Tech?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-stunning-insta-films-templates-plus-hacks-for-2024/"><u>[Updated] Crafting Stunning Insta Films Templates + Hacks for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-fitness-routine-top-10-yoga-streams-unveiled/"><u>[Updated] In 2024, Elevate Your Fitness Routine - Top 10 Yoga Streams Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-innovative-uses-of-facebook-in-modern-project-coordination/"><u>8 Innovative Uses of Facebook in Modern Project Coordination</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/dvda-dvd-avi-mp4-h264-androidiphone/"><u>免费 DVDA转制软件，将 DVD 内容转为 AVI MP4 H264 - 适用于 Android、iPhone 与平板设备的自由工具</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-bold-bet-on-content-facebooks-5m-venture-to-challenge-substacks-writer-community/"><u>A Bold Bet on Content: Facebook's $5M Venture to Challenge Substack’s Writer Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/adjusting-your-fb-birthdate-step-by-step-guide/"><u>Adjusting Your FB Birthdate: Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/alternatives-to-messenger-no-social-media-required/"><u>Alternatives to Messenger: No Social Media Required</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-assessment-for-(securityfacebookmailcom)-as-a-secure-mail-service/"><u>Authenticity Assessment for @<security@facebookmail.com> as a Secure Mail Service</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-social-pitfalls-untaging-tips-and-tricks/"><u>Avoid Social Pitfalls: Untaging Tips and Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-functionality-with-privacy-facebooks-extended-services/"><u>Balancing Functionality with Privacy: Facebook's Extended Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/career-boosting-effective-social-networking-techniques/"><u>Career Boosting: Effective Social Networking Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/covert-commentary-for-online-communities/"><u>Covert Commentary for Online Communities</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721099149526-how-to-fix-nvidia-driver-not-compatible-with-this-version-of-windows/"><u>How to Fix 'NVIDIA Driver Not Compatible with This Version of Windows'</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-new-lens-on-sonys-s6500-bdp-features/"><u>In 2024, The New Lens on Sony’s S6500 BDP Features</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/remove-protections-free-guide-on-how-to-take-off-drm-from-epub-books/"><u>Remove Protections: Free Guide on How to Take Off DRM From EPUB Books</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-mac-os-guide-for-screen-casting-for-2024/"><u>The Ultimate Mac OS Guide for Screen Casting for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unlock-your-productivity-game-get-50-off-a-portable-foldable-monitor-just-in-time-for-prime-day-zdnet/"><u>Unlock Your Productivity Game: Get 50% Off a Portable, Foldable Monitor Just in Time for Prime Day | ZDNET</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-guide-to-progressive-audio-diminishment-via-lumafusion-for-2024/"><u>[New] Guide to Progressive Audio Diminishment via Lumafusion for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-expert-tips-reversed-color-effects-in-pictures/"><u>[Updated] Expert Tips Reversed Color Effects in Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-general-user-tagging-effect/"><u>Ending General User Tagging Effect</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-towards-innovation-facebooks-portable-portal-launched/"><u>Go Towards Innovation: Facebook’s Portable Portal Launched</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-gionee-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Gionee</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-and-discreetly-delete-a-facebook-story/"><u>How to Quickly and Discreetly Delete a Facebook Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-poll-games-on-messenger-to-learn-more-about-your-friends/"><u>How to Use Poll Games on Messenger to Learn More About Your Friends</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-iphone-15-without-passcode-now-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock iPhone 15 Without Passcode Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-proven-marketing-spells-20-must-use-terms/"><u>In 2024, Proven Marketing Spells 20 Must-Use Terms</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-ultimate-list-top-10-subtitle-editors-web/"><u>In 2024, Ultimate List Top 10 Subtitle Editors Web</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/independence-day-deal-alert-score-apples-top-rated-airpods-at-a-steal-with-40-off-insights/"><u>Independence Day Deal Alert: Score Apple's Top-Rated AirPods at a Steal with $40 Off | Insights</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/leading-innovative-smart-spectacles-2024-edition/"><u>Leading Innovative Smart Spectacles - 2024 Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-rooms-on-the-rise-for-facebook-stories-panels/"><u>Reels and Rooms on the Rise for Facebook Stories Panels?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailor-a-smaller-spotlight-for-social-media-marketing/"><u>Tailor a Smaller Spotlight for Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-and-economy-of-videos-how-metrics-and-meta-fuel-creative-finance/"><u>The Art & Economy of Videos: How Metrics and Meta Fuel Creative Finance</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-balance-understanding-new-us-antitrust-laws-effects/"><u>The Battle for Balance: Understanding New US Antitrust Laws' Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-gentle-approach-to-online-jokes-and-banter/"><u>The Gentle Approach to Online Jokes & Banter</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-imessage-fun-the-best-games/"><u>Top 7 iMessage Fun: The Best Games</u></a></li>
 </ul></div>
 

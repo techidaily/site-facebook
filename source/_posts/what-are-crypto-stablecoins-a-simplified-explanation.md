@@ -1,7 +1,7 @@
 ---
 title: What Are Crypto Stablecoins? A Simplified Explanation
-date: 2024-12-17T17:13:43.217Z
-updated: 2024-12-22T05:15:37.936Z
+date: 2024-12-23T20:05:54.247Z
+updated: 2024-12-27T16:26:01.368Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/787eeaa7ff322b9215aaa10fafb3d58916c322d18
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Stablecoins?
@@ -43,7 +43,7 @@ That's where stablecoins come in.
  Stablecoins are blockchain-based digital currencies just like Bitcoin or Ethereum, but they are designed to maintain a consistent price over time, usually by being pegged to the value of another currency or being backed by a trusted agency.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do Stablecoins Work?
@@ -66,6 +66,10 @@ Image Credit: Tether
 
  Facebook's proposed Diem stablecoin (formerly Libra) would get around this issue in part by being backed by a basket of reserve currencies from around the world. If one or even a few of these assets experienced price instability, it would be checked by the stability of the other assets. That would allow Diem to maintain a more stable price than any individual asset backing the coin.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### CBDCs Are a Subset of Stablecoins
 
  When a government launches its own stablecoin, this class of stablecoin is called a "central bank digital currency" or "CBDC" for short. Right now, China is the only country with a CBDC, though India, the United Kingdom, the United States, and other countries have publicly considered the idea.
@@ -73,16 +77,12 @@ Image Credit: Tether
  While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## More Stablecoin Examples and Use Cases
 
  The benefits of using a stable coin often depend on the coin as well as who issues it. There are several stablecoins already out there, including those that have already been discussed in this article. However, some proposed stablecoins could offer even more utility in the future.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### CBDCs Could Help Governments Regulate and Issue Currency
 
@@ -90,13 +90,13 @@ Image Credit: Tether
 
  While China uses its CBDC as a surveillance tool, U.S. Fed Chair Jerome Powell has said that the private nature of cryptocurrencies is a reason for the U.S. not to build a CBDC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Stablecoins Could Provide Financial Infrastructure to the Unbanked
 
 ![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
 
@@ -129,16 +129,24 @@ Image Credit: Tether
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-a-step-by-step-approach-to-assembling-picture-panoramas/"><u>[New] A Step-by-Step Approach to Assembling Picture Panoramas</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-visionary-the-ultimate-reddit-marketing-blueprint/"><u>[New] From Novice to Visionary The Ultimate Reddit Marketing Blueprint</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-discover-the-magic-of-jujutsu-kaisen-with-tiktok-videos/"><u>[Updated] Discover the Magic of Jujutsu Kaisen with TikTok Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youthful-wealth-wonders-a-look-at-ryans-online-riches/"><u>[Updated] In 2024, Youthful Wealth Wonders A Look at Ryan's Online Riches</u></a></li>
-<li><a href="https://facebook.techidaily.com/advocates-push-for-better-scam-ad-detection-systems-in-social-networks/"><u>Advocates Push for Better Scam Ad Detection Systems in Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-social-networks-delving-into-the-digital-reality-of-fbs-metaverse/"><u>Beyond Social Networks: Delving Into the Digital Reality of FB's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/block-group-wide-emoticon-tags-everyone/"><u>Block Group-Wide Emoticon Tags (@Everyone)</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-deleted-instagram-posts-resurface/"><u>Can Deleted Instagram Posts Resurface?</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-strangers-find-my-phone-number-via-facebook/"><u>Can Strangers Find My Phone Number via Facebook?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/internet-explorer-display-troubles-resolved-techniques-and-tips/"><u>Internet Explorer Display Troubles - Resolved Techniques and Tips</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/unleashing-hidden-media-from-your-connected-friends-for-2024/"><u>Unleashing Hidden Media From Your Connected Friends for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-explore-and-understand-what-does-pfp-mean-on-tiktok/"><u>[New] In 2024, Explore and Understand What Does PFP Mean on TikTok?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-turn-your-mobile-videos-into-profitable-content-on-youtube/"><u>[New] Turn Your Mobile Videos Into Profitable Content on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-delightful-stream-extractor-report-for-2024/"><u>[Updated] Delightful Stream Extractor Report for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-movements-intova-xs-video-excellence-for-2024/"><u>[Updated] Mastering Movements Intova X's Video Excellence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/expecting-facebooks-next-update-inclusion-of-reels-and-rooms-in-stories/"><u>Expecting Facebook's Next Update: Inclusion of Reels & Rooms in Stories</u></a></li>
+<li><a href="https://discover-best.techidaily.com/explorez-les-dix-outils-premiers-pour-creer-des-diaporamas-images-sur-macos-guide-complet-et-analyse/"><u>Explorez Les Dix Outils Premiers Pour Créer Des Diaporamas Images Sur macOS - Guide Complet Et Analyse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-foresees-fresh-approach-towards-teen-instagram-habits/"><u>Facebook Foresees Fresh Approach Towards Teen Instagram Habits</u></a></li>
+<li><a href="https://games-able.techidaily.com/find-the-ultimate-elgato-stream-deck-model/"><u>Find the Ultimate Elgato Stream Deck Model</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-quest-for-new-digital-connections-on-facebook/"><u>Mastering the Quest for New Digital Connections on Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pronunciation-prowess-engage-in-twisting-words/"><u>Pronunciation Prowess: Engage in Twisting Words</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-sharing-with-technology-automatic-image-descriptors-on-fb/"><u>Seamless Sharing with Technology: Automatic Image Descriptors on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-operations-uncover-8-crowdflower-capabilities/"><u>Streamlining Operations: Uncover 8 CrowdFlower Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-12-catalysts-of-covid-19-misinformation/"><u>The 12 Catalysts of Covid-19 Misinformation</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-path-to-gaining-official-recognition-becoming-a-verified-user-on-instagram/"><u>The Path to Gaining Official Recognition: Becoming a Verified User on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-9-indicators-when-your-social-networks-are-compromised/"><u>Top 9 Indicators: When Your Social Networks Are Compromised</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unmatched-ai-tools-for-visual-storytelling-for-2024/"><u>Unmatched AI Tools for Visual Storytelling for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-next-big-thing-facebook-and-spotifys-boombox-initiative/"><u>Unveiling the Next Big Thing: Facebook & Spotify's Boombox Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-use-meta-ai-on-instagram-and-facebook-but-should-you/"><u>You Can Now Use Meta AI on Instagram and Facebook, but Should You?</u></a></li>
 </ul></div>
 

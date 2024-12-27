@@ -1,7 +1,7 @@
 ---
 title: Navigating Away From Sophisticated Social Trickery
-date: 2024-08-15T18:45:49.343Z
-updated: 2024-08-16T18:45:49.343Z
+date: 2024-12-25T20:36:09.167Z
+updated: 2024-12-27T17:21:26.598Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,17 @@ thumbnail: https://thmb.techidaily.com/e192369aa8db403955c25d96f740d0c112baa081f
 
  Owing to widespread awareness, common internet scams like the infamous "Nigerian prince" fraud are now easily discerned by potential victims. Unfortunately, scammers have evolved and now employ more sophisticated tactics to defraud their victims. And social media plays a key part in that. Here's what you need to look out for, and how to spot online scams.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Instragam Celebrity Scam
 
 ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
 
@@ -49,13 +57,15 @@ There are some simple things you can do to avoid this kind of scam:
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Telegram Cryptocurrency Scam
 
 ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
@@ -81,14 +91,12 @@ There are some simple things you can do to avoid this kind of scam:
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Dating Scams
 
 ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
@@ -114,9 +122,6 @@ Of course, that's all fake.
 
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -125,14 +130,11 @@ Of course, that's all fake.
 
  According to the US's[Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +143,24 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-dynamic-instagram-collage-views/"><u>[New] 2024 Approved Dynamic Instagram Collage Views</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unleash-creativity-premier-vimeo-editors-deliver/"><u>[Updated] Unleash Creativity Premier Vimeo Editors Deliver</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-streaming-with-flair-xbox-one-edition/"><u>2024 Approved Streaming with Flair Xbox One Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-metaverse-uncovering-facebooks-role/"><u>Exploring Metaverse: Uncovering Facebook's Role</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-successfully-reset-your-ipad-security-if-you-cant-remember-the-password/"><u>How to Successfully Reset Your iPad Security if You Can’t Remember The Password</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-k70-pro-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi K70 Pro to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-favorite-app-offline-uncover-the-reasons/"><u>Is Your Favorite App Offline? Uncover the Reasons</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2616810-9781409167549-mindfulness-at-work/"><u>Mindfulness at Work | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-random-group-tags-on-social-media/"><u>No More Random Group Tags on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-digital-spaces-for-aging-generations/"><u>Optimal Digital Spaces for Aging Generations</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-autoplay-on-instagram-and-fb/"><u>Say 'No' To Autoplay on Instagram and FB</u></a></li>
+<li><a href="https://os-tips.techidaily.com/should-you-invest-in-additional-icloud-space-a-cost-benefit-analysis/"><u>Should You Invest in Additional iCloud Space? A Cost-Benefit Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/sound-connections-strengthened-with-facebook-update/"><u>Sound Connections Strengthened with Facebook Update</u></a></li>
+<li><a href="https://win11.techidaily.com/switching-off-games-in-windows-11-suggestions/"><u>Switching Off Games in Windows 11 Suggestions</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-secrets-deciphering-subtext-in-fb-chat/"><u>Uncovering Secrets: Deciphering Subtext in FB Chat</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unveiling-the-must-have-gear-for-new-youtubers-for-2024/"><u>Unveiling the Must-Have Gear for New YouTubers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-three-steps-to-direct-attention-via-tags-on-fb/"><u>Unveiling Three Steps to Direct Attention via Tags on Fb</u></a></li>
+</ul></div>
 

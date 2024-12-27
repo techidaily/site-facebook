@@ -1,7 +1,7 @@
 ---
 title: "Facebook Unveils Meta: A Revolution in Social Media Branding"
-date: 2024-08-15T18:51:36.082Z
-updated: 2024-08-16T18:51:36.082Z
+date: 2024-12-22T18:52:06.467Z
+updated: 2024-12-27T20:27:19.775Z
 tags:
   - facebook
 categories:
@@ -17,11 +17,19 @@ thumbnail: https://thmb.techidaily.com/533486c883f0e15f79a205d8fe00d7b629c80c76e
 
  At Facebook’s Connect 2021 event, the company announced a complete rebranding with a new focus on the metaverse going forward. But don't worry, your social apps aren't going anywhere.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Announced Its New Identity Called Meta
 
  In a move that was[anticipated by reports beforehand](https://www.makeuseof.com/facebook-might-change-name/) , Facebook has carved out a new identity for itself with a new focus on the metaverse. Complete with a new name and a new logo, we welcome Meta to replace the Facebook brand.
 
 ![Meta Logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Meta-Logo.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image Credit: Meta
 
@@ -36,8 +44,9 @@ Image Credit: Meta
  To clarify, the new Meta brand is to replace Facebook Inc. which was the company behind each of the social media apps. This means you’ll still open the Facebook, Instagram, WhatsApp, Horizon, and Oculus apps on your phone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What the Rebrand to Meta Means Going Forward
 
  For the majority of people, the rebranding to Meta will bear no significance. We’ve seen this with the parent company behind Google rebranding to Alphabet in 2015\. There was no effect following the name change, and everyone still uses Google products to this day.
@@ -49,36 +58,20 @@ Image Credit: Meta
  As also announced at the event, Meta is working on its Horizon platform to allow users to access the multiverse. The company is also working on more AR and VR products, similar to the current Oculus range.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is Welcoming in the Metaverse
 
  Meta is no stranger to AR and VR, with products in the Oculus range and the recent collaboration with Ray-Ban bringing the tech into the hands of consumers.
 
  There’s no doubt that things are about to be shaken up with a focus on the metaverse as a whole. As Zuckerberg said in the Connect keynote, even he doesn’t know what the future of the metaverse holds. How exciting!
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,4 +80,19 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-top-5-mac-alternatives-to-bandicam-for-video-capture/"><u>[New] 2024 Approved Top 5 Mac Alternatives to Bandicam for Video Capture</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-lost-and-found-follower-hunt/"><u>[New] In 2024, Instagram Lost and Found Follower Hunt</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-easeus-review-inclusivity-in-action-for-2024/"><u>[Updated] EaseUS Review Inclusivity in Action for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/boost-work-efficiency-select-6-best-pc-monitoring-apps/"><u>Boost Work Efficiency: Select 6 Best PC Monitoring Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dazzle-transformative-techniques-for-images/"><u>Digital Dazzle: Transformative Techniques for Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-and-privacy-the-unveiling-date-of-facebook-messengers-encryption/"><u>E2EE & Privacy: The Unveiling Date of Facebook Messenger’s Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-navigation-through-diverse-facebook-profiles/"><u>Efficient Navigation Through Diverse Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-repair-stellars-quicktime-mov-fixes/"><u>Effortless Repair: Stellar’s QuickTime MOV Fixes</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/imperator-rome-evaluation-rise-to-power-or-face-defeat/"><u>Imperator: Rome Evaluation - Rise To Power Or Face Defeat</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-motorola-moto-g13-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Motorola Moto G13</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-and-reset-face-id-on-iphone-11-pro-drfone-by-drfone-ios/"><u>In 2024, How to Remove and Reset Face ID on iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-lava-yuva-3-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Lava Yuva 3 Phone FRP Lock</u></a></li>
+</ul></div>
 

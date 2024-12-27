@@ -1,7 +1,7 @@
 ---
 title: The Dominance Trio That Terrifies Us
-date: 2024-08-15T18:49:07.444Z
-updated: 2024-08-16T18:49:07.444Z
+date: 2024-12-26T20:44:14.557Z
+updated: 2024-12-27T20:08:25.504Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. An Entrapping Social Media Monopoly
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
@@ -39,9 +43,6 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## 2\. Meta Wields Too Much Power
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
@@ -67,9 +68,6 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ​​​​​​
 
@@ -84,27 +82,21 @@ Not convinced?
 5. Find "**Off-Facebook activity** " and click on it. Here, you should see and manage a list of apps that are sharing your personal data with Facebook.
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
+
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
+
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -114,8 +106,9 @@ Close
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Stay Conscious of Meta's Influence
 
  Some have called for a breakup of Meta; others advocate for sterner policing of the company. Irrespective of the approach that presents a realistic solution to the problem, one thing is sure—Meta is getting too powerful, and we are all becoming victims in its lair.
@@ -124,14 +117,11 @@ Close
 
  Be proactive. Stay conscious of Meta's influence. Limit the amount of data you share with Meta's products and services. If you are afraid you've already shared too much, you should get rid of some of the information Meta has on you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +130,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-unlinking-from-youtube-shorts-easy-and-permanent/"><u>[New] 2024 Approved Unlinking From YouTube Shorts - Easy and Permanent</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dslr-broadcast-101-using-facebook-live-from-home-pcs/"><u>[New] In 2024, DSLR Broadcast 101 Using Facebook LIVE From Home PCs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-essential-tips-for-documenting-real-time-youtube-broadcasts/"><u>[Updated] 2024 Approved Essential Tips for Documenting Real-Time YouTube Broadcasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-8-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[Updated] In 2024, 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://article-files.techidaily.com/7-best-budget-mirrorless-4k-cameras-under-1000-for-2024/"><u>7 Best Budget Mirrorless 4K Cameras Under $1000 for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/easy-technique-change-fins-sounds-on-pc-systems/"><u>Easy Technique Change Fins' Sounds on PC Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-frontiers-in-social-commerce-on-facebook/"><u>Exploring New Frontiers in Social Commerce on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-new-audiovisual-platform-features/"><u>Facebook Unveils New Audiovisual Platform Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-automatic-user-references-fb/"><u>How to Stop Automatic User References (FB)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-infinix-smart-8-hd-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Infinix Smart 8 HD? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-biden-announces-vaccination-drive-via-social-networks/"><u>Joe Biden Announces Vaccination Drive via Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-findings-social-platforms-detrimental/"><u>National Survey Findings: Social Platforms Detrimental</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-worlds-top-four-social-media-facebook-to-youtube/"><u>Navigating the World's Top Four Social Media: Facebook to Youtube</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-unlocking-adobe-premiere-pro-import-edit-and-export-video-files-with-ease/"><u>New Unlocking Adobe Premiere Pro Import, Edit, and Export Video Files with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-phishy-posts-with-smart-habits/"><u>Preventing Phishy Posts with Smart Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anchor-of-asset-allocation-delving-into-cryptocurrencys-stablecoins/"><u>The Anchor of Asset Allocation: Delving Into Cryptocurrency's Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/traps-in-transparency-when-ux-betrays-trust/"><u>Traps in Transparency: When UX Betrays Trust</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-media-platform-is-safest/"><u>Which Social Media Platform Is Safest?</u></a></li>
+</ul></div>
 

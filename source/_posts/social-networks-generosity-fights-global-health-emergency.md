@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2024-12-16T03:51:06.072Z
-updated: 2024-12-21T20:10:04.056Z
+date: 2024-12-26T19:27:52.462Z
+updated: 2024-12-27T17:26:05.665Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image Credit: Facebook
@@ -45,7 +45,7 @@ Image Credit: Facebook
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
@@ -57,7 +57,7 @@ Image Credit: Facebook
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
@@ -69,7 +69,7 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
@@ -91,19 +91,18 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-streaming-mastery-with-obs-game-mode/"><u>[Updated] In 2024, Streaming Mastery with OBS Game Mode</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopros-rivalry-with-drift-ghost-the-racing-camera-faceoff/"><u>2024 Approved GoPro's Rivalry with Drift Ghost - The Racing Camera Faceoff</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-maximize-your-screen-recording-experience-with-w8-tools/"><u>2024 Approved Maximize Your Screen Recording Experience with W8 Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/adapt-or-advance-winning-tactics-in-an-ai-infused-economy/"><u>Adapt or Advance: Winning Tactics in an AI-Infused Economy</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-motorola-moto-g84-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Motorola Moto G84 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/livestreaming-leaderboards-which-software-tops-the-chartvmixwirecast/"><u>Livestreaming Leaderboards Which Software Tops the Chart—VMix/Wirecast?</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-networked-lifetimes-on-fb/"><u>Navigating Through Networked Lifetimes on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-coding-shaped-by-facebook-and-rust-alliance/"><u>The Future of Coding, Shaped by Facebook & Rust Alliance</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-future-of-slate-tech-insider-info-on-google-pixel-tablets-specs-and-launch-plans/"><u>The Future of Slate Tech: Insider Info on Google Pixel Tablet's Specs & Launch Plans</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ideal-time-frame-for-fb-campaigns/"><u>The Ideal Time Frame for Fb Campaigns</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultra-lightning-top-speedy-android-apps/"><u>Ultra-Lightning: Top Speedy Android Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-your-potential-in-social-media-storytelling-via-facebook/"><u>Unlocking Your Potential in Social Media Storytelling via Facebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-premium-photographic-holding-websites/"><u>[New] 2024 Approved Premium Photographic Holding Websites</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-tapping-into-the-digital-fortune-filmmoras-role-in-tiktok-success-for-2024/"><u>[New] Tapping Into the Digital Fortune Filmmora's Role in TikTok Success for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-industry-standard-guide-implementing-stopwatches-in-video-streaming-software/"><u>[Updated] Industry Standard Guide Implementing Stopwatches in Video Streaming Software</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-syncopated-soundscapes-logic-pros-fading-artistry/"><u>2024 Approved Syncopated Soundscapes - Logic Pro's Fading Artistry</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-ethical-exposure-meta-on-private-photos-control/"><u>Ensuring Ethical Exposure: Meta on Private Photos Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-a-leap-into-visual-communication-on-facebooks-messenger/"><u>Experience a Leap Into Visual Communication on Facebook's Messenger</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fix-cannot-paste-the-data-error-in-microsoft-excel-2021-by-stellar-guide/"><u>Fix Cannot Paste the Data Error in Microsoft Excel 2021</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-the-framework-behind-fbs-moderation-entity/"><u>Inspecting the Framework Behind FB's Moderation Entity</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-data-recovery-recover-lost-data-from-motorola-razr-40-ultra-by-fonelab-android-recover-data/"><u>Motorola Data Recovery – recover lost data from Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-safety-feature-options/"><u>Navigating Facebook Safety Feature Options</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-disc-recognition-problems-in-your-nintendo-wii/"><u>Overcoming Disc Recognition Problems in Your Nintendo Wii</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/ultimate-guides-to-3d-type-exploration-for-2024/"><u>Ultimate Guides to 3D Type Exploration for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unmasking-bogus-antivirus-alerts-learn-5-effective-defense-tactics/"><u>Unmasking Bogus Antivirus Alerts - Learn 5 Effective Defense Tactics</u></a></li>
 </ul></div>
 

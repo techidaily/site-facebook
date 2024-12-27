@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-12-18T19:25:34.743Z
-updated: 2024-12-21T19:48:00.919Z
+date: 2024-12-26T19:43:59.901Z
+updated: 2024-12-27T17:58:00.378Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,19 +67,24 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-impeccablecapture-studio-suite-windows-10-edition/"><u>[New] ImpeccableCapture Studio Suite (Windows 10 Edition)</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-mastering-aiseesofts-capture-tech-screen-recording-basics-for-2024/"><u>[New] Mastering Aiseesoft's Capture Tech Screen Recording Basics for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-luminous-android-video-editing-hacks/"><u>[Updated] 2024 Approved Luminous Android Video Editing Hacks</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/beginner-friendly-cyberghost-vpn-unveiled-is-it-worth-your-money-expert-insights-pcmag/"><u>Beginner-Friendly CyberGhost VPN Unveiled: Is It Worth Your Money? Expert Insights | PCMag</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them!</u></a></li>
-<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-sleep-mode-the-key-to-efficient-messenger-kids-use/"><u>Dive Into Sleep Mode: The Key to Efficient Messenger Kids Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-best-of-2022-a-podcast-round-up-review/"><u>Exploring the Best of 2022 - A Podcast Round-Up Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-new-era-personalizing-content-for-your-preferences/"><u>Facebook's New Era: Personalizing Content for Your Preferences</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-moto-g14-frp-by-drfone-android/"><u>How Can We Bypass Motorola Moto G14 FRP?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-the-definitive-guide-to-efficient-screen-recording-on-an-hp-notebook/"><u>In 2024, The Definitive Guide to Efficient Screen Recording on an HP Notebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-iphone-11-pro-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From iPhone 11 Pro</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-recording-flawless-minecraft-sessions-with-optimal-video-quality/"><u>Step-by-Step Tutorial: Recording Flawless Minecraft Sessions with Optimal Video Quality</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-essential-tools-in-transforming-digital-performers-vocal-identity/"><u>[New] 2024 Approved Essential Tools in Transforming Digital Performers' Vocal Identity</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-discovering-your-perfect-vr-experience-should-you-choose-mobile-freedom-or-connectivity-with-tethers/"><u>[New] Discovering Your Perfect VR Experience Should You Choose Mobile Freedom or Connectivity with Tethers?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unveiling-distinctions-a-look-at-youtube-and-dailymention/"><u>[Updated] Unveiling Distinctions A Look at YouTube and DailyMention</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pictorial-mosaic-construction-with-digital-photography/"><u>2024 Approved Pictorial Mosaic Construction with Digital Photography</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-rog-rapture-gt-ax110-an-in-depth-performance-analysis-for-gamers/"><u>Asus ROG Rapture GT-AX110# - An In-Depth Performance Analysis for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-visuals-fb-images-with-alt-tags/"><u>Enhancing Visuals: FB Images with Alt Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-trusted-online-social-hubs/"><u>Exploring Trusted Online Social Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-100-pro-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor 100 Pro to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-realme-narzo-n53-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Realme Narzo N53 Is Unlocked</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-vivo-y100a-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Vivo Y100A to iPad | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-account-switching-on-major-social-site-facebook/"><u>Instant Account Switching on Major Social Site, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-web-of-tricked-choices/"><u>Navigating the Web of Tricked Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-fb-login-in-the-absence-of-code/"><u>Reclaiming FB Login in the Absence of Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-say-goodbye-to-a-facebook-broadcast/"><u>Swiftly Say Goodbye to a Facebook Broadcast</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-multilingual-posting-social-media-success-tips/"><u>The Guide to Multilingual Posting: Social Media Success Tips</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/videopad-video-editor-does-it-live-up-to-the-hype-a-review-and-recommendation-for-2024/"><u>Videopad Video Editor Does It Live Up to the Hype? A Review and Recommendation for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1726027860310-vimeo/"><u>Vimeoビデオのチャンブラダウンロードテクニック：手っ取り早いフリーガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/visualizing-conversations-a-guide-to-using-fb-images-in-whatsapp/"><u>Visualizing Conversations: A Guide to Using FB Images in WhatsApp</u></a></li>
 </ul></div>
 

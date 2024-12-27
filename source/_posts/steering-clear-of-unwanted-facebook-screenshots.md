@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-12-19T02:36:24.597Z
-updated: 2024-12-21T20:02:02.513Z
+date: 2024-12-24T19:45:03.842Z
+updated: 2024-12-27T17:37:38.130Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -41,12 +37,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Inline Privacy Controls
@@ -54,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
@@ -74,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
@@ -92,10 +92,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  This covers your photos, but also your videos, wall posts, comments, Likes, and other content.
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Pro Tip: Use the Activity Log
 
@@ -116,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Unfortunately, the photo will still be visible to other users on Facebook. As long as the image does not break the network's Statement of Rights and Responsibilities, there's nothing you can do.
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tag Suggestions
 
@@ -144,22 +144,20 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-social-splendor-leading-story-filter-hits/"><u>[New] 2024 Approved Social Splendor Leading Story Filter Hits</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-smart-choice-selecting-the-top-5-webcams-for-clear-audio-for-2024/"><u>[New] Smart Choice Selecting the Top 5 Webcams for Clear Audio for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-gold-strategies-for-financial-flourishing/"><u>[New] YouTube Gold Strategies for Financial Flourishing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-master-quick-red-eye-correction-with-this-free-ios-tool-for-2024/"><u>[Updated] Master Quick Red-Eye Correction with This Free iOS Tool for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/consumer-watch-a-new-economic-paradigm/"><u>Consumer Watch: A New Economic Paradigm</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/epson-xp-400-printer-software-download-comprehensive-guide/"><u>Epson XP-400 Printer Software Download: Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-data-gathering-on-whatsapp-hit-by-germanys-order/"><u>Facebook's Data Gathering on WhatsApp Hit by Germany's Order</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-a-different-way-to-naming-your-channel-with-filmora/"><u>Finding a Different Way to Naming Your Channel with Filmora</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-star-offensive-pro-palestinian-activism-disrupting-fb-store/"><u>One-Star Offensive: Pro-Palestinian Activism Disrupting FB Store</u></a></li>
-<li><a href="https://facebook.techidaily.com/premier-league-stars-quit-twitter-to-resist-social-media-toxicity/"><u>Premier League Stars Quit Twitter to Resist Social Media Toxicity</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-nokia-xr21-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Nokia XR21 Step-by-Step Solutions | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-argument-for-permitting-more-than-one-identity-within-a-singular-social-media-account/"><u>The Argument for Permitting More than One Identity Within A Singular Social Media Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-pathways-to-invest-in-facebooks-settlement-fund/"><u>Unveiling Pathways to Invest in Facebook's Settlement Fund</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-veil-of-virtual-vaults-downloading-fb-hidden-videos/"><u>Unveiling the Veil of Virtual Vaults: Downloading FB Hidden Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-motorola-moto-g34-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Motorola Moto G34 5G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-enhancing-canva-videos-with-custom-music-edits/"><u>[New] 2024 Approved Enhancing Canva Videos with Custom Music Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-audiophiles-choice-selecting-superior-oculus-devices-for-2024/"><u>[New] Audiophiles' Choice Selecting Superior Oculus Devices for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-best-practices-for-free-clipart-use-in-projects-for-2024/"><u>[New] Best Practices for Free Clipart Use in Projects for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-best-subtitle-converters-reviewed-the-top-8-win-osx-sbt-to-srts-software/"><u>[New] Best Subtitle Converters Reviewed The Top 8 Win-OSX SBT to SRTS Software</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-superlative-frame-storyteller-bundle/"><u>2024 Approved Superlative Frame Storyteller Bundle</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-xiaomi-redmi-note-12-pro-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Xiaomi Redmi Note 12 Pro 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-push-towards-responsible-user-contributions/"><u>Facebook's Push Towards Responsible User Contributions</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-digital-footprint-tracing-facebook-breaches/"><u>Guard Your Digital Footprint: Tracing Facebook Breaches</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/guiding-you-through-youtubes-security-settings/"><u>Guiding You Through YouTube's Security Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantly-craft-captivating-captions-for-your-facebook-photos/"><u>Instantly Craft Captivating Captions for Your Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-exit-from-biometrics-marks-a-turning-point-at-fb/"><u>Meta's Exit From Biometrics Marks a Turning Point at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-back-into-facebook-post-code-loss/"><u>Navigating Back Into Facebook Post-Code Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/suspension-on-ice-oversight-group-eyes-trump-case/"><u>Suspension on Ice: Oversight Group Eyes Trump Case</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-facebook-survival-kit-your-online-security-roadmap/"><u>The Ultimate Facebook Survival Kit: Your Online Security Roadmap</u></a></li>
 </ul></div>
 

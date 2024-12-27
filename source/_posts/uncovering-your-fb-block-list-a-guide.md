@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-12-14T19:25:02.150Z
-updated: 2024-12-22T03:24:23.417Z
+date: 2024-12-23T20:00:59.656Z
+updated: 2024-12-27T16:23:23.832Z
 tags:
   - facebook
 categories:
@@ -24,20 +24,20 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -52,16 +52,12 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -73,6 +69,10 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -82,7 +82,7 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -104,22 +104,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-professional-photography-hacks-top-cinematic-tips/"><u>[New] Professional Photography Hacks Top Cinematic Tips</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-motorola-razr-40-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Motorola Razr 40 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-positive-effects-social-media-is-having-on-society/"><u>7 Positive Effects Social Media Is Having on Society</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/android-no-fee-communication-tools-ranked-best/"><u>Android No-Fee Communication Tools Ranked Best</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-scams-top-9-safety-measures-for-facebook-buyers-and-sellers/"><u>Avoid Scams: Top 9 Safety Measures for Facebook Buyers and Sellers</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-the-pitfalls-of-online-marketplace-shopping-9-vital-tips/"><u>Avoid the Pitfalls of Online Marketplace Shopping: 9 Vital Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/beneath-the-surface-facebooks-true-user-losses/"><u>Beneath the Surface: Facebook’s True User Losses</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-job-title-facebooks-next-phase/"><u>Beyond the Job Title: Facebook's Next Phase</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-the-ice-without-revealing-your-hand-in-a-group/"><u>Breaking the Ice Without Revealing Your Hand in a Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-community-collaboration-on-facebook-and-linkedin/"><u>Comparing Community Collaboration on Facebook and LinkedIn</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-the-social-cord-unlinking-insta-and-fb/"><u>Cutting the Social Cord: Unlinking Insta & FB</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-early-access-to-the-new-asus-zenfone-9-shop-and-reserve-at-amazon-today/"><u>Get Early Access to the New ASUS Zenfone 9 - Shop and Reserve at Amazon Today!</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-lava-blaze-curve-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Lava Blaze Curve 5G in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-bring-your-pics-to-life-with-easy-text-editing-apps/"><u>In 2024, Bring Your Pics to Life with Easy Text Editing Apps</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-integrating-seamless-multimedia-elements-on-your-mac-screen/"><u>In 2024, Integrating Seamless Multimedia Elements on Your Mac Screen</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/mastering-track-trimming-techniques-for-different-environments-internet-personal-computer-smartphone/"><u>Mastering Track Trimming Techniques for Different Environments: Internet, Personal Computer, Smartphone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/maximizing-efficiency-in-rl-video-recordings/"><u>Maximizing Efficiency in RL Video Recordings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-quick-shift-video-techniques-mastering-transitions/"><u>[New] 2024 Approved Quick-Shift Video Techniques Mastering Transitions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-swiftly-switch-songs-in-yt-playlist-heres-how/"><u>[New] 2024 Approved Swiftly Switch Songs in YT Playlist, Here's How</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-groundbreaking-method-to-insert-gopro-clips-into-virtual-panoramic-movies/"><u>[New] Groundbreaking Method to Insert GoPro Clips Into Virtual Panoramic Movies</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-eight-sources-of-graffiti-fonts-online/"><u>[New] Top Eight Sources of Graffiti Fonts Online</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-honor-70-lite-5g-frp-bypass-by-drfone-android/"><u>About Honor 70 Lite 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/average-to-exceptional-discover-the-finest-free-intra-designs-for-2024/"><u>From Average to Exceptional Discover the Finest Free Intra Designs for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-nokia-g22-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-intertwined-lives-friends-on-facebook-history/"><u>Investigating Intertwined Lives: Friends on Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/love-reimagined-the-role-of-facebook-in-future-dating-practices/"><u>Love Reimagined: The Role of Facebook in Future Dating Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-privacy-constructing-a-restricted-list-for-controlled-visibility/"><u>Mastering Facebook's Privacy: Constructing a Restricted List for Controlled Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-productivity-with-facebooks-8-essential-workplace-features/"><u>Optimizing Productivity with Facebook's 8 Essential Workplace Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescue-your-rusty-social-media-site-with-troubleshooting-aids/"><u>Rescue Your Rusty Social Media Site with Troubleshooting Aids</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-shares-use-archiving-for-securing-post-visibility/"><u>Shielding Shares: Use Archiving for Securing Post Visibility</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-essentials-of-seamless-interoperability-via-nearby-share/"><u>The Essentials of Seamless Interoperability via Nearby Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-removing-your-fb-watch-history/"><u>Understanding the Impact of Removing Your FB Watch History</u></a></li>
+<li><a href="https://win-bits.techidaily.com/understanding-ts-file-formats-and-strategies-for-restoring-accidentally-deleted-ts-data/"><u>Understanding TS File Formats & Strategies for Restoring Accidentally Deleted TS Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/youtubes-untold-story-on-how-monitoring-keeps-it-free-and-functional/"><u>YouTube's Untold Story on How Monitoring Keeps It Free and Functional</u></a></li>
 </ul></div>
 

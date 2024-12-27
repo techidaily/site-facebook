@@ -1,7 +1,7 @@
 ---
 title: "Reconsidering Ties: Unfriending Someone From FB"
-date: 2024-08-15T18:48:02.708Z
-updated: 2024-08-16T18:48:02.708Z
+date: 2024-12-23T19:15:58.506Z
+updated: 2024-12-27T16:29:59.277Z
 tags:
   - facebook
 categories:
@@ -15,16 +15,16 @@ thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056
 
 ## Reconsidering Ties: Unfriending Someone From FB
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What Is the "Take a Break" Feature on Facebook?](#what-is-the-quot-take-a-break-quot-feature-on-facebook)
 * [How to Take a Break From Someone on Facebook](#how-to-take-a-break-from-someone-on-facebook)
 * [How to Stop Taking a Break on Facebook](#how-to-stop-taking-a-break-on-facebook)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Facebook's "Take a Break" feature allows you to mute updates from a friend without unfriending them.
@@ -53,9 +53,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or[blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Take a Break From Someone on Facebook
 
  Once you've made up your mind that you've had enough of someone's posts, here's how to go about taking a break from them:
@@ -106,35 +103,35 @@ Here, you'll find three options.
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You'll find the Take a Break search bar, type the name of the friend you previously took a break from.
 * Click on the name of the friend.
 
 ![Name of freind to stop taking a break from](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/name-of-freind-to-stop-taking-a-break-from.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You'll find a menu with a list of actions you can take to stop taking a break.
 * Click**Edit** beside each action. Firstly, click on**Edit** next to**You've chosen to see less of X** .
 
 ![Reversing you've chosen to see less of a person's post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/reversing-you-ve-chosen-to-see-less-of-a-person-s-post.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 
 * Select**See X's profile anywhere on Facebook** and click on**Save** .
 
 ![See X's profile anywhere on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/see-x-s-profile-anywhere-on-facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 
 * Click the back button in the top left corner of the Take a Break menu, and click**Edit** next to**Limit what X's profile will see.**
 * Select**No longer limit what X can see** and click**Save** .
 
 ![No longer limit what a profile can see](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/no-longer-limit-what-a-profile-can-see.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click the back button in the top left corner once again, and click**Edit** next to**Edit who can see past posts.**
@@ -142,18 +139,19 @@ Here, you'll find three options.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
  The Take a Break feature on Facebook provides a useful middle ground between staying friends and completely cutting someone off. It allows you to create some healthy distance and boundaries without burning bridges. By taking advantage of the feature, you can curate a more positive social media experience while still maintaining connections that matter.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +160,18 @@ Here, you'll find three options.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-advanced-techniques-for-effective-mobile-screen-capturing-with-mobizen/"><u>[New] 2024 Approved Advanced Techniques for Effective Mobile Screen Capturing with Mobizen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1716777285163-2024-approved-how-to-reverse-videos-on-android/"><u>2024 Approved How to Reverse Videos on Android?</u></a></li>
+<li><a href="https://common-error.techidaily.com/addressing-the-challenge-connecting-non-hdcp-enabled-displays-with-workarounds/"><u>Addressing the Challenge: Connecting Non-HDCP Enabled Displays with Workarounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-conversation-confidentiality-facebooks-new-direct-messaging-and-call-services-with-end-to-end-encryption/"><u>Elevating Conversation Confidentiality: Facebook’s New Direct Messaging & Call Services with End-to-End Encryption.</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-and-its-impact-on-facebook-user-profiling/"><u>IOS 14.5 and Its Impact on Facebook User Profiling</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/optimizing-web-video-for-crystal-clear-display/"><u>Optimizing Web Video for Crystal Clear Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-at-stake-whatsapp-files-suit-against-indias-rules/"><u>Privacy at Stake: WhatsApp Files Suit Against India's Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-new-era-combined-nba-broadcasting/"><u>Social Networks' New Era: Combined NBA Broadcasting</u></a></li>
+<li><a href="https://common-error.techidaily.com/stop-your-laptop-from-falling-asleep-quick-and-effective-solutions/"><u>Stop Your Laptop From Falling Asleep - Quick and Effective Solutions</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/the-online-video-editors-blueprint-from-concept-to-completion-for-2024/"><u>The Online Video Editors Blueprint From Concept to Completion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-enigma-facebooks-undisclosed-smartwatch-project/"><u>Unraveling the Enigma: Facebook’s Undisclosed Smartwatch Project</u></a></li>
+</ul></div>
 

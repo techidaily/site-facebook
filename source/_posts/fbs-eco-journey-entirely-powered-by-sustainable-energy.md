@@ -1,7 +1,7 @@
 ---
 title: "FB's Eco-Journey: Entirely Powered by Sustainable Energy"
-date: 2024-08-15T18:47:26.859Z
-updated: 2024-08-16T18:47:26.859Z
+date: 2024-12-21T19:52:00.608Z
+updated: 2024-12-27T17:26:28.879Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 ## FB's Eco-Journey: Entirely Powered by Sustainable Energy
 
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
@@ -36,13 +40,15 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -55,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +74,20 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-precision-audio-capturing-techniques-in-overwatch/"><u>[New] 2024 Approved Precision Audio Capturing Techniques in Overwatch</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-winning-strategies-a-deep-dive-into-spotifys-ad-realm/"><u>[New] In 2024, Winning Strategies A Deep Dive Into Spotify's Ad Realm</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-top-5-best-live-stream-video-conference-recorders/"><u>2024 Approved Top 5 Best Live Stream Video Conference Recorders</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-detailed-pokemon-go-pvp-tier-list-to-make-you-a-pro-trainer-for-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>A Detailed Pokemon Go PvP Tier List to Make you a Pro Trainer For Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/chromatic-excellence-learning-to-leverage-colors-for-2024/"><u>Chromatic Excellence Learning to Leverage Colors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-unwanted-footprint-delete-your-facebook-watching-trails/"><u>Eliminate Unwanted Footprint: Delete Your Facebook Watching Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-guide-recovering-and-reinforcing-your-fb-security/"><u>Emergency Guide: Recovering & Reinforcing Your FB Security</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-nvidia-gtx-n-series-drivers-installed-on-windows-without-hesitation/"><u>Get the Latest NVIDIA GTX N-Series Drivers Installed on Windows Without Hesitation</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-hubs-to-explore-for-securing-freelance-roles/"><u>Ideal Hubs to Explore for Securing Freelance Roles</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-noir-nights-transitioning-with-pro/"><u>In 2024, Noir Nights - Transitioning with Pro</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-the-battle-for-video-supremacy-adobe-premiere-vs-after-effects/"><u>New 2024 Approved The Battle for Video Supremacy Adobe Premiere vs After Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-how-to-recognize-fake-facebook-users/"><u>Virtual Vigilance: How to Recognize Fake Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-scrubbing-your-facebook-view-logs-is-smart/"><u>Why Scrubbing Your Facebook View Logs Is Smart</u></a></li>
+</ul></div>
 

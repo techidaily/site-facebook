@@ -1,7 +1,7 @@
 ---
 title: 'People You Might Know' Block in Facebook
-date: 2024-08-15T18:51:47.974Z
-updated: 2024-08-16T18:51:47.974Z
+date: 2024-12-22T16:37:25.701Z
+updated: 2024-12-27T16:40:20.386Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/48f1b4b94f775b917cb35db1cb2a6e0b4e7bb5a94
 
 ## 'People You Might Know' Block in Facebook
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How Does Facebook Come Up With Its Friend Suggestions?](#how-does-facebook-come-up-with-its-friend-suggestions)
@@ -22,9 +26,9 @@ thumbnail: https://thmb.techidaily.com/48f1b4b94f775b917cb35db1cb2a6e0b4e7bb5a94
 * [How to Turn off Facebook's "People You May Know" Alerts](#how-to-turn-off-facebook-39-s-quot-people-you-may-know-quot-alerts)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Facebook suggests new people based on your engagement, contact lists, and existing friends, but you can hide the "People You May Know" feature.
@@ -39,6 +43,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  It's in Facebook's interest to suggest Facebook friends for you. The more connections you have on the platform, the more likely you are to use it. However, if you're not looking to add new friends on Facebook, the feature could become redundant and better off hidden.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Hide the "People You May Know" Feature on Facebook
 
  Facebook does not support permanent disabling of the "People You May Know" feature. But it allows you to hide it temporarily. Hiding the slider keeps it from coming up on your News feed for a while.
@@ -46,8 +54,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Here's how to hide the "People You May Know" feature on Facebook:
 
 ![android screenshot showing facebook newsfeed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-newsfeed.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
@@ -63,9 +72,6 @@ Close
 
  Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Turn off Facebook's "People You May Know" Alerts
 
  Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
@@ -77,9 +83,6 @@ Close
 ![screenshot showing notification settings on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-notification-settings-on-facebook.jpg)
 
 ![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -96,30 +99,26 @@ Close
 1. Log in to your Facebook account and click on the downward-facing triangle icon at the top right.
 2. Click on**Settings & Privacy.**
 3. ![desktop screenshot showing facebook profile menu option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-profile-menu-option.jpg)  
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
  Then, click on**Settings** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
 
  Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +127,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/0-best-youtube-video-to-mp3-converter/"><u>[New] 10 Best YouTube Video to Mp3 Converter</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-most-reliable-zero-price-online-photo-editors-guide/"><u>[New] The Most Reliable Zero-Price Online Photo Editors Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-elevate-your-gameplay-top-5-recording-strategies-for-roblox-and-macos/"><u>[Updated] Elevate Your Gameplay Top 5 Recording Strategies for Roblox & macOS</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-real-world-perceptions-of-vllo-for-2024/"><u>[Updated] Real-World Perceptions of VLLO for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leveraging-fb-platforms-for-public-health-initiatives/"><u>2024 Approved Leveraging FB Platforms for Public Health Initiatives</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722902278473-apple-watch-pairing-woes-try-these-6-fix-methods-today/"><u>Apple Watch Pairing Woes? Try These 6 Fix Methods Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/deactivate-2fa-on-facebook-after-losing-phone-access-quickly/"><u>Deactivate 2FA on Facebook After Losing Phone Access Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-your-facebook-echo-show/"><u>Deciding on Your Facebook Echo Show</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-metas-decision-postponing-full-e2e-encryption-rollout/"><u>Delving Into Meta’s Decision: Postponing Full E2E Encryption Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-wellbeing-maintaining-balance-with-reduced-network-usage/"><u>Digital Wellbeing: Maintaining Balance with Reduced Network Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-facebooks-home-and-feed-redesign/"><u>Diving Into Facebook's Home and Feed Redesign</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-managing-downtinas-in-social-media-apps/"><u>Efficiently Managing Downtinas in Social Media Apps</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-solutions-for-resolving-windows-update-error-0x80070652/"><u>Quick Solutions for Resolving Window's Update Error 0X80070652</u></a></li>
+<li><a href="https://win-tips.techidaily.com/unveiling-cultural-transformations-the-impact-of-the-tang-dynasty-on-chinas-heritage-explored-by-yl-computing/"><u>Unveiling Cultural Transformations: The Impact of the Tang Dynasty on China's Heritage - Explored by YL Computing</u></a></li>
+</ul></div>
 

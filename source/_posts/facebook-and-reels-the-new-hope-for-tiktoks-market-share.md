@@ -1,7 +1,7 @@
 ---
 title: "Facebook and Reels: The New Hope for TikTok's Market Share"
-date: 2024-08-15T18:49:36.906Z
-updated: 2024-08-16T18:49:36.906Z
+date: 2024-12-22T18:04:36.576Z
+updated: 2024-12-27T16:34:54.230Z
 tags:
   - facebook
 categories:
@@ -29,23 +29,21 @@ thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435
 
  In less than five years, TikTok has achieved over three million downloads and more than a billion monthly active users. Here is how the platform is causing problems for Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. A Drop in Daily and Monthly Active Users
 
  Facebook experienced a first-ever drop in daily active users as competitors like TikTok gained ground. As reported by[Forbes](https://www.forbes.com/sites/roberthart/2022/02/03/facebook-loses-daily-active-users-for-the-first-time--heres-where-theyre-going/) , roughly half a million users stopped using their accounts on a daily basis.
 
  Facebook is losing a specific segment of consumers, namely Gen Z, to its rival TikTok.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Depleting Engagement Levels
 
  Along with the decline in daily active users, Facebook is also suffering from depleting user engagement levels.
 
  The average session length on the video-sharing app is 10.85 minutes, according to[Statista](https://www.statista.com/statistics/579411/top-us-social-networking-apps-ranked-by-session-length/) . Meanwhile, other social media apps lag far behind in terms of engagement. This is a key metric for a platform like Facebook because the longer users stay on a platform, the more appealing it appears to advertisers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Stagnating Ad Revenues
 
@@ -58,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435
 ## How Facebook Plans to Regain Momentum
 
 ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
@@ -68,14 +67,19 @@ thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Is Seen as a Mixed Media Platform
 
@@ -95,9 +99,6 @@ thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### Monetization Issues
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
@@ -107,28 +108,20 @@ thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Reels vs. TikTok: The Final Verdict
 
  The rise of TikTok and YouTube Shorts indicate that video is the future of social media, and Facebook has taken note. This may not make it seem inventive—but at this point, it doesn’t really matter. Facebook sees Reels as an integral part of its future, and it'll need to do so if it wants to compete with the likes of TikTok.
 
  Reels might be late to the short-form video scene, but with the powerful Meta brand behind it, it's got every chance of succeeding.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +130,22 @@ thumbnail: https://thmb.techidaily.com/b357c4b8f72776975451a46d642e42d569af6d435
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-able.techidaily.com/addressing-unending-initialization-error-on-anthem-interface/"><u>Addressing Unending Initialization Error on Anthem Interface</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/cambia-archivo-m4b-por-formato-aac-sin-costo-alguno-con-convertidor-online-de-movavi/"><u>Cambia Archivo M4B Por Formato AAC Sin Costo Alguno Con Convertidor Online De Movavi</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-and-career-growth-exploring-6-approaches/"><u>ChatGPT and Career Growth: Exploring 6 Approaches</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-continues-to-host-anti-vax-theme-profile-borders-despite-ban/"><u>Facebook Continues to Host Anti-Vax Theme Profile Borders Despite Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/facts-behind-fears-redefining-our-understanding-of-facebook-files/"><u>Facts Behind Fears: Redefining Our Understanding of Facebook Files</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fix-lines-on-laptop-straighten-horizontal-borders/"><u>Fix Lines on Laptop - Straighten Horizontal Borders</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-the-everyone-tag-on-facebook/"><u>How to Turn Off the @Everyone Tag on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-synergy-defining-the-metaverse-concept/"><u>Immersive Synergy: Defining the Metaverse Concept</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-shorts-vs-tiktok-which-one-is-better/"><u>In 2024, YouTube Shorts Vs. TikTok Which One Is Better?</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-insight-amplifying-your-online-alliance/"><u>Influencers' Insight: Amplifying Your Online Alliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-descriptive-text-into-fb-photography/"><u>Integrating Descriptive Text Into Fb Photography</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-worldwide-network-offline-uncover-fb-status/"><u>Is the Worldwide Network Offline? Uncover FB Status</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-incornporating-chatgpt-for-advanced-functionality-in-google-sheets-and-word-processing/"><u>The Ultimate Guide to Incornporating ChatGPT for Advanced Functionality in Google Sheets and Word Processing</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/windows-basierte-virtuelle-maschinen-fur-die-physikalische-datenkonvertierung-ein-umfassender-leitfaden/"><u>Windows-Basierte Virtuelle Maschinen Für Die Physikalische Datenkonvertierung: Ein Umfassender Leitfaden</u></a></li>
+</ul></div>
 

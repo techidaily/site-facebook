@@ -1,7 +1,7 @@
 ---
 title: "FB's Vision: Fully Sourced From Renewable Resources"
-date: 2024-08-15T18:48:17.316Z
-updated: 2024-08-16T18:48:17.316Z
+date: 2024-12-24T20:29:02.623Z
+updated: 2024-12-27T16:06:54.348Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/d0ab1cb7b8b22999ef087a383ed3db769492e1f7d
 ## FB's Vision: Fully Sourced From Renewable Resources
 
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
@@ -36,13 +40,15 @@ thumbnail: https://thmb.techidaily.com/d0ab1cb7b8b22999ef087a383ed3db769492e1f7d
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -55,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +74,22 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-amplifying-image-size-unchanged-crispness/"><u>[Updated] Amplifying Image Size, Unchanged Crispness</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-master-headline-hacks-for-maximum-impressions-for-2024/"><u>[Updated] Master Headline Hacks for Maximum Impressions for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/correcting-unpredictable-power-estimator-display-on-windows-11/"><u>Correcting Unpredictable Power Estimator Display on Windows 11</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhance-disk-space-efficiency-with-auto-delete-on-windows-11/"><u>Enhance Disk Space Efficiency with Auto Delete on Windows 11</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-microsofts-enigmatic-z1000-ssd-insights-into-an-expanding-lineup-of-high-performance-storage-solutions/"><u>Exploring Microsoft's Enigmatic Z1000 SSD: Insights Into an Expanding Lineup of High-Performance Storage Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefines-connectivity-with-unique-subscription-link-solutions/"><u>Facebook Redefines Connectivity with Unique Subscription Link Solutions</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-s17-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-could-a-brand-like-facebook-impact-your-community-storefront/"><u>How Could a Brand Like Facebook Impact Your Community Storefront?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-iphone-video-potential-mastering-8-essential-filmmaking-skills/"><u>In 2024, Unlock iPhone Video Potential Mastering 8 Essential Filmmaking Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/profits-in-pixels-the-money-behind-networking-sites/"><u>Profits in Pixels: The Money Behind Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-to-building-an-enduring-social-media-legacy/"><u>Secrets to Building an Enduring Social Media Legacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-companies-urged-to-curtail-scam-ads-promotion/"><u>Tech Companies Urged to Curtail Scam Ads Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-positive-surge-7-societal-gains-via-social-platforms/"><u>The Positive Surge: 7 Societal Gains via Social Platforms</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-mastering-audio-clarity-simplified-techniques-for-noise-elimination-in-audacity-and-filmorapro/"><u>Updated In 2024, Mastering Audio Clarity Simplified Techniques for Noise Elimination in Audacity & FilmoraPro</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-villages-exploring-this-years-prime-social-sites/"><u>Virtual Villages: Exploring This Year's Prime Social Sites</u></a></li>
+</ul></div>
 

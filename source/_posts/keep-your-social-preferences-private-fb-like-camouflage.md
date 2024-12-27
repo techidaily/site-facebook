@@ -1,7 +1,7 @@
 ---
 title: "Keep Your Social Preferences Private: FB Like Camouflage"
-date: 2024-08-15T18:49:42.241Z
-updated: 2024-08-16T18:49:42.241Z
+date: 2024-12-21T18:53:00.263Z
+updated: 2024-12-27T18:42:40.224Z
 tags:
   - facebook
 categories:
@@ -23,19 +23,21 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -57,20 +59,23 @@ To hide the number of reactions on your posts, follow these steps.
 4. Toggle on the sliders next to**On posts from others** or**On your posts** , or both.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Understanding Facebook's Reaction Preferences
 
  Facebook’s new reaction preferences settings allow you to hide the number of reactions on your posts as well as posts from other users. But to what extent do these two settings go?
@@ -83,21 +88,15 @@ Your new settings are saved automatically.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Depressurize Your Experience on Facebook
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,4 +105,26 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-digital-dissection-the-vll-review-process-for-2024/"><u>[New] Digital Dissection The VLL Review Process for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-transforming-titles-best-ai-powered-podcast-name-makers/"><u>[New] In 2024, Transforming Titles Best AI-Powered Podcast Name Makers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-quickly-change-digital-pictures-darkness-level/"><u>[Updated] Quickly Change Digital Pictures' Darkness Level</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://win-hot.techidaily.com/avoid-compromising-your-mac-understand-the-risks-of-persistent-pop-ups-and-effective-removal-techniques-by-malwarefox-experts/"><u>Avoid Compromising Your Mac: Understand the Risks of Persistent Pop-Ups & Effective Removal Techniques by MalwareFox Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-news-to-just-feed-understanding-fbs-strategy/"><u>From News to Just Feed: Understanding FB's Strategy</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-pursuit-of-reaction-the-phenomenon-of-vague-posts/"><u>In Pursuit of Reaction: The Phenomenon of Vague Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-likes-with-strategic-use-of-hashtags-in-facebook-posts/"><u>Maximizing Likes with Strategic Use of Hashtags in Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-your-actions-preserves-facebook-youtubes-app-availability/"><u>Monitoring Your Actions Preserves Facebook, YouTube's App Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-reassessment-of-trumps-status/"><u>Platform Reassessment of Trumps' Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-privacy-dont-opt-in-to-facebook-logging/"><u>Protecting Your Privacy: Don't Opt In to Facebook Logging</u></a></li>
+<li><a href="https://facebook.techidaily.com/rally-for-fame-strategies-to-boost-your-online-gathering/"><u>Rally for Fame: Strategies to Boost Your Online Gathering</u></a></li>
+<li><a href="https://win11.techidaily.com/setting-up-triadic-widget-display-for-enhanced-productivity/"><u>Setting up Triadic Widget Display for Enhanced Productivity</u></a></li>
+<li><a href="https://extra-information.techidaily.com/step-by-step-3d-lut-application-in-photoshop-mastery/"><u>Step-by-Step 3D LUT Application in Photoshop Mastery</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-for-successful-startup-of-gta-5-game-installations/"><u>Troubleshooting Steps for Successful Startup of GTA 5 Game Installations</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-utilizing-trends-to-boost-your-fb-likesshares/"><u>Understanding and Utilizing Trends to Boost Your FB Likes/Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-your-instagram-from-facebook-a-step-by-step-guide/"><u>Unlinking Your Instagram From Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-no-cost-video-trimming-10-best-online-solutions-for-2024/"><u>Updated No-Cost Video Trimming 10 Best Online Solutions for 2024</u></a></li>
+</ul></div>
 

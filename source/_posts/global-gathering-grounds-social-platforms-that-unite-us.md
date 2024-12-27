@@ -1,7 +1,7 @@
 ---
 title: "Global Gathering Grounds: Social Platforms That Unite Us"
-date: 2024-08-15T18:50:05.837Z
-updated: 2024-08-16T18:50:05.837Z
+date: 2024-12-26T17:24:36.832Z
+updated: 2024-12-27T18:31:03.032Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,17 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 
 Here are the ways that social media brings people together...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keeping in Touch With Friends and Family
 
 ![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Many people around the world experience loneliness. It may be because you are newly single, widowed, have moved away from family and friends for work—or you may just be shy and uncomfortable with in-person interaction.
 
@@ -31,9 +39,6 @@ Here are the ways that social media brings people together...
 
  It's a great way to reconnect with people you have lost touch with and keep in contact with your loved ones. Check out our guide on[stopping strangers from seeing your Facebook](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) if you want to up your privacy settings.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## 2\. Maintaining Long-Distance Relationships
 
 ![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
@@ -55,9 +60,6 @@ To use Facebook Messenger's video call feature:
 ## 3\. Sharing Pictures With Your Family and Friends
 
 ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
@@ -73,12 +75,13 @@ To use Facebook Messenger's video call feature:
 
  If you are feeling lonely, joining a Facebook group is a perfect way to meet people who share the same interests as you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Join Groups on Facebook
 
 ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 To join a group on Facebook, follow these steps:
 
@@ -93,15 +96,9 @@ Then, wait for your request to be approved and start connecting!
 
  Facebook groups are an excellent way to make friends and business connections. After all, a stranger is just a friend you haven't met yet.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Joining Social Media Movements
 
 ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
  Social media has brought many of us closer together. One of the major ways people are uniting is via social media movements like the "Me Too" movement against sexual harassment and assault, which is one of the many[Twitter hashtags that have shaped history](https://www.makeuseof.com/twitter-hashtags-that-shaped-history/) .
 
@@ -112,8 +109,9 @@ Then, wait for your request to be approved and start connecting!
 ## 6\. Meeting New People
 
 ![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
@@ -121,11 +119,16 @@ Then, wait for your request to be approved and start connecting!
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great[social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Helping People Reunite With Others and Items
 
 ![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In addition to raising awareness for important global issues, social media is also powerful in potentially dangerous situations. For example, some people have used Facebook and Twitter to share details of missing people or pets—which has allowed others to inform the original poster if they see or know something.
 
@@ -137,14 +140,11 @@ Then, wait for your request to be approved and start connecting!
 
  Sure, many people will condemn social media for being a negative influence on our lives—but it's up to us to use social media as a force for good rather than bad.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +153,24 @@ Then, wait for your request to be approved and start connecting!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-unlocking-the-power-of-in-stream-ads-strategy-and-metrics-guide/"><u>[New] In 2024, Unlocking the Power of In-Stream Ads Strategy & Metrics Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-premium-online-streams-convert-youtube-to-mp3-instantly/"><u>[Updated] Premium Online Streams Convert YouTube to MP3 Instantly</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-guide-on-unlocking-iphone-se-with-a-broken-screen-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone SE with a Broken Screen?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-coding-capabilities-through-facebook-rust-alliance/"><u>Enhancing Coding Capabilities Through Facebook-Rust Alliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-teen-social-media-security-on-facebook/"><u>Ensuring Teen Social Media Security on Facebook</u></a></li>
+<li><a href="https://win-great.techidaily.com/exploring-windows-control-panel-options-a-comprehensive-guide-by-yl-computing/"><u>Exploring Windows Control Panel Options: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-spends-5-million-attracting-journalists-to-its-substack-rival/"><u>Facebook Spends $5 Million Attracting Journalists to Its Substack Rival</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-fib-facebook-bolsters-its-penalty-power-against-lies/"><u>Fighting Fib: Facebook Bolsters Its Penalty Power Against Lies</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-13-pro-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 13 Pro Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Sony Xperia 5 V? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/masterclass-in-high-speed-recording/"><u>Masterclass in High-Speed Recording</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-0xc00d36b4-sound-problem-in-win11/"><u>Overcoming 0xC00D36B4 Sound Problem in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/predictive-more-cryptos-more-social-ads/"><u>Predictive: More Cryptos, More Social Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/remain-vigilant-hidden-messages-on-facebook-app/"><u>Remain Vigilant: Hidden Messages on Facebook App</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/seamless-connection-a-step-by-step-guide-on-linking-airpods-with-quest-headphones-without-disturbing-others/"><u>Seamless Connection: A Step-by-Step Guide on Linking AirPods with Quest Headphones Without Disturbing Others</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-6-forces-that-dethroned-forums-in-digital-spaces/"><u>The 6 Forces That Dethroned Forums in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-image-ownership-on-web-platforms/"><u>Understanding Image Ownership on Web Platforms</u></a></li>
+</ul></div>
 

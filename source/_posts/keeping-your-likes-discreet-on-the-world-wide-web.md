@@ -1,7 +1,7 @@
 ---
 title: Keeping Your Likes Discreet on the World Wide Web
-date: 2024-08-15T18:49:39.047Z
-updated: 2024-08-16T18:49:39.047Z
+date: 2024-12-25T17:36:21.008Z
+updated: 2024-12-27T18:19:24.488Z
 tags:
   - facebook
 categories:
@@ -27,15 +27,17 @@ thumbnail: https://thmb.techidaily.com/fd283428cd4cb2c0907e2d15b8c7aa3306b361f3c
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
-![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
@@ -47,18 +49,6 @@ To hide the number of reactions on your posts, follow these steps.
 4. Scroll down to**News Feed Settings** and select **Reaction Preferences** . This will take you to the Reactions preferences settings page. From here, you can disable the reactions count on your posts, from posts of other users, or both.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Hiding the Reaction Count on Facebook on the Web
 
  If you’re accessing Facebook via a browser using your PC, Mac, or mobile device, follow these steps instead.
@@ -70,16 +60,22 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Understanding Facebook's Reaction Preferences
 
  Facebook’s new reaction preferences settings allow you to hide the number of reactions on your posts as well as posts from other users. But to what extent do these two settings go?
@@ -92,21 +88,15 @@ Your new settings are saved automatically.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Depressurize Your Experience on Facebook
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,4 +105,24 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-ideal-screen-reporter-tech-boosting-youtubing-experience/"><u>[New] 2024 Approved Ideal Screen Reporter Tech Boosting YouTubing Experience</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-hear-and-engage-speech-technology-gratis/"><u>[Updated] Hear & Engage Speech Technology Gratis</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-into-a-new-identity-meta-announces-its-emergence-from-facebook/"><u>Evolving Into a New Identity - Meta Announces Its Emergence From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-introduces-weekend-live-shop-experience/"><u>Facebook Introduces Weekend Live Shop Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/green-gridlock-lifted-complete-shift-to-renewables-for-fb/"><u>Green Gridlock Lifted: Complete Shift to Renewables for FB</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-does-bitrate-affect-your-listening-experience-unveiling-the-importance-of-data-transmission-rate/"><u>How Does Bitrate Affect Your Listening Experience? Unveiling the Importance of Data Transmission Rate</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-nokia-130-music-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Nokia 130 Music?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-closer-than-ever-mastering-video-focus-on-videoleap/"><u>In 2024, Closer Than Ever Mastering Video Focus on Videoleap</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-the-next-chapter-of-cinema-vr-revolution/"><u>In 2024, The Next Chapter of Cinema VR Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantly-delete-your-fb-push-and-pop-up-notifications/"><u>Instantly Delete Your FB Push and Pop-Up Notifications</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/next-gen-neon-evolution-with-ge-cync-a-deep-dive-into-smart-lighting-solutions-by-zdnet/"><u>Next-Gen Neon Evolution with GE Cync: A Deep Dive Into Smart Lighting Solutions by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-trade-of-troves-meta-vs-inappropriate-images/"><u>Tackling the Trade of Troves: Meta Vs. Inappropriate Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-followingunfollowing-on-facebook/"><u>The Do's and Don'ts of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-major-tech-blunders-of-last-year-a-roundup/"><u>The Major Tech Blunders of Last Year: A Roundup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-unraveled-a-cosmic-collision/"><u>The Metaverse Unraveled: A Cosmic Collision</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-guide-updating-your-samsung-phones-usb-drivers/"><u>Ultimate Guide: Updating Your Samsung Phone's USB Drivers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-tips-on-sharing-and-broadcasting-your-ai-powered-chats/"><u>Ultimate Tips on Sharing and Broadcasting Your AI-Powered Chats</u></a></li>
+</ul></div>
 

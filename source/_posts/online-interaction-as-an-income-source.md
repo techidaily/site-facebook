@@ -1,7 +1,7 @@
 ---
 title: Online Interaction as an Income Source
-date: 2024-12-15T06:52:06.131Z
-updated: 2024-12-21T18:05:32.141Z
+date: 2024-12-25T17:37:35.556Z
+updated: 2024-12-27T16:31:26.843Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Venture Capital
@@ -53,16 +53,12 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. User Data
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -74,16 +70,12 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Premium Memberships
 
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
@@ -104,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Diversifying
 
  Once a social network grows large enough, it looks to diversify. For those with enough capital, buying other companies is a quick way to do this.
@@ -111,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  It's why Meta owns Facebook, WhatsApp, Instagram, and Oculus. It's also why Twitter has acquired companies like Gnip, MoPub, and Periscope. Not only do they get the technologies and user data that these companies possess, but they can also use them as an additional revenue source to fund their social media platform.
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
 
@@ -133,16 +133,16 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-breaking-down-average-podcaster-salary/"><u>[New] Breaking Down Average Podcaster Salary</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-exclusive-roundup-the-top-5-iphone-compatible-podcasts-for-2024/"><u>[New] Exclusive Roundup The Top 5 iPhone-Compatible Podcasts for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-chart-a-course-to-prominence-in-facebooks-hierarchy/"><u>[New] In 2024, Chart a Course to Prominence in Facebook's Hierarchy</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-red-eye-remover-how-to-remove-red-eye-from-photos-on-iphone-free-for-2024/"><u>[Updated] Red Eye Remover| How to Remove Red Eye From Photos on iPhone [Free] for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/12-innovative-approaches-to-surge-engagement-in-your-social-feed/"><u>12 Innovative Approaches to Surge Engagement in Your Social Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/administrative-control-integrating-new-members-on-facebook-pages/"><u>Administrative Control: Integrating New Members on Facebook Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/buzz-quest-navigating-to-this-years-most-popular-social-sites/"><u>Buzz Quest: Navigating to This Year's Most Popular Social Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/darkening-outlook-what-the-future-holds-for-facebook/"><u>Darkening Outlook: What the Future Holds for Facebook</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From Apple iPhone 12 mini</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-depth-scrutiny-the-hero4-black-universe/"><u>In-Depth Scrutiny The Hero4 Black Universe</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/legacy-linkup-software/"><u>Legacy Linkup Software</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-screenshot-guide-capturing-and-storing-hulu-content/"><u>[Updated] Step-by-Step Screenshot Guide Capturing and Storing Hulu Content</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-students-handbook-how-to-choose-the-perfect-laptop-or-desktop/"><u>Comprehensive Student's Handbook: How to Choose the Perfect Laptop or Desktop</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/endo-control-secure-sound-sharing-online-for-2024/"><u>Crescendo Control Secure Sound Sharing Online for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-tech-two-cameras-on-first-fb-wearable-suggested/"><u>Emerging Tech: Two Cameras on First FB Wearable Suggested</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-zero-to-hero-in-online-communities/"><u>From Zero to Hero in Online Communities</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-explore-the-best-apps-for-effortless-youtube-to-webm-conversion/"><u>In 2024, Explore the Best Apps for Effortless YouTube to WebM Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-for-career-growth-and-success/"><u>Social Media Mastery for Career Growth and Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/streaming-showdown-gopro-hero5-black-vs-virb-ultra-30/"><u>Streaming Showdown GoPro Hero5 Black Vs. VIRB Ultra 30</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-most-watched-videos-on-facebook-today/"><u>Uncover Most Watched Videos on Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-identity-of-the-courageous-fb-insider/"><u>Unveiling Identity of the Courageous FB Insider</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/1726027794852-4/"><u>プロの評価を獲得した4つのフリーエディタで動画黒バンドカット:ベストツー</u></a></li>
 </ul></div>
 

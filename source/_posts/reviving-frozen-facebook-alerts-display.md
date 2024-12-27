@@ -1,7 +1,7 @@
 ---
 title: Reviving Frozen Facebook Alerts Display
-date: 2024-12-20T21:53:31.927Z
-updated: 2024-12-21T19:06:14.862Z
+date: 2024-12-20T20:03:46.246Z
+updated: 2024-12-27T19:45:27.687Z
 tags:
   - facebook
 categories:
@@ -78,11 +78,11 @@ Close
 
 ![Facebook notifications in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Faacebook-notifications-in-iPhone-settings.JPG)
 
-![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
 
 Close
 
@@ -97,14 +97,10 @@ For an Android device, follow these steps:
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Turn on Show notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/turn-on-show-notifications-option.jpg)
 
@@ -123,6 +119,10 @@ On your iOS device, follow these steps:
 
 ![Facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-menu.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-settings.JPG)
 
 ![facebook-settings-privacy-section-ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-settings-privacy-section-ios.jpg)
@@ -130,7 +130,7 @@ On your iOS device, follow these steps:
 ![Mute push notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Mute-push-notifications-option.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -149,17 +149,21 @@ On Android, follow these steps to enable Facebook notifications:
 
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Push notifications enabled on Facebook's Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/04-push-notifications-facebook-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  If you're not receiving Facebook notifications because you've disabled the app from sending them in your phone's Settings app, you'll see a**Turn On Push Notifications** option instead when you tap**Push** . Tap**Turn On Push Notifications,** and on the next page, allow Facebook to send notifications.
 
  The Facebook app will load all the pending alerts as soon as you refresh.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Restart Your Phone
 
@@ -183,13 +187,13 @@ To clear your Facebook cache on your iOS device:
 
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![iPhone storage check](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-storage-check.JPG)
 
 ![Offload Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Offload-Facebook-app.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -202,16 +206,16 @@ If you have an Android device, follow these steps:
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Clear cache of Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/clear-cache-of-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -243,17 +247,13 @@ Close
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -286,22 +286,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-cutting-techniques-for-photos-exclude-unwanted-edges/"><u>[Updated] Cutting Techniques for Photos Exclude Unwanted Edges</u></a></li>
-<li><a href="https://facebook.techidaily.com/300-oculus-headsets-a-new-hacked-account-reset-method/"><u>$300 Oculus Headsets, A New Hacked Account Reset Method</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-a-step-by-step-guide-to-soundtracks-on-social-feeds/"><u>2024 Approved A Step-by-Step Guide to Soundtracks on Social Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/9-reasons-why-social-media-is-actually-good-for-you/"><u>9 Reasons Why Social Media Is Actually Good for You</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/windows-10top8/"><u>最適なスライドショー製作にぴったり!Windows 10対応のベストツールTOP8をご紹介します - おすすめリソース</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/decoding-the-world-of-rcs-texting-for-better-mobile-conversations/"><u>Decoding the World of RCS Texting for Better Mobile Conversations</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-interaction-with-external-fb-appswebsites/"><u>Enhancing Interaction with External FB Apps/Websites</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/exclusive-list-elite-4k-tv-selection-for-2024/"><u>Exclusive List Elite 4K TV Selection for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/explanation-for-not-here-status-on-app-chats/"><u>Explanation for 'Not Here' Status on App Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-policy-2023-politics-and-religion-out-of-sight/"><u>Facebook Policy 2023: Politics and Religion Out of Sight</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/oneplus-ace-3-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus Ace 3 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-insights-busting-top-10-facebook-fables/"><u>Social Media Insights: Busting Top 10 Facebook Fables</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/storyboarding-through-instagram-slides/"><u>Storyboarding Through Instagram Slides</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/unraveling-the-reasons-behind-sudden-computer-shutdowns-insights-from-yl-computing-experts/"><u>Unraveling the Reasons Behind Sudden Computer Shutdowns: Insights From YL Computing Experts</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-oppo-a38-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-creating-flipbooks-from-scratch-using-windows-movie-maker-for-2024/"><u>[New] Creating Flipbooks From Scratch Using Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-4-pcmac-full-screen-recorders-ultimate-guide-for-2024/"><u>[New] Top 4 PC/Mac Full-Screen Recorders Ultimate Guide for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-jocular-photo-artist/"><u>[Updated] Prime Jocular Photo Artist</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-channel-design-mastery-selecting-the-right-yt-banner-and-art-sizes/"><u>2024 Approved Channel Design Mastery Selecting the Right YT Banner & Art Sizes</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211239189-9798987601594-a-cure-for-emma/"><u>A Cure for Emma | Free Book</u></a></li>
+<li><a href="https://fox-where.techidaily.com/diagnosing-and-fixing-issues-with-your-computers-power-supply-unit-expert-tips-from-yl-computing/"><u>Diagnosing and Fixing Issues with Your Computer's Power Supply Unit - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/expect-a-growth-spurt-of-crypto-ads-on-social-networks/"><u>Expect a Growth Spurt of Crypto Ads on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonious-humor-engaging-with-friends-smartly/"><u>Harmonious Humor: Engaging with Friends Smartly</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/huge-savings-snag-the-ultimate-gamer-and-vlogger-pc-at-a-breathtakingly-discounted-price/"><u>Huge Savings: Snag the Ultimate Gamer & Vlogger PC at a Breathtakingly Discounted Price !</u></a></li>
+<li><a href="https://video-capture.techidaily.com/journey-to-jewels-5-optimal-terrafirma-mapping/"><u>Journey to Jewels 5 Optimal Terrafirma Mapping</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-it-safe-on-sales-platforms-9-tips-for-fb-marketplaces/"><u>Keeping It Safe on Sales Platforms: 9 Tips for FB Marketplaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-friendly-feedback-with-poll-innovation/"><u>Leveraging Friendly Feedback with Poll Innovation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-drive-sharing-on-mac-a-guide-to-configuring-network-connections/"><u>Mastering Drive Sharing on Mac: A Guide to Configuring Network Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-overwhelming-tide-against-ios-tracking/"><u>The Overwhelming Tide Against iOS Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-behind-the-scenes-utilizing-facebooks-transparent-center/"><u>Understanding the 'Behind-the-Scenes': Utilizing Facebook's Transparent Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-the-masses-a-step-by-step-for-full-group-features-on-fb/"><u>Uniting the Masses: A Step-by-Step for Full Group Features on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pushes-back-may-deadline-for-policy-changes/"><u>WhatsApp Pushes Back May Deadline for Policy Changes</u></a></li>
 </ul></div>
 

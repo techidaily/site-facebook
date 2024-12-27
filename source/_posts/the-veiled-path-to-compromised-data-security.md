@@ -1,7 +1,7 @@
 ---
 title: The Veiled Path to Compromised Data Security
-date: 2024-08-15T18:50:38.808Z
-updated: 2024-08-16T18:50:38.808Z
+date: 2024-12-23T17:51:20.414Z
+updated: 2024-12-27T18:08:52.421Z
 tags:
   - facebook
 categories:
@@ -46,15 +46,16 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![NordVPN Sneak Into Basket Dark Pattern](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/NordVPN-Sneak-Into-Basket-Dark-Pattern.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
 
  You can read more about these tactics on the Dark Patterns website, as well as our[list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Companies Trick You Into Giving Up Your Privacy
 
 ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
@@ -63,9 +64,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Default Settings
 
  This dark pattern is pretty obvious. Nobody is surprised that major companies default to collecting a lot of your data. They make money by using your data to show you more relevant ads, as well as selling your information to third parties, so they want as much info as possible.
@@ -77,8 +75,9 @@ The site lists 12 types of dark patterns to watch out for:
  A GDPR-compliant setup, without dark patterns, would have no default settings and let everyone choose whatever options they want from the start.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Ease of Changing Settings
 
  How simple do these companies make it to change privacy settings? If you've ever used Facebook or Google's privacy settings, you won't be surprised to find out that it's hard to turn data-sharing off. These services often choose images and text placement to encourage users to share more data.
@@ -88,6 +87,14 @@ The site lists 12 types of dark patterns to watch out for:
  In contrast, Twitter's privacy settings are pretty straightforward. They're all clearly labeled and accessible from one menu, with no warnings about how disabling them will harm your experience.
 
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Framing
 
@@ -101,9 +108,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
@@ -120,9 +124,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. Forced Action and Timing
 
  Do you make good decisions when you're rushed? Do you weigh all the options carefully, thinking about the pros and cons of each choice? Of course not. Under pressure, you feel that you have to pick a suitable option as quickly as possible.
@@ -136,9 +137,9 @@ The site lists 12 types of dark patterns to watch out for:
  Don't be surprised to see companies use the same tactics that get you to spend more money, like counting down the hours until a limited-time promotion ends, to goad you into giving up more of your data.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Fighting Back Against Dark Patterns
 
  Unfortunately, there's not a whole lot you can do about these types of misleading tactics. You're bound to come across them sooner or later on the web. Generally, we recommend that you read over privacy options carefully for all the sites you use. It's important to dig deep into settings to find out what you do and don't have control over.
@@ -159,14 +160,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  It would be great if we could just stop using the services that treated users this way, but since it's a widespread problem, you wouldn't be able to use almost anything with that strategy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -175,4 +173,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-professional-pathway-setting-up-wm6/"><u>[Updated] In 2024, Professional Pathway Setting Up WM6</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tips-and-tricks-to-elevate-your-youtube-production-through-subtitle-integration/"><u>[Updated] In 2024, Tips and Tricks to Elevate Your YouTube Production Through Subtitle Integration</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-overcome-youtube-tweet-buffer-in-chromebook-for-2024/"><u>[Updated] Overcome YouTube Tweet Buffer in Chromebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-digital-duplicate-scam-schemes/"><u>Deciphering Digital Duplicate Scam Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-vs-offline-signals-in-facebook/"><u>Deciphering Online Vs. Offline Signals in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-symbolic-meaning-in-fb-messages/"><u>Deciphering the Symbolic Meaning in FB Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/decode-the-meta-gateway-to-instagram-and-facebooks-centrality/"><u>Decode the Meta Gateway to Instagram & Facebook's Centrality</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-past-with-facebooks-memory-repository/"><u>Delving Into Your Past with Facebook's Memory Repository</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-more-about-your-circle-with-messenger-polls/"><u>Discover More About Your Circle with Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-discussion-archiving-for-private-online-space/"><u>Discreet Discussion: Archiving for Private Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-facebook-determines-allowed-media/"><u>Dissecting How Facebook Determines Allowed Media</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/dissecting-the-functionality-of-runtime-brokers-on-your-pc/"><u>Dissecting the Functionality of Runtime Brokers on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-control-of-fb-connected-services/"><u>Effective Control of FB Connected Services</u></a></li>
+<li><a href="https://fox-access.techidaily.com/essential-basics-of-creating-compelling-haul-content-for-2024/"><u>Essential Basics of Creating Compelling Haul Content for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-nokia-g42-5g-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Nokia G42 5G</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/secure-your-data-effortlessly-with-plastic-3d-holograms-encoding-up-to-576-bits-safely/"><u>Secure Your Data Effortlessly with Plastic 3D Holograms, Encoding Up To 576 Bits Safely</u></a></li>
+<li><a href="https://win11.techidaily.com/unveiling-the-win11-powertoys-experience/"><u>Unveiling the Win11 PowerToys Experience</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-the-top-rated-video-editing-tools-for-mac-users/"><u>Updated 2024 Approved The Top-Rated Video Editing Tools for Mac Users</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-breakthrough-how-to-make-a-picture-speak/"><u>Updated Breakthrough How to Make A Picture Speak</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2024-12-17T01:25:51.660Z
-updated: 2024-12-22T02:01:48.810Z
+date: 2024-12-21T18:23:00.262Z
+updated: 2024-12-27T20:45:27.480Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Surveillance Capitalism?
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
@@ -44,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
@@ -56,6 +56,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
@@ -67,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
@@ -78,13 +82,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -94,15 +98,15 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
  With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with[human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to[destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly[steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### The Commodification of Personal Experiences
 
@@ -113,10 +117,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -145,19 +145,16 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-deep-dive-into-the-core-functionalities-of-zdsoft/"><u>2024 Approved Deep Dive Into the Core Functionalities of ZDSoft</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-imitation-ingenuity-generating-parodies-of-films/"><u>2024 Approved Imitation Ingenuity Generating Parodies of Films</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/crop-companions-best-farming-games-to-gather-with-buddies/"><u>Crop Companions Best Farming Games to Gather with Buddies</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/cyber-monday-alert-secure-your-apple-m2-macbook-air-at-record-low-prices-exclusive-findings/"><u>Cyber Monday Alert: Secure Your Apple M2 MacBook Air at Record Low Prices - Exclusive Findings</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-future-possibsilities-four-must-have-features-for-gpt-5/"><u>Exploring Future Possibsilities: Four Must-Have Features for GPT-5</u></a></li>
-<li><a href="https://facebook.techidaily.com/harmonizing-your-hands-on-gaming-and-online-connectivity-on-xbox/"><u>Harmonizing Your Hands-On Gaming and Online Connectivity on Xbox</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-samsung-galaxy-a14-4g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Samsung Galaxy A14 4G online without jailbreak</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructions-on-detaching-spotify-accounts-from-facebook-sites/"><u>Instructions on Detaching Spotify Accounts From Facebook Sites</u></a></li>
-<li><a href="https://win-forum.techidaily.com/1722915258477-navigating-the-giants-of-social-networking-facebook-twitter-instagram-and-youtube/"><u>Navigating the Giants of Social Networking: Facebook, Twitter, Instagram and YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/quieten-facebook-eyes-off-facebook-hub-knowledge/"><u>Quieten Facebook Eyes - Off-Facebook Hub Knowledge</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-made-easier-intelligent-photo-captioning-systems/"><u>Social Media Made Easier: Intelligent Photo Captioning Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ever-relevant-platform-6-continuous-uses-of-facebook-to-note/"><u>The Ever-Relevant Platform: 6 Continuous Uses of Facebook to Note</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-8-solutions-for-eliminating-the-bluish-hue-on-your-television-display/"><u>Top 8 Solutions for Eliminating the Bluish Hue on Your Television Display</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/unmissable-savings-premier-laptop-bargains-for-july-24-revealed-techbargains/"><u>Unmissable Savings: Premier Laptop Bargains for July '24 Revealed | TechBargains</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-freenoweb-recorder-app-evaluation-insights-for-2024/"><u>[New] FreenoWeb Recorder App Evaluation Insights for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-edge-and-elegance-in-figure-skating/"><u>[Updated] 2024 Approved Edge and Elegance in Figure Skating</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-advanced-recording-software-outshining-fbx-methods-for-2024/"><u>[Updated] Advanced Recording Software Outshining FBX Methods for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/st-kickstart-videos-on-youtube-for-visibility-boost-for-2024/"><u>16 Best Kickstart Videos on YouTube for Visibility Boost for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-buzz-generation-through-hashing-techniques-on-facebook/"><u>Examining #Buzz Generation Through Hashing Techniques on Facebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-discovering-charismatic-faces-on-your-snaps/"><u>In 2024, Discovering Charismatic Faces on Your Snaps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-nokia-c110-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Nokia C110 FRP Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/isolate-insta-fb-connection-for-enhanced-privacy/"><u>Isolate Insta-FB Connection for Enhanced Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-yourself-stream-ig-live-simplified/"><u>Quiet Yourself: Stream IG Live Simplified</u></a></li>
+<li><a href="https://facebook.techidaily.com/tranquil-online-presence-dissuading-commenters-on-fb/"><u>Tranquil Online Presence: Dissuading Commenters on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-opinion-shift-screens-out-more-goodness/"><u>U.S. Opinion Shift: Screens Out More Goodness</u></a></li>
 </ul></div>
 

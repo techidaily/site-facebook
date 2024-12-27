@@ -1,7 +1,7 @@
 ---
 title: The Silent Whispers Predicting Facebook's Woes
-date: 2024-08-15T18:48:00.596Z
-updated: 2024-08-16T18:48:00.596Z
+date: 2024-12-20T19:34:14.873Z
+updated: 2024-12-27T17:11:53.098Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
 
 ![facebook logo on a multicolored pastel background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-on-a-multicolored-pastel-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
  And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
@@ -34,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Is the Facebook Whistleblower?
 
  The Facebook whistleblower is Frances Haugen, a 37-year-old woman and data scientist from Iowa. Haugen was a product manager on the Civic Integrity team at Facebook. Before joining Facebook, she worked for big tech companies like Google and Pinterest for nearly two decades.
@@ -49,13 +54,15 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Facebook Consortium?
 
 ![A visual showing manager instructing resources](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Asana-Reporting-Resource-Management.jpeg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Facebook Consortium is a group of reporters tasked with releasing information from copies of leaked documents from Haugen. These include publications like the Associated Press, The New York Times, The Washington Post, and CNN. A few European outlets are also included.
@@ -67,22 +74,20 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
  However, that plan fell apart when some outlets contacted Facebook shortly after receiving the documents on October 10, 2021, after which the rest of the news outlets—including The New York Times, CNN, NBC News, and Bloomberg—started publishing their stories.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can Facebook Overcome This Storm?
 
  Facebook has had a lot of negative press in recent months. While it has had some challenges over the years, the challenges Facebook now faces are quite serious.
 
  Facebook will probably overcome this current scandal, but its goodwill may be tarnished in the process, given the sensitivity and seriousness of the documents shared by Haugen. However, as to how much damage it will do to Facebook overall, only time will tell.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +96,22 @@ thumbnail: https://thmb.techidaily.com/e271cbb6eb6a65ff2648f6dddd1fc0c078a843660
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-refine-your-remote-sessions-zoom-in-effectively/"><u>[New] In 2024, Refine Your Remote Sessions Zoom in Effectively</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-uav-connoisseurs-guide-to-essential-equipment/"><u>[New] In 2024, The UAV Connoisseur's Guide to Essential Equipment</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-secrets-to-gaining-traction-for-your-fb-page/"><u>[Updated] 2024 Approved Secrets to Gaining Traction for Your FB Page</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-oppo-reno-10-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dive-into-digital-gadgets-with-expert-analysis-at-toms-hw/"><u>Dive Into Digital Gadgets with Expert Analysis at Tom's HW</u></a></li>
+<li><a href="https://win-best.techidaily.com/1728464414439-google/"><u>Google フォトで画像が自動削除される原因と対策</u></a></li>
+<li><a href="https://facebook.techidaily.com/guardians-of-the-digital-world-where-are-they/"><u>Guardians of the Digital World, Where Are They?</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-home-smart-hub/"><u>Maximizing Facebook's Home Smart Hub</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/rhythm-renders-infusing-sound-into-your-visual-storytelling-fb/"><u>Rhythm Renders Infusing Sound Into Your Visual Storytelling (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-simplified-instagram-to-whatsapp-2fa-codes/"><u>Secure Login Simplified: Instagram to WhatsApp 2FA Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-sound-experience-spotify-on-facebook-tips/"><u>Streamline Your Sound Experience: Spotify on Facebook Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/tightening-control-over-who-you-engage-with-fb/"><u>Tightening Control Over Who You Engage With FB</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-xiaomi-14-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Xiaomi 14</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/uncovering-the-invisible-how-to-inspect-facebooks-data-trails/"><u>Uncovering the Invisible How to Inspect Facebook's Data Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-suggested-for-you-content-on-facebook-and-why-cant-you-disable-it/"><u>What Is “Suggested for You” Content on Facebook, and Why Can’t You Disable It?</u></a></li>
+</ul></div>
 

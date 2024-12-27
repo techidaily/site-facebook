@@ -1,7 +1,7 @@
 ---
 title: Navigating the Seas of Social Media’s Past Highlights
-date: 2024-12-15T06:02:40.170Z
-updated: 2024-12-21T18:40:26.884Z
+date: 2024-12-24T18:33:48.615Z
+updated: 2024-12-27T20:12:19.252Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is the On This Day Feature on Facebook?
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/641461279d3ad9059bf4fdcda2c6b1609c3c8007c
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Share Memories
 
  The first thing that most users discover is the option to share their memories with others. You can post it on your timeline, send them in messages, and even tag specific people.
@@ -59,10 +63,6 @@ To share a memory from the On This Day feature:
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -82,6 +82,10 @@ You can save your On This Day posts with the following steps:
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 To access your saved memories:
@@ -94,10 +98,6 @@ To access your saved memories:
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
@@ -105,7 +105,7 @@ Close
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
@@ -124,11 +124,11 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
 
@@ -143,7 +143,7 @@ Close
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Hide Memories
@@ -173,21 +173,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-7-essential-secrets-for-delectable-cooking-clips/"><u>[Updated] In 2024, 7 Essential Secrets for Delectable Cooking Clips</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-ultimate-guide-to-sustainable-visual-effects-equipment/"><u>2024 Approved Ultimate Guide to Sustainable Visual Effects Equipment</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-way-to-configure-mt4-and-mt5-accounts-for-running-a-local-trade-copier-tm-together-with-any-other-forex-ea-by-mt4copier-guide/"><u>Best way to Configure MT4 and MT5 Accounts for Running a Local Trade Copier™ Together With Any Other Forex EA</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-games-and-networks-social-integration-on-xbox/"><u>Bridging Games and Networks: Social Integration on Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-your-virtual-persona-picture-perfection-tips/"><u>Elevating Your Virtual Persona: Picture Perfection Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/establishing-foundation-for-healthy-fb-group-interactions/"><u>Establishing Foundation for Healthy FB Group Interactions</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expert-analysis-of-the-kootek-portable-laptop-chiller-top-performance-proven/"><u>Expert Analysis of the Kootek Portable Laptop Chiller - Top Performance Proven</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-cracks-down-new-penalties-against-misinforming-users/"><u>Facebook Cracks Down: New Penalties Against Misinforming Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-facebooks-chat-works-behind-scenes/"><u>How Facebook's Chat Works Behind Scenes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-a-comprehensive-tour-youtube-creator-suite/"><u>In 2024, A Comprehensive Tour YouTube Creator Suite</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-mac-privacy-settings-recovering-stored-usernames-and-passwords-safely/"><u>Mastering Mac Privacy Settings: Recovering Stored Usernames and Passwords Safely</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/revolutionizing-reality-expertly-reviewed-peripherals/"><u>Revolutionizing Reality Expertly Reviewed Peripherals</u></a></li>
-<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-debunking-facebook-beliefs/"><u>Separating Fact From Fiction: Debunking Facebook Beliefs</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-value-proposition-of-claude-3/"><u>The Value Proposition of Claude 3</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/transform-your-exercise-routine-with-airpods-pros-latest-feature-in-ear-fitness-coaching-and-real-time-heart-monitoring-news/"><u>Transform Your Exercise Routine with AirPods Pro's Latest Feature: In-Ear Fitness Coaching & Real-Time Heart Monitoring News</u></a></li>
-<li><a href="https://facebook.techidaily.com/vk-101-comprehensively-understanding-russias-social-media/"><u>VK 101: Comprehensively Understanding Russia’s Social Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-streamlining-song-selection-for-youtube-playlist-curation/"><u>[New] In 2024, Streamlining Song Selection for YouTube Playlist Curation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-exploring-splitcams-recording-capabilities-and-excellence-for-2024/"><u>[Updated] Exploring SplitCam's Recording Capabilities and Excellence for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-s17t-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo S17t Phone without PIN</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-htc-u23-pro-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your HTC U23 Pro Phone? Unlock It Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/industrys-controversial-stars-a-focus-on-the-top-6/"><u>Industry’s Controversial Stars: A Focus on the Top 6</u></a></li>
+<li><a href="https://facebook.techidaily.com/metavision-usa-the-path-to-verified-status/"><u>Metavision USA: The Path to Verified Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/misconeptions-shattered-realities-of-the-virtual-universe/"><u>Misconeptions Shattered: Realities of the Virtual Universe</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-a-virtual-self-in-the-fb-realm/"><u>Sculpting a Virtual Self in the FB Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-everyone-alerts-from-showing-up/"><u>Stop @Everyone Alerts From Showing Up</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/upgrade-your-computers-performance-download-intel-raid-driver-software-supported-by-windows-versions-11108win7/"><u>Upgrade Your Computer's Performance: Download Intel RAID Driver Software - Supported by Windows (Versions 11/10/8/^[Win7])</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/vermenigvuldig-je-videocontent-een-simple-guide-tot-muziek-bij-movavi/"><u>Vermenigvuldig Je Videocontent: Een Simple Guide Tot Muziek Bij Movavi</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/xiaomi-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Xiaomi ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 </ul></div>
 

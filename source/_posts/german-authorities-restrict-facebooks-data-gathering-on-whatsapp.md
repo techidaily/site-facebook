@@ -1,7 +1,7 @@
 ---
 title: German Authorities Restrict Facebook's Data Gathering on WhatsApp
-date: 2024-08-15T18:52:17.240Z
-updated: 2024-08-16T18:52:17.240Z
+date: 2024-12-20T16:25:27.414Z
+updated: 2024-12-27T18:55:24.435Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/895e63c00991de11c3a5bb60d914f7ce63bcb7f1c
 ## German Authorities Restrict Facebook's Data Gathering on WhatsApp
 
  A regulator in Germany has ordered Facebook to stop collecting data from WhatsApp users in the country for three months. This decision was made following the rollout of WhatsApp's new privacy policy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
 
@@ -34,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/895e63c00991de11c3a5bb60d914f7ce63bcb7f1c
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Where Does Facebook Go From Here?
 
  Facebook already delayed the rollout of WhatsApp's new privacy policy after an online backlash against it. With the policy once again being called into question, perhaps it would be wise for Facebook to reconsider WhatsApp's new privacy policy.
@@ -47,22 +52,20 @@ thumbnail: https://thmb.techidaily.com/895e63c00991de11c3a5bb60d914f7ce63bcb7f1c
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Everyone Is Gunning for Facebook Right Now
 
  Facebook's moves are getting blocked left, right, and center. The company has been asked to[cancel its plans for an Instagram for kids](https://www.makeuseof.com/attorneys-general-facebook-instagram-for-children/) ,[India is investigating the new WhatsApp policy](https://www.makeuseof.com/india-investigating-whatsapp-privacy-policy/) , and[Apple has been coming for Facebook's ad tracking](https://www.makeuseof.com/zuckerberg-apple-privacy-push/) .
 
  So, with everyone seemingly gunning for Facebook right now, the social network needs to tread carefully in order to avoid yet another PR disaster.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +74,17 @@ thumbnail: https://thmb.techidaily.com/895e63c00991de11c3a5bb60d914f7ce63bcb7f1c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-pro-tips-for-high-quality-ps3-game-screenshots/"><u>[Updated] 2024 Approved Pro Tips for High-Quality PS3 Game Screenshots</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-top-3-cloud-based-speech-tools/"><u>[Updated] In 2024, Top 3 Cloud-Based Speech Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mastering-the-art-of-adding-youtube-playlists-to-your-website-seamlessly-for-2024/"><u>[Updated] Mastering the Art of Adding YouTube Playlists to Your Website Seamlessly for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-digital-dynamics-surging-success-through-smart-telegram-tactics/"><u>2024 Approved Digital Dynamics Surging Success Through Smart Telegram Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-novices-guide-to-changing-fb-photo/"><u>A Novice's Guide to Changing FB Photo</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/advanced-tips-for-disabling-trustedinstaller-protection-during-windows-10-tweaks/"><u>Advanced Tips for Disabling TrustedInstaller Protection During Windows 10 Tweaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/auto-caption-generation-boost-engagement-in-your-fb-gallery/"><u>Auto-Caption Generation: Boost Engagement in Your FB Gallery</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-mechanisms-behind-fbs-moderation-panel/"><u>Breaking Down the Mechanisms Behind FB's Moderation Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-ethics-in-action-correctly-banned-trump-but-temporarily/"><u>Cyber Ethics in Action: Correctly Banned Trump, But Temporarily</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/guide-on-mass-converting-8svx-files-into-high-quality-mp3s/"><u>Guide on Mass-Converting .8SVX Files Into High-Quality MP3s</u></a></li>
+</ul></div>
 

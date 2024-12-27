@@ -1,7 +1,7 @@
 ---
 title: Equestrian Societies Shun Internet Sessions
-date: 2024-08-15T18:49:54.880Z
-updated: 2024-08-16T18:49:54.880Z
+date: 2024-12-20T20:04:07.176Z
+updated: 2024-12-27T20:26:58.510Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
 
  Stamping out racism in any respect is, quite rightly, very much on many people's agendas. One example being England's athletes and sports stars who, along with their teams, are taking a social media stand against online racism.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## England Sports' Social Media Blackout Has Begun
 
  We reported previously that[English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
@@ -26,8 +30,9 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Will the Social Media Blackout Involve?
 
  As with any blackout, it involves sports players and teams steering clear of social media. So there will be no posts about football, cricket, or rugby, from the teams and players involved in each respective sport. That is because they have boycotted all the platforms mentioned above.
@@ -35,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Are Sports Teams Boycotting Social Media?
 
  One word. Racism. It is unacceptable to racially abuse anyone, on or offline. Sporting personalities want you to know this. The Premier League announcement says:
@@ -48,20 +54,18 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Taking a Stand Against Racism
 
  Perhaps if more people followed suit and abandoned social media on the grounds of stamping out racism, then platform owners might stop and pay attention. While it isn't going to end racism overnight, unfortunately, it is a great place for everyone who uses social media to start.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,4 +74,26 @@ thumbnail: https://thmb.techidaily.com/a68c5c5018f608284d7af133f2911830741f89825
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-cutting-edge-e-learning-sites-that-dont-fit-udemy-for-2024/"><u>[New] Cutting-Edge E-Learning Sites That Don't Fit Udemy for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-becoming-a-streaming-pro-iphone-and-android-strategies/"><u>[New] In 2024, Becoming a Streaming Pro IPhone & Android Strategies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-top-vloggers-dreaded-fears-and-victory-strategies-for-2024/"><u>[Updated] Top Vloggers' Dreaded Fears and Victory Strategies for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-bikes-viewing-experience-5050-of-the-ultimate-helmet-cam-tech/"><u>2024 Approved Bike's Viewing Experience - 50/50 of the Ultimate Helmet Cam Tech</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/determining-frame-rates-master-choice-between-30fps-and-60fps/"><u>Determining Frame Rates Master Choice Between 30Fps and 60Fps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/elevating-ai-conversations-with-3-key-approaches-to-chatgpt-wolframlink/"><u>Elevating AI Conversations with 3 Key Approaches to ChatGPT-WolframLink</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-reveals-insightful-policies-at-new-center-launch/"><u>Facebook Reveals Insightful Policies at New Center Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/germanys-stand-on-privacy-no-more-facebook-snooping-on-whatsapp-users/"><u>Germany's Stand on Privacy: No More Facebook Snooping on WhatsApp Users</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guia-gratuita-de-instalacion-e-inicio-de-sesion-en-google-meet-desde-telefonos-inteligentes-y-pcs/"><u>Guía Gratuita De Instalación E Inicio De Sesión en Google Meet Desde Teléfonos Inteligentes Y PCs</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-trailblaze-the-gaming-frontier-samsung-edition/"><u>In 2024, Trailblaze the Gaming Frontier Samsung Edition</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-full-potential-of-firefox-x-pie-mode/"><u>In 2024, Unleashing Full Potential of Firefox X-Pie Mode</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-at-the-forefront-of-covid-19-mythology/"><u>Influencers at the Forefront of Covid-19 Mythology</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-altered-by-like-culture-on-facebook/"><u>Life Altered by 'Like' Culture on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-security-with-two-factor-authentication-on-major-mail-providers/"><u>Maximizing Security with Two-Factor Authentication on Major Mail Providers</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-us-officially-verified-sign-up-now/"><u>Meta US: Officially Verified Sign-Up Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-and-resolving-top-11-social-media-faux-pas-on-facebook/"><u>Navigating & Resolving Top 11 Social Media Faux Pas on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-away-from-sensational-selfies-sharing-at-meta/"><u>Steering Away From Sensational Selfies Sharing at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-is-now-facebookshift-into-meta-redefining-social-interaction/"><u>The Future Is Now: Facebook’shift Into 'Meta', Redefining Social Interaction</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-value-of-hard-work-in-education-vs-chatgpt-convenience/"><u>The Value of Hard Work in Education Vs. ChatGPT Convenience</u></a></li>
+</ul></div>
 

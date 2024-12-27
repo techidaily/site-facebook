@@ -1,7 +1,7 @@
 ---
 title: Facebook Invites You to Shape Tomorrow’s Metaverse, Awaiting 10K
-date: 2024-08-15T18:51:41.438Z
-updated: 2024-08-16T18:51:41.438Z
+date: 2024-12-21T17:01:38.108Z
+updated: 2024-12-27T16:21:22.431Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
 
  If you’re based in the EU and have a working knowledge of AR and VR, this might be an opportunity for you. Read on to find out more about the jobs. Don’t yet know what the metaverse is? Don't worry, as we’ll explain that too.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Metaverse?
 
 ![Virtual reality illustration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2016/08/VR_shutterstock.jpg)
@@ -30,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
  In other words, Facebook wants to create an internet experience that would allow users to interact with one another in a virtual space—kind of like Second Life meets Star Trek's Holodeck.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Betting Big on EU Tech Talent
 
  In an October 17 post on the[Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
@@ -41,13 +46,15 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
  The jobs are going to be spread across the EU with emphasis on Germany, France, Italy, Spain, Ireland, and Poland.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does Facebook Need to Build the Metaverse?
 
 ![If you're looking for a taste of the other side, marketing and sales are both great non-programming jobs for software engineers.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/cs-jobs-that-dont-require-coding.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Building the metaverse will require inputs from diverse fields, which means the jobs are most likely going to be spread across professions. However, the announcement did state a need for "highly specialized engineers", and that getting these engineers was "one of Facebook’s most pressing priorities."
@@ -67,22 +74,20 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
  And lots more besides. The chances are that there are going to be opportunities for non-tech roles too. So, if you're located in the EU and would love to work for Facebook, this might just be your chance.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your Chance to Become Part of Facebook's Metaverse
 
  The metaverse is coming and Facebook wants to lead the way. And in order to help it build the metaverse, it's looking for 10,000 people across the EU to help take virtual reality and augmented reality mainstream by building a metaverse that will connect people around the world in a new way.
 
  While many of these jobs are going to be tech-related, there will also be opportunities in non-tech roles too. If working for Facebook sounds like the kind of thing that would interest you, now might be a good time to brush up on your VR/AR skills.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +96,21 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-unlocking-the-potential-of-drone-footage-through-editing/"><u>[New] 2024 Approved Unlocking the Potential of Drone Footage Through Editing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-what-do-podcast-producers-really-make/"><u>[New] In 2024, What Do Podcast Producers Really Make?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-thumbnail-dimensions-for-online-success/"><u>[New] Top Thumbnail Dimensions for Online Success</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-youtuber-enigma-decoded-exciting-questionnaires-leading-to-your-ideal-creator-profile/"><u>2024 Approved The YouTuber Enigma Decoded Exciting Questionnaires Leading to Your Ideal Creator Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-picture-visibility-options/"><u>Decoding FB Picture Visibility Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-power-dynamics-7-core-insights-from-social-media-papers/"><u>Deconstructing Power Dynamics: 7 Core Insights From Social Media Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-data-the-statistical-impact-of-hashtags-in-facebook-interactions/"><u>Dissecting Data: The Statistical Impact of Hashtags in Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metaverse-vs-virtual-reality-exploring-6-core-distinctions/"><u>Dissecting Metaverse Vs. Virtual Reality: Exploring 6 Core Distinctions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722900861252-effective-solutions-for-addressing-xbox-series-next-gen-console-headset-failures/"><u>Effective Solutions for Addressing Xbox Series Next-Gen Console Headset Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-reactivating-locked-out-fb-accounts/"><u>Effective Strategies: Reactivating Locked-Out Fb Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-techniques-to-unlock-fb-accounts-in-emergency/"><u>Effective Techniques to Unlock Fb Accounts in Emergency</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-14-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 14 without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-process-for-running-sfc-on-windows-pcs/"><u>Step-by-Step Process for Running SFC on Windows PCs</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96489615-9781578595310-the-zombie-book/"><u>The Zombie Book | Free Book</u></a></li>
+</ul></div>
 

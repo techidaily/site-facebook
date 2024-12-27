@@ -1,7 +1,7 @@
 ---
 title: Unlock Advanced Account Protection with FB MTGC
-date: 2024-08-15T18:48:37.899Z
-updated: 2024-08-16T18:48:37.899Z
+date: 2024-12-22T19:33:02.154Z
+updated: 2024-12-27T19:16:56.692Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/8761d7ab814205b2f88e7841689a57f834d49b25e
 
 ![Facebook Mobile Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Setting-Up-Extra-Security.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Set up Login Alerts on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Login-Alerts.jpg)
 
 Close
@@ -56,18 +60,16 @@ Close
  You can add as many numbers as you like, and we highly recommend that you add at least two. Note that adding a number will automatically enable text notifications to the last-added number, something you might want to disable.
 
 ![Facebook Mobile Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings.jpg)
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 
 ![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Mobile Personal and Account Information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Personal-and-Account-Information.jpg)
 
 ![Facebook Mobile Manage Contact Info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Manage-Contact-Info.jpg)
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -76,19 +78,14 @@ Close
  To enable two-factor authentication, navigate to **Settings > Password and Security > Use two-factor authentication** , choose whether you want to use an**Authentication App** ,**Text Message (SMS)** , or**Security key** and follow the on-screen instructions to set up your choice.
 
 ![Facebook Mobile Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings.jpg)
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 
 ![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook Mobile Two-Factor Authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Two-Factor-Authentication.jpg)
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Facebook Mobile Help Protect Your Account Select a Security Method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Help-Protect-Your-Account-Select-a-Security-Method.jpg)
 
@@ -102,21 +99,24 @@ Close
 
 ![Select your phone number while setting up two-factor authentication in the Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-3.jpg)
 
-![Add a new phone number for two-factor authentication on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-1.jpg)
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![Add a new phone number for two-factor authentication on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![explanation of what Facebook can do with a phone number provided for two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Enter a 6-digit code to confirm your phone number for two-factor authentication in Facebook Mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-4.jpg)
 
 ![Confirmation that two-factor authentication was enabled for a specific phone number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-5.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -128,29 +128,21 @@ Close
  We went with the third-party app, and it was all done in a matter of seconds. Note that when you return to Facebook, you'll have to enter a confirmation code from the app to finalize the setup.
 
 ![Facebook Mobile Help Protect Your Account Select a Security Method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Help-Protect-Your-Account-Select-a-Security-Method.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 
 ![Facebook Two Factor Authentication Scan Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-7-Edited.png)
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 
 ![Facebook Set Up Authenticator Choose App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-8-Blurred.png)
 
 ![Enter Confirmation Code to authenticate authenticator app on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook MObile Two-Factor Authentication Is On](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-MObile-Two-Factor-Authentication-Is-On.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Always Set Up Backup Facebook Recovery Methods
 
  After you've turned on two-factor authentication, be sure to keep your phone number(s) up to date and always have an authorized device as a backup to log in or change your settings. Most importantly, however, set up the following backup security methods:
@@ -163,18 +155,20 @@ Close
 
 ![Facebook Mobile Two-Factor Authentication Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Two-Factor-Authentication-Options.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Save Facebook Recovery Codes from the mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-Recovery-Codes.jpg)
 
 ![explanation of what Facebook can do with a phone number provided for two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up Code Generator
 
  While you can set up and access most features described above from Facebook in your browser, Code Generator is a feature exclusive to the Facebook mobile app. If you had the app installed all along, Code Generator should be available already.
@@ -187,6 +181,10 @@ Close
 
 ![Facebook Mobile Code Generator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Code-Generator.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Mobile Code Generator Code Copied](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Code-Generator-Code-Copied.jpg)
 
 Close
@@ -195,23 +193,17 @@ Close
 
  Should you ever[lose access to Facebook Code Generator](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) (for example, if your phone was stolen), you can log into Facebook from a recognized device, log out on your phone, and remove Code Generator. Until you get your phone back, you can also set up a third-party app to generate codes.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Keep Your Facebook Account Secure
 
  Once you have straightened out your personal information, security settings, and backup recovery methods, you should never struggle to recover your Facebook account login. If you want to verify that you've sufficiently protected your Facebook account, try[Facebook's Privacy Checkup tool](https://www.facebook.com/privacy/checkup) and see if you can make any other improvements to keep your account secure.
 
  If you're ever concerned that your account is compromised, check whether anyone accessed your Facebook account and from where. You can also log them out of your account straight from the Facebook interface.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,4 +212,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-transform-your-pubg-audio-gameplay-fast/"><u>[New] 2024 Approved Transform Your PUBG Audio Gameplay Fast</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>[New] In 2024, Effortless Sound Sourcing The Top 15 Freebie Audiosites</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-hands-free-tips-saving-instagram-stories-as-videos/"><u>[Updated] Hands-Free Tips Saving Instagram Stories as Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/equestrian-societies-shun-internet-sessions/"><u>Equestrian Societies Shun Internet Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-identity-online-changing-your-facebook-username/"><u>Evolving Identity Online: Changing Your Facebook Username</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-updates-on-subjective-interpretations/"><u>Facebook Updates on Subjective Interpretations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-home-and-feeds-tabs-what-you-need-to-know/"><u>Facebook's New Home and Feeds Tabs: What You Need to Know</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-locked-apple-iphone-11-pro-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>Forgot Locked Apple iPhone 11 Pro Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209597234-9781495046018-haunted-america-faq/"><u>Haunted America FAQ | Free Book</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-resolve-game-crash-on-pc-when-playing-sovled-necromunda-hired-gun/"><u>How to Resolve Game-Crash on PC When Playing [SOVLED] Necromunda: Hired Gun</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-oppo-reno-10-pro-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Oppo Reno 10 Pro 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/instant-photographic-display-in-11-os-for-2024/"><u>Instant Photographic Display in 11 OS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-friends-out-of-your-facebook-replay-time/"><u>Keep Friends Out of Your Facebook Replay Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-accessibility-of-your-deactivated-facebook-account/"><u>Restoring Accessibility of Your Deactivated Facebook Account</u></a></li>
+<li><a href="https://win-dash.techidaily.com/secure-your-print-jobs-download-updated-drivers-for-brother-hl-l235tdw-printer-now/"><u>Secure Your Print Jobs - Download Updated Drivers for Brother HL-L235tDW Printer Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-guide-personalizing-your-fb-browsing-journey/"><u>Simplified Guide: Personalizing Your Fb Browsing Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-spheres-meld-facebook-and-instagrams-bond-deepens/"><u>Social Spheres Meld: Facebook & Instagram's Bond Deepens</u></a></li>
+</ul></div>
 

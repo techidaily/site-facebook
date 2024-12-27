@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Delays Implementation of Updated Privacy Agreement
-date: 2024-08-15T18:47:08.521Z
-updated: 2024-08-16T18:47:08.521Z
+date: 2024-12-21T20:00:57.835Z
+updated: 2024-12-27T17:31:35.205Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
 
  In January this year, WhatsApp announced a controversial new privacy policy, which would allow the company to share data with Facebook. The policy initially stated that if one did not accept the changes, their WhatsApp account would be eventually deleted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## WhatsApp's New Privacy Policy Has Been Heavily Criticized
 
  WhatsApp has updated its privacy policy many times in the past. However, this is the first time it announced that it would be limiting and deleting accounts that do not accept the changes.
@@ -32,13 +36,15 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
  For the past few weeks, WhatsApp has been showing a notification inside its app to provide more information about its privacy policy. It is also sending reminders if you have not accepted its new privacy policy. Eventually, if you don't accept the privacy policy, the reminder from WhatsApp will become persistent.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your WhatsApp Account Functionality Will Be Limited
 
 ![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once a persistent reminder is shown, the functionality of your WhatsApp account will be limited. Initially, you'll only lose access to your chat list. You can, however, still answer incoming video or voice calls. You'll also be able to read and respond to messages or call back a missed voice or video call via notifications. In an[FAQ](https://faq.whatsapp.com/general/security-and-privacy/what-happens-when-our-terms-and-privacy-policy-updates-take-effect/?lang=en) , WhatsApp says the limitations will not apply to everyone at the same time.
@@ -46,23 +52,20 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
  A few weeks after your WhatsApp account's functionality is limited, you will lose the ability to receive incoming calls and messages. At this point, your WhatsApp account will basically be of no use as you won't be able to send or receive messages.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Inactive WhatsApp Accounts Are Deleted After 120 Days
 
  WhatsApp won't delete your account if you don't accept its new privacy policy, but it does delete all inactive accounts after 120 days. This means once the functionality of your WhatsApp account is limited and you're unable to use the app to send messages, WhatsApp will delete your account after 120 days.
 
  If you are not comfortable with WhatsApp's new privacy policy, you can check some[WhatsApp alternatives that do not share data with Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -71,4 +74,26 @@ thumbnail: https://thmb.techidaily.com/578092e9e17a69c476b3082e47519b7819155a500
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-the-top-10-windows-camera-apps-reviewed/"><u>[New] The Top 10 Windows Camera Apps - Reviewed</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-ultimate-collection-of-film-scripts-by-genre/"><u>[Updated] The Ultimate Collection of Film Scripts by Genre</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tips-for-sourcing-premium-videography-talent/"><u>[Updated] Tips for Sourcing Premium Videography Talent</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-personal-time-management-facebooks-daily-notification-feature/"><u>Enhance Personal Time Management: Facebook’s Daily Notification Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-roi-of-meta-verified-accounts/"><u>Evaluating the ROI of Meta Verified Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-guide-to-chat-apps-not-facebooks-messenger/"><u>Exclusive Guide to Chat Apps, Not Facebook's Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-depth-of-facebooks-security-system/"><u>Exploring the Depth of Facebook’s Security System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reimagined-romance-a-new-era-of-social-interaction-and-dating/"><u>Facebook's Reimagined Romance: A New Era of Social Interaction and Dating</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-converter-transform-vob-files-into-high-quality-aiff-audio-directly-on-the-web-with-movavi/"><u>Free Converter: Transform VOB Files Into High-Quality AIFF Audio Directly on the Web with Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-shared-social-spaces-unlinking-fb-and-instagram/"><u>Freedom From Shared Social Spaces: Unlinking FB & Instagram</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-poco-c65-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-access-your-iphone-12-when-you-forget-the-passcode-by-drfone-ios/"><u>In 2024, How to Access Your iPhone 12 When You Forget the Passcode?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-perfect-your-content-with-vimeo-on-instagram/"><u>In 2024, Perfect Your Content with Vimeo on Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-step-by-step-integrating-comments-in-youtube-videos/"><u>In 2024, Step-by-Step Integrating Comments in YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-social-memories-fb-imagevideo-save-techniques/"><u>Securing Your Social Memories: FB Image/Video Save Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-platforms-feature-disapproval-options/"><u>Should Platforms Feature Disapproval Options?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-views-into-a-following/"><u>Transforming Views Into a Following</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-dialogue-tools-to-engage-audio-audiences/"><u>Updated Dialogue Tools to Engage Audio Audiences</u></a></li>
+</ul></div>
 

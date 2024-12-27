@@ -1,7 +1,7 @@
 ---
 title: Exploring the Impact of Reels on TikTok’s Popularity with FB Users
-date: 2024-08-15T18:50:31.207Z
-updated: 2024-08-16T18:50:31.207Z
+date: 2024-12-20T18:40:45.569Z
+updated: 2024-12-27T18:22:33.043Z
 tags:
   - facebook
 categories:
@@ -25,22 +25,20 @@ thumbnail: https://thmb.techidaily.com/7c98b3aa443d56db5acb03366d8aa2c1ee75e1644
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
  In less than five years, TikTok has achieved over three million downloads and more than a billion monthly active users. Here is how the platform is causing problems for Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ### 1\. A Drop in Daily and Monthly Active Users
 
  Facebook experienced a first-ever drop in daily active users as competitors like TikTok gained ground. As reported by[Forbes](https://www.forbes.com/sites/roberthart/2022/02/03/facebook-loses-daily-active-users-for-the-first-time--heres-where-theyre-going/) , roughly half a million users stopped using their accounts on a daily basis.
 
  Facebook is losing a specific segment of consumers, namely Gen Z, to its rival TikTok.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Depleting Engagement Levels
 
  Along with the decline in daily active users, Facebook is also suffering from depleting user engagement levels.
@@ -55,18 +53,12 @@ thumbnail: https://thmb.techidaily.com/7c98b3aa443d56db5acb03366d8aa2c1ee75e1644
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ## How Facebook Plans to Regain Momentum
 
 ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
@@ -75,11 +67,19 @@ No advertising on the website.
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Is Seen as a Mixed Media Platform
 
@@ -99,34 +99,29 @@ No advertising on the website.
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ### Monetization Issues
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Reels vs. TikTok: The Final Verdict
 
  The rise of TikTok and YouTube Shorts indicate that video is the future of social media, and Facebook has taken note. This may not make it seem inventive—but at this point, it doesn’t really matter. Facebook sees Reels as an integral part of its future, and it'll need to do so if it wants to compete with the likes of TikTok.
 
  Reels might be late to the short-form video scene, but with the powerful Meta brand behind it, it's got every chance of succeeding.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +130,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-what-sets-youtube-tv-apart-from-other-streaming-platforms-for-2024/"><u>[Updated] Exploring What Sets YouTube TV Apart From Other Streaming Platforms for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-screen-capture-face-off-battle-of-the-best-obs-or-bandicam-for-2024/"><u>[Updated] Screen Capture Face-Off Battle of the Best, OBS or Bandicam for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-sifting-through-the-best-video-hosting-options-with-vimeo-memberships/"><u>[Updated] Sifting Through the Best Video Hosting Options with Vimeo Memberships</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-live-transmission-directly-to-instagram-via-obs/"><u>2024 Approved Live Transmission Directly to Instagram via OBS</u></a></li>
+<li><a href="https://facebook.techidaily.com/decembers-silence-on-instagram-thread-activity/"><u>December's Silence on Instagram Thread Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/deep-dive-into-facebooks-metaverse-three-concerns-raised/"><u>Deep Dive Into Facebook's Metaverse: Three Concerns Raised</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-with-determination-strategies-for-discarding-your-fb-brand-pages/"><u>Deleting with Determination: Strategies for Discarding Your FB Brand Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-bonds-that-matter-the-top-9-advantages-of-social-networks/"><u>Digital Bonds That Matter: The Top 9 Advantages of Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-latest-fb-views-quickly/"><u>Discovering Latest FB Views Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-digital-interaction-hiding-your-fb-content-via-archive/"><u>Discreet Digital Interaction: Hiding Your Fb Content via Archive</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-deeper-connections-facebooks-past-narrative/"><u>Diving Into Deeper Connections: Facebook’s Past Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-methods-for-managing-page-followings/"><u>Effective Methods for Managing Page Followings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevate-your-content-youtube-thumbnail-artistry-on-mac/"><u>In 2024, Elevate Your Content YouTube Thumbnail Artistry on Mac</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Vivo Y36? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-freelance-gamers-compendium-unveiling-the-best-free-steam-titles/"><u>The Freelance Gamer's Compendium: Unveiling the Best Free Steam Titles</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-apple-iphone-se-2022-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/your-quick-guide-to-google-voice-call-history/"><u>Your Quick Guide to Google Voice Call History</u></a></li>
+</ul></div>
 

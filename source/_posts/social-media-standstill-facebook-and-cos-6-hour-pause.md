@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-12-18T23:07:54.014Z
-updated: 2024-12-21T21:51:37.009Z
+date: 2024-12-23T20:21:51.454Z
+updated: 2024-12-27T16:06:01.243Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,18 +87,17 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-capturing-screen-content-on-huawei-mate-10-20-and-p-series-phones-via-built-in-recorders/"><u>[New] 2024 Approved Capturing Screen Content on Huawei Mate 10, 20 & P-Series Phones via Built-In Recorders</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-secrets-to-collecting-costless-clipart/"><u>[New] 2024 Approved Secrets to Collecting Costless Clipart</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazons-legal-action-against-10k-facebook-groups-administration/"><u>Amazon's Legal Action Against 10K Facebook Groups Administration</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-responsibility-a-marketers-guide-to-mindful-sharing/"><u>Digital Responsibility: A Marketer's Guide to Mindful Sharing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/highest-achievers-in-the-realm-of-reddit-posts/"><u>Highest Achievers in the Realm of Reddit Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-the-ios-145-update-is-going-to-really-hurt-facebook/"><u>How the iOS 14.5 Update Is Going to Really Hurt Facebook</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-asus-rog-phone-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-recovery-of-deleted-facebook-videos/"><u>Mastering the Recovery of Deleted Facebook Videos</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-tutorial-boosting-your-minecraft-gameplay-on-computer-by-resolving-stutter-issues-in-202/"><u>Step-by-Step Tutorial: Boosting Your Minecraft Gameplay on Computer by Resolving Stutter Issues in 202</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-identifying-issues-in-your-graphics-driver-on-oculus/"><u>Troubleshooting: Identifying Issues in Your Graphics Driver on Oculus</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722887621585-unlocking-your-iphones-secrets-no-ejector-needed/"><u>Unlocking Your iPhone's Secrets: No Ejector Needed!</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasked-truths-rethinking-the-significance-of-facebook-reports/"><u>Unmasked Truths: Rethinking the Significance of Facebook Reports</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-step-up-your-film-game-on-instagram-with-border-tips-for-2024/"><u>[New] Step up Your Film Game on Instagram with Border Tips for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-complex-projects-on-magix-video-pro-x/"><u>[Updated] Navigating Complex Projects on Magix Video Pro X</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-navigating-through-free2xs-camera-capturing-features-for-2024/"><u>[Updated] Navigating Through Free2X's Camera Capturing Features for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/home-cinema-magic-access-fandango-movies-and-events-via-apple-tv/"><u>Home Cinema Magic: Access Fandango Movies and Events via Apple TV</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/live-streaming-with-manycam-ultimate-software-and-virtual-camera-solutions/"><u>Live Streaming with ManyCam: Ultimate Software and Virtual Camera Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastodons-social-structure-unveiled/"><u>Mastodon's Social Structure Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-facebook-verification-how-vpns-evolved-and-connect-an-android-phone-to-your-tv/"><u>Meta's Facebook Verification, How VPNs Evolved, and Connect an Android Phone to Your TV</u></a></li>
+<li><a href="https://review-topics.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-unplanned-disconnect-from-facebook/"><u>Reclaiming Unplanned Disconnect From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-redefined-why-the-metaverse-raises-concerns/"><u>The Social Fabric Redefined - Why the Metaverse Raises Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/uploading-ultrahd-photos-to-your-fb-profile/"><u>Uploading UltraHD Photos to Your FB Profile</u></a></li>
 </ul></div>
 

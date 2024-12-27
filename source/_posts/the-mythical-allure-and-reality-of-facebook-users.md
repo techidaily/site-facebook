@@ -1,7 +1,7 @@
 ---
 title: The Mythical Allure and Reality of Facebook Users
-date: 2024-12-21T04:16:04.755Z
-updated: 2024-12-21T16:00:19.078Z
+date: 2024-12-22T17:51:50.310Z
+updated: 2024-12-27T17:18:33.279Z
 tags:
   - facebook
 categories:
@@ -24,19 +24,11 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Where Have These Facebook Stats Come From?
 
  Meta released its[annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
 
 ![Facebook Numbers Screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Numbers-Screenshot.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image Credit: Meta
 
@@ -48,6 +40,10 @@ Image Credit: Meta
 
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Has Barely Lost Any Users
 
  As Meta's report included rounded figures, we have to take an average decrease of 500,000 users. It could be slightly more, it could be slightly less. That equates to a decrease in users of 0.025%.
@@ -57,6 +53,10 @@ Image Credit: Meta
  Related:[What Does FAANG Stand For?](https://www.makeuseof.com/what-does-faang-stand-for/)
 
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. It's Natural for Facebook to Lose Some Users
 
@@ -71,7 +71,7 @@ Image Credit: Meta
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
@@ -81,7 +81,7 @@ Image Credit: Meta
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Meta Is Focusing on the Metaverse
@@ -97,7 +97,7 @@ Image Credit: Meta
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Chill Out! Facebook Is Fine
@@ -121,20 +121,20 @@ Image Credit: Meta
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ounteract-vibration-for-clear-captures/"><u>[New] Counteract Vibration for Clear Captures</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-exploring-the-disparities-between-youtube-and-dailymention-for-2024/"><u>[Updated] Exploring the Disparities Between YouTube and DailyMention for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-real-world-usability-of-photoshops-motion-reduction/"><u>[Updated] The Real-World Usability of Photoshop’s Motion Reduction</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-mastering-clear-video-capture-with-obs-even-when-dark/"><u>2024 Approved Mastering Clear Video Capture with OBS, Even When Dark</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-data-unraveling-misconceptions-about-facebook-reports/"><u>Decoding Data: Unraveling Misconceptions About Facebook Reports</u></a></li>
-<li><a href="https://facebook.techidaily.com/forums-fade-away-here-are-6-reasons-why/"><u>Forums Fade Away, Here Are 6 Reasons Why</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-nokia-c12-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Nokia C12 Fingerprint Lock</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-realme-narzo-n53-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Realme Narzo N53</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintain-your-anonymity-elude-these-three-risks/"><u>Maintain Your Anonymity: Elude These Three Risks</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/next-level-entertainment-the-rise-of-vr-applications/"><u>Next-Level Entertainment The Rise of VR Applications</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/no-more-crashes-in-risk-of-rain-2-troubleshooting-guide/"><u>No More Crashes in Risk of Rain 2 - Troubleshooting Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-grip-on-online-community-interaction/"><u>Social Media's Grip On Online Community Interaction</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-telegram-amidst-facebook-shutdown/"><u>The Rise of Telegram Amidst Facebook Shutdown</u></a></li>
-<li><a href="https://techtrends.techidaily.com/webp-para-jpeg-facil-transformacao-com-a-ferramenta-de-conversao-da-movavi/"><u>WebP Para JPEG: Fácil Transformação Com a Ferramenta De Conversão Da Movavi</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-top-5-cutting-edge-capture-apps-for-macos-users/"><u>[New] In 2024, Top 5 Cutting-Edge Capture Apps for macOS Users</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-premier-alternatives-exceeding-the-limits-of-twitter/"><u>[Updated] Premier Alternatives Exceeding the Limits of Twitter</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/action-avalon-10-thrilling-titles-comparable-to-gta-v-for-2024/"><u>Action Avalon 10 Thrilling Titles Comparable To GTA V for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-presence-in-the-virtual-frontier/"><u>Facebook's Presence in The Virtual Frontier</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fine-tune-your-android-development-top-tips-for-windows-users/"><u>Fine-Tune Your Android Development: Top Tips for Windows Users</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722972632680-get-your-sound-blaster-z-drivers-installed-on-windows-10-in-minutes/"><u>Get Your Sound Blaster Z Drivers Installed on Windows 10 in Minutes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-the-50-must-try-virtual-bikes-for-riders/"><u>In 2024, The 50 Must-Try Virtual Bikes for Riders</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-update-kids-profile-details/"><u>Mastering Messenger Kids: Update Kid's Profile Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-numerous-chat-spaces-pro-advice-for-novices/"><u>Navigating Numerous Chat Spaces: Pro Advice for Novices</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-optimize-your-pc-for-premiere-pro-a-step-by-step-guide/"><u>New 2024 Approved Optimize Your PC for Premiere Pro A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/no-hassle-just-tones-5-free-online-generators/"><u>No Hassle, Just Tones 5 Free Online Generators</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-6-reasons-to-quit-the-online-obsession/"><u>The 6 Reasons to Quit the Online Obsession</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-easy-way-to-unpin-conversations-from-your-facebook-page/"><u>The Easy Way to Unpin Conversations From Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unraveling-of-social-media-hegemony-meta-in-the-european-arena/"><u>The Unraveling of Social Media Hegemony: Meta in the European Arena</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-of-the-line-tablets-faceoff-apple-ipad-air-2n-and-the-elite-competitor-samsung-galaxy-tab-s7plus/"><u>Top-of-the-Line Tablets Faceoff: Apple iPad Air (2N) and the Elite Competitor - Samsung Galaxy Tab S7+</u></a></li>
 </ul></div>
 

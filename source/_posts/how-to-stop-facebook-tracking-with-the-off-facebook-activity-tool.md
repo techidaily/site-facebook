@@ -1,7 +1,7 @@
 ---
 title: How to Stop Facebook Tracking With the Off-Facebook Activity Tool
-date: 2024-08-15T18:50:25.364Z
-updated: 2024-08-16T18:50:25.364Z
+date: 2024-12-23T16:47:55.344Z
+updated: 2024-12-27T16:52:11.760Z
 tags:
   - facebook
 categories:
@@ -32,20 +32,22 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  The Off-Facebook Activity tool gives you more control over this second type of data. It lets you see a summary of the data that Facebook has collected from other apps and websites and disconnect this information from your Facebook account.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Kind of Data Does Facebook Collect?
 
  The answer to this question will likely depend on how much you use Facebook and how many other apps and websites you use that are connected to Facebook.
 
  In general, Facebook collects data about your activity on other websites and apps in order to show you more relevant ads. This data includes information such as the types of products you've viewed, the website or app you were using, and whether or not you made a purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Use the Off-Facebook Activity Tool to Stop Tracking
 
 ![Women Working on Facebook on a Laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Women-Working-on-Facebook-on-a-Laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To use the Off-Facebook Activity tool, start by logging in to the Facebook app on your device. Then go to**Settings & privacy** \>**Settings** \>**Privacy** \>**Your Facebook Information** . Here, in the**Your Facebook Information** section there should be an option for**Off-Facebook Activity** . Click this to bring up the tool.
 
@@ -60,16 +62,18 @@ thumbnail: https://thmb.techidaily.com/286866a306a63ee3881a3e82bbbdfd6a5621a0735
  To clear all this information so it is no longer linked to your Facebook account, click the**Clear History** button. Next you can also go to the**Disconnect future activity** (from the Off-Facebook activity page) section and set the slider for**Future Off-Facebook Activity** to**off** to[stop Facebook tracking your activities](https://www.makeuseof.com/tag/facebook-tracking-stop/) in the future.
 
 ![screenshot showing manage off-facebook activity page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-off-facebook-activity-page.jpg)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screenshot showing manage facebook activity toggle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-facebook-activity-toggle.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Data the Will the Tool Remove?
 
@@ -79,20 +83,17 @@ Close
 
  While this is certainly an improvement in terms of privacy, it still means that Facebook has access to vast quantities of data about your internet activities from apps and sites across the web. Even if you don't have a Facebook account, Facebook can still collect information about you from any site using features like the Facebook Like button or the Facebook Pixel.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Can You Secure Your Facebook Data?
 
 ![Desktop Monitor Placed on a Table Showing Image of a Man Viewing From a Binocular Covered With Facebook Logo Icons](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Desktop-Monitor-Placed-on-a-Table-Showing-Image-of-a-Man-Viewing-From-a-Binocular-Covered-With-Facebook-Logo-Icons.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
  If you want to remove your data from Facebook, it's going to take more work. You can start by going to[Facebook Ad Preferences](https://www.facebook.com/ads/preferences/) . Here you can see the profile Facebook has built of you and your interests based on all the data it has access to. You can also go to[Facebook settings](http://www.facebook.com/settings) and download a copy of the data that Facebook has on you. But be warned: the downloaded file will likely be huge.
 
  The very best way to remove your data from Facebook, however, is to delete your account. If you deactivate your account, it won't erase your personal data. Deleting your account will remove most but not all of your data. To learn more about what happens when you delete your account, see our guide to[what deactivating or deleting Facebook really means for privacy](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Take Control of Your Facebook Data
 
@@ -100,14 +101,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Controlling the data that Facebook collects about you isn't only important for your personal privacy and security. It can also have a big effect on society as a whole.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +114,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-easy-steps-to-the-top-gaming-video-editing-programs/"><u>[New] Easy Steps to the Top Gaming Video Editing Programs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-simplifying-the-art-of-mac-screen-recording-a-keyboard-gurus-insight/"><u>[New] In 2024, Simplifying the Art of Mac Screen Recording A Keyboard Guru's Insight</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-fix-guide-repair-and-enhance-your-iphoneipadmacs-airdrop/"><u>2024 Approved Quick-Fix Guide Repair and Enhance Your iPhone/iPad/Mac's AirDrop</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recover-deleted-facebook-posts/"><u>How to Recover Deleted Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-away-from-pics-lessons-learned-in-disconnecting/"><u>Post Away From Pics: Lessons Learned in Disconnecting</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-personal-memories-on-facebook-today/"><u>Tapping Into Personal Memories on Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/testing-marketing-potential-sticker-ads-in-story-formats-on-fbinsta/"><u>Testing Marketing Potential: Sticker Ads in Story Formats on FB/Insta</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/video-sizing-anomalies-what-causes-imovie-to-crop-for-2024/"><u>Video Sizing Anomalies What Causes iMovie to Crop for 2024</u></a></li>
+</ul></div>
 

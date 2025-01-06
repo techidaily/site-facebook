@@ -1,7 +1,7 @@
 ---
 title: Quick Fixes for Regaining Access After FB Intrusion
-date: 2024-12-19T19:28:02.356Z
-updated: 2024-12-21T19:20:40.507Z
+date: 2025-01-01T20:33:11.085Z
+updated: 2025-01-06T07:14:48.743Z
 tags:
   - facebook
 categories:
@@ -53,12 +53,16 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1a. Change Your Facebook Password
@@ -68,6 +72,10 @@ Other signs that your account may have been hacked include:
  To change your password from either your desktop or mobile device, go to**Accounts Center** , select**Password and security,** and then select**Change password** . Pick your account, enter your current password, set a strong new password, and click**Change password** .
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
@@ -97,10 +105,6 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Use the**Try another way** link if you no longer have access to any of the offered email accounts. Facebook will offer to send a code to the phone numbers associated with your account. If none of those are viable, either, it's nearly impossible to recover your account.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
@@ -112,7 +116,7 @@ Do this only if you're sure you can log back in.
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
@@ -128,7 +132,7 @@ Do this only if you're sure you can log back in.
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We also recommend removing all**Expired** apps and websites.
@@ -137,15 +141,15 @@ Do this only if you're sure you can log back in.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Improving Facebook's Privacy and Security Settings
 
@@ -156,10 +160,6 @@ Do this only if you're sure you can log back in.
 * Under[**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
 
  These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Keep Your Facebook Account Safe?
 
@@ -180,18 +180,16 @@ Do this only if you're sure you can log back in.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-pro-tips-for-captivating-snapchat-stories/"><u>[New] 2024 Approved Pro Tips for Captivating Snapchat Stories</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-endless-buffer-fix-for-frozen-videos-from-photo-booth/"><u>[Updated] 2024 Approved Endless Buffer Fix for Frozen Videos From Photo Booth</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-revolutionize-channel-wrapping-with-expert-templates-and-how-tos/"><u>[Updated] Revolutionize Channel Wrapping with Expert Templates & How-Tos</u></a></li>
-<li><a href="https://facebook.techidaily.com/empowering-administrators-with-next-gen-social-network-tools/"><u>Empowering Administrators with Next-Gen Social Network Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-essential-techniques-for-crafting-efficient-thumbnails/"><u>In 2024, Essential Techniques for Crafting Efficient Thumbnails</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-iphone-14-pro-max-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass iPhone 14 Pro Max Passcode Easily Video Inside</u></a></li>
-<li><a href="https://facebook.techidaily.com/invest-in-verification-metas-gold-tier-badge/"><u>Invest in Verification: Metas Gold Tier Badge</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/navigating-to-no-cost-and-risk-free-vlc-player-download-for-macos/"><u>Navigating to No-Cost & Risk-Free VLC Player Download for macOS</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-15-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 15 Prevention & Solution | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/underappreciated-tech-news-top-4-must-know-stories-unveiled/"><u>Underappreciated Tech News - Top 4 Must-Know Stories Unveiled</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unpacking-the-significance-of-chatgpts-real-time-information-for-everyone/"><u>Unpacking the Significance of ChatGPT's Real-Time Information for Everyone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boost-views-with-your-own-youtube-thumbnail-design-for-2024/"><u>[New] Boost Views with Your Own YouTube Thumbnail Design for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-great-streamer-challenge-obs-vs-twitch/"><u>[New] In 2024, The Great Streamer Challenge OBS vs Twitch</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-master-strategies-for-skyrocketing-youtube-follows/"><u>[New] Master Strategies for Skyrocketing YouTube Follows</u></a></li>
+<li><a href="https://win11.techidaily.com/6-tips-to-improve-your-wsl-2-docker-experience-on-windows/"><u>6 Tips to Improve Your WSL 2 Docker Experience on Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-list-of-top-senior-mobile-plans-dominating-2024-market/"><u>A Comprehensive List of Top Senior Mobile Plans Dominating 2024 Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-news-feed-a-new-era-simplified/"><u>Facebook's News Feed: A New Era Simplified</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-zte-axon-40-lite-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked ZTE Axon 40 Lite Phone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-x-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone X Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/imminent-facebook-upgrade-introducing-reels-and-rooms-to-stories/"><u>Imminent Facebook Upgrade: Introducing Reels and Rooms to Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
 </ul></div>
 

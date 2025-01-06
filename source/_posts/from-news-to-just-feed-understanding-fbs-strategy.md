@@ -1,7 +1,7 @@
 ---
 title: "From News to Just Feed: Understanding FB's Strategy"
-date: 2024-08-08T11:27:45.768Z
-updated: 2024-08-09T11:27:45.768Z
+date: 2025-01-02T16:21:31.782Z
+updated: 2025-01-06T08:52:24.454Z
 tags:
   - facebook
 categories:
@@ -18,9 +18,9 @@ thumbnail: https://thmb.techidaily.com/400ab6b2d84e9fcc703013e683c9e38470acb0714
  Facebook has many compartments, from groups, to friends, to stories, amongst others. But when you think about Facebook, you are most likely thinking of its News Feed, which is the main interface everyone sees every day.Facebook's News Feed is probably the most powerful tool on the internet; it's not an exaggeration to say that News Feed has changed the world.Now its name is changing from News Feed to Feed. But why?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Erased "News" from News Feed?
 
  Facebook's News Feed will now simply be known as the "Feed", but Facebook does not offer any real details as to why.
@@ -48,8 +48,9 @@ Not so fast.
  Therefore, segregating the news away from regular updates by your friends and family is a legally smart move for Facebook. It will certainly help their case with regulators if it drives down misinformation. In that regard, a change from News Feed to Feed makes sense.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Facebook Getting Out of the News Business?
 
  News Feed made Facebook the biggest distributor of news and information in the world. For better or worse, News Feed has had important consequences for the world, especially in politics.
@@ -58,14 +59,11 @@ Not so fast.
 
  Facebook may not be getting out of the news business altogether, but it is clear that Facebook is determined to move beyond news, which has brought it nothing but trouble, and dive deep into the metaverse.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +72,24 @@ Not so fast.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-make-snapchat-memories-shine-2-lens-creation-methods-for-2024/"><u>[New] Make Snapchat Memories Shine 2 Lens-Creation Methods for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-relaxation-playlist-20-sweetest-country-tunes-on-tiktok/"><u>[Updated] Relaxation Playlist 20 Sweetest Country Tunes on TikTok</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-pcmobile-mkv-viewer/"><u>[Updated] Ultimate PC/Mobile MKV Viewer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-enshrouded-eagles-encounter-with-beaming-bearing/"><u>2024 Approved Enshrouded Eagle's Encounter with Beaming Bearing</u></a></li>
+<li><a href="https://facebook.techidaily.com/encode-your-digital-memories-on-facebook/"><u>Encode Your Digital Memories on Facebook</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixed-why-safaris-full-screen-screenshot-feature-might-be-malfunctioning-and-how-to-resolve-it/"><u>Fixed: Why Safari's Full-Screen Screenshot Feature Might Be Malfunctioning & How To Resolve It</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-latest-guide-on-ipad-23-and-apple-iphone-x-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Latest Guide on iPad 2/3 and Apple iPhone X iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://driver-install.techidaily.com/pave-the-way-for-secure-transactions-with-amd-on-windows/"><u>Pave the Way for Secure Transactions with AMD on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-facebooks-hidden-user-drop/"><u>Peeling Back Facebook's Hidden User Drop</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-for-change-how-facebook-plans-to-modify-news-sphere/"><u>Platform for Change: How Facebook Plans to Modify News Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-reactions-faster-android-software-swaps/"><u>Rapid Reactions: Faster Android Software Swaps</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-facebooks-upcoming-identity-change/"><u>Sneak Peek at Facebook's Upcoming Identity Change</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-airtag-gadgets-and-add-ons-for-2n4-comprehensive-reviews-by-tech-specialists-techradar/"><u>Top-Rated AirTag Gadgets & Add-Ons for 2N4: Comprehensive Reviews by Tech Specialists | TechRadar</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-the-path-of-googles-seminal-announcements/"><u>Tracing the Path of Google's Seminal Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-adoption-of-high-tech-solutions-post-hacking-scandals/"><u>User Adoption of High-Tech Solutions Post Hacking Scandals</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-voyage-navigating-to-this-years-prime-online-gatherings/"><u>Virtual Voyage: Navigating to This Year's Prime Online Gatherings</u></a></li>
+<li><a href="https://techidaily.com/vivo-data-recovery-recover-lost-data-from-vivo-v27-by-fonelab-android-recover-data/"><u>Vivo Data Recovery – recover lost data from Vivo V27</u></a></li>
+</ul></div>
 

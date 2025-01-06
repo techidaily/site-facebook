@@ -1,7 +1,7 @@
 ---
 title: "Platform Accountability: Combating COVID-19 Disinformation"
-date: 2024-12-06T16:31:18.943Z
-updated: 2024-12-12T22:25:54.311Z
+date: 2025-01-04T17:36:19.652Z
+updated: 2025-01-06T07:02:03.200Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ Here's what social media platforms can do to tackle the issue.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Spread of COVID-19 and Vaccine Misinformation on Social Media
 
  Social media is an extension of our lives, so information shared online can spread like wildfire. When COVID-related misinformation is circulated, it creates uncertainty, skepticism and distrust, which can lead to people rejecting proven public health measures.
@@ -42,22 +46,14 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -76,6 +72,10 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
@@ -87,16 +87,12 @@ YouTube also removes videos that violate its COVID-19 policy.
  They can also share their personal experiences around getting vaccinated.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
@@ -117,6 +113,10 @@ YouTube also removes videos that violate its COVID-19 policy.
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
@@ -139,19 +139,16 @@ YouTube also removes videos that violate its COVID-19 policy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-evaluating-the-value-of-sns-hdr-in-a-crowded-market/"><u>[New] Evaluating the Value of SNS HDR in a Crowded Market</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-is-your-social-media-strategy-up-to-date-with-facebook-changes-in-2024/"><u>[New] Is Your Social Media Strategy Up-to-Date with Facebook Changes, In 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-popgallery-app-assessment-2024-overview/"><u>[New] PopGallery App Assessment 2024 Overview</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-vote-players-best-political-game-reviews/"><u>[Updated] Ultimate Vote-Players Best Political Game Reviews</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-captivating-content-incorporate-these-20-magic-words/"><u>2024 Approved Captivating Content Incorporate These 20 Magic Words</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-in-the-professional-arena-key-tips-and-tricks/"><u>Facebook in the Professional Arena: Key Tips & Tricks</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-the-issue-of-non-playable-dvds-in-windows-environments/"><u>Fixing the Issue of Non-Playable DVDs in Windows Environments</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebranding-online-the-process-of-altering-your-name-on-facebook/"><u>Rebranding Online: The Process of Altering Your Name on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/revitalizing-relationships-without-politics-in-sight/"><u>Revitalizing Relationships Without Politics in Sight</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthening-facebooks-defense-password-transformation-tips/"><u>Strengthening Facebook's Defense: Password Transformation Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-defense-against-hackers-employing-2fa-in-gmail-outlook-and-more/"><u>The Ultimate Defense Against Hackers: Employing 2FA in Gmail, Outlook & More</u></a></li>
-<li><a href="https://techidaily.com/unlock-iphone-15-lock-with-icloud-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 15 lock with iCloud</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/unstuck-your-dota-2-microphone-proven-solutions-to-restore-audio-communication/"><u>Unstuck Your Dota 2 Microphone - Proven Solutions to Restore Audio Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-makes-a-good-facebook-home-device/"><u>What Makes a Good Facebook Home Device?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-dual-output-synchronization-for-2024/"><u>[New] Dual Output Synchronization for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-telegram-web-a-beginners-walkthrough/"><u>[New] Mastering Telegram Web A Beginner's Walkthrough</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-snap-a-story-sharing-photos-and-videos-without-retweet-for-2024/"><u>[New] Snap a Story Sharing Photos & Videos Without Retweet for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/isualslice-software/"><u>[New] VisualSlice Software</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-premier-screenshot-applications-for-linux-users/"><u>[Updated] 2024 Approved The Premier Screenshot Applications for Linux Users</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-tips-to-improve-profile-cover-videos/"><u>2024 Approved Tips to Improve Profile Cover Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-interactive-online-communities-on-facebook/"><u>Building Interactive Online Communities on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ever-wondered-about-your-favorite-app-down-heres-why/"><u>Ever Wondered About Your Favorite App Down? Here's Why</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-stop-your-dota-2-from-unexpectedly-crashing-a-step-by-step-guide/"><u>How to Stop Your Dota 2 From Unexpectedly Crashing - A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-waves-of-social-change-with-facebooks-new-dating-tools/"><u>Navigating the Waves of Social Change with Facebook's New Dating Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-is-expecting-more-bad-headlines-to-come/"><u>Why Facebook Is Expecting More Bad Headlines to Come</u></a></li>
 </ul></div>
 

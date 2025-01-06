@@ -1,7 +1,7 @@
 ---
 title: Facebook's Concealed Regulations for Acquaintanceship
-date: 2024-12-22T17:00:39.123Z
-updated: 2024-12-27T18:59:54.653Z
+date: 2024-12-31T18:37:13.915Z
+updated: 2025-01-06T00:44:05.389Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 ![Expanded Facebook Menu with Friends option selected.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Menu-Friends.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  On your Facebook Friends page, you'll see a summary of pending friend requests and a list of people you may know in the left-hand sidebar. Click a person's name or profile image on the left to see their full profile on the right.
@@ -44,21 +44,17 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 
 ![Overview of received friend requests and people you may know on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Requests-Received.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  When you remove or deny a friend request, Facebook won't notify them about it. However, they won't be able to send you another request for an entire year.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Send and Cancel a Friend Request on Facebook
 
  You can also search for people you know, open their profiles, and, if they accept friend requests from the public or friends of friends, add them by clicking the**Add Friend** button located right next to the Message button.
 
 ![Facebook Add Friend button on a person's profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Add-Friend.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
@@ -67,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
@@ -85,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
  Alternatively, head to your friend's profile, expand the menu right next to your friendship status, and select**Unfollow** from the bottom.
 
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Unwritten Facebook Friend Request Rules
 
@@ -104,6 +104,10 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 
  In other words: don't look like a fake account, don't add random strangers, and don't be a stranger yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Add Friends Conservatively
 
  You will often want to add a new friend immediately, even though you don't have mutual friends on Facebook. And it might be more awkward to send a message first than to add them directly.
@@ -111,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
  Just be sure you don't add too many people without common friends at once simply to expand your Facebook reach.
 
 ![Faceboook Follow Option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Faceboook-Follow-Option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you just want to follow someone's Facebook posts, and if there is an option to follow them, rather choose that option. From their profile, click the three-dot menu, and select**Follow** . This allows you to see what they are up to, but your timeline is not shared with them.
 
@@ -152,14 +152,6 @@ Keep in mind that if you do this, the person may be penalized.
 
 ![Facebook friend request settings in the Privacy section.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Request-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Hide Your Friends List
 
  Allowing everyone to see who you've friended could cause some people to be jealous and subject your friends to unsolicited friend requests. It's best to restrict who can see your Friends list and friend activity.
@@ -170,13 +162,17 @@ Keep in mind that if you do this, the person may be penalized.
 
 ![Choose who can see your Facebook friends list.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-List-Visibility.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can also access all friends-related settings from your (existing) Facebook friends page. From your profile page, click**See all friends** , then click the**three-dot menu** next to Find Friends and choose**Edit Privacy** .
 
 ![Edit your Facebook friends privacy.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-Edit-Privacy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Can't I Friend Someone on Facebook?
 
@@ -190,17 +186,21 @@ Keep in mind that if you do this, the person may be penalized.
 
  If your request is still pending, you could send your friend-to-be a message and ask them to approve your request.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. You Blocked the Other Person
 
  You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. They Don't Permit Friend Requests From Strangers
 
  As outlined above, Facebook allows you to restrict who can send you a friend request. If that's the reason you can't friend someone, ask them to send you a friend request instead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Someone Has Too Many Friends Already
 
@@ -217,7 +217,7 @@ Keep in mind that if you do this, the person may be penalized.
 Follow our guidelines above to avoid this from happening again.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Master Your Facebook Friendships
@@ -241,22 +241,22 @@ Follow our guidelines above to avoid this from happening again.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-engage-with-these-top-10-student-oriented-history-channels-for-2024/"><u>[New] Engage with These Top 10 Student-Oriented History Channels for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-bridging-platforms-posting-twitter-content-on-facebook/"><u>[Updated] 2024 Approved Bridging Platforms Posting Twitter Content on Facebook</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-creating-stunning-instagram-profile-screenshots/"><u>[Updated] In 2024, Creating Stunning Instagram Profile Screenshots</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-focus-on-the-main-sound-in-video-capturing-free-advice/"><u>2024 Approved Focus on the Main Sound in Video Capturing (Free Advice)</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/guide-correcting-the-problem-of-a-missing-d3dx940dll-on-your-pc/"><u>Guide: Correcting the Problem of a Missing d3dx9_40.dll on Your PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacked-into-harmony-protests-lead-to-a-drop-in-facebook-stardom/"><u>Hacked Into Harmony? Protests Lead to a Drop in Facebook Stardom</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6s-plus-to-other-iphone-11-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6s Plus To Other iPhone 11 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-livestream-audio-and-video-optional/"><u>Instagram Livestream: Audio & Video Optional</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaverse-myths-unveiled-beyond-facebooks-domain/"><u>Metaverse Myths Unveiled – Beyond Facebook's Domain</u></a></li>
-<li><a href="https://facebook.techidaily.com/missing-message-photos-get-notified-via-messenger/"><u>Missing Message Photos: Get Notified via Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevalence-of-hacking-on-digital-spaces/"><u>Prevalence of Hacking on Digital Spaces</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/propel-your-profile-5-core-techniques-for-instagram-marketing-gurus-for-2024/"><u>Propel Your Profile 5 Core Techniques for Instagram Marketing Gurus for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/quick-guide-to-converting-iso-files-into-movies-mov-on-your-apple-computer/"><u>Quick Guide to Converting ISO Files Into Movies (MOV) on Your Apple Computer</u></a></li>
-<li><a href="https://win11.techidaily.com/seven-steps-to-unlocking-windows-11-memory-safety/"><u>Seven Steps to Unlocking Windows 11 Memory Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-facebook-downtime-your-guide-to-check-backup/"><u>Spotting Facebook Downtime - Your Guide to Check Backup</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-choosing-the-best-facebook-profile-picture/"><u>The Art of Choosing the Best Facebook Profile Picture</u></a></li>
-<li><a href="https://facebook.techidaily.com/unspoken-revolution-the-veiled-emergence-of-facebooks-smart-device/"><u>Unspoken Revolution: The Veiled Emergence of Facebook’s Smart Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-designing-distinctive-denouements-for-2024/"><u>[New] Designing Distinctive Denouements for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-editorial-elegance-at-the-end/"><u>[Updated] 2024 Approved Editorial Elegance at the End</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-live-online-learning-captures/"><u>[Updated] 2024 Approved Live Online Learning Captures</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-blueprint-of-film-narrative/"><u>[Updated] The Blueprint of Film Narrative</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-zoom-sound-tweaks-boosting-clarity-and-fidelity/"><u>[Updated] Top Zoom Sound Tweaks Boosting Clarity and Fidelity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-projecting-yourself-to-the-world-with-insta-captions/"><u>2024 Approved Projecting Yourself to the World with Insta Captions</u></a></li>
+<li><a href="https://facebook.techidaily.com/210966189-9781088228791-episodio-en-la-vida-de-tiberius/"><u>Episodio en la Vida de Tiberius | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-no-login-to-in-in-just-minutes-revive-your-fb-account/"><u>From 'No Login' To In, in Just Minutes: Revive Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-login-protection-setting-up-fbs-two-factor-system/"><u>Instant Login Protection: Setting Up FB's Two-Factor System</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lenovo-ideapad-duet-(80-discount-get-chromebook-savings-with-zdnet-exclusive/"><u>Lenovo IdeaPad Duet <$80 Discount - Get Chromebook Savings with ZDNet Exclusive!</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-anonymous-interactions-on-fb-groups/"><u>Navigating the Maze of Anonymous Interactions on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/nexus-of-networks-a-new-chapter-for-fb-and-insta/"><u>Nexus of Networks: A New Chapter for FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-expense-for-facebook-users-to-regain-access-post-hack/"><u>Oculus Expense for Facebook Users to Regain Access Post-Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/96317414-9781401932893-the-alchemists-handbook/"><u>The Alchemist's Handbook | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-warnings-about-the-social-media-universe/"><u>Three Warnings About the Social Media Universe</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unlock-a-world-of-knowledge-with-free-downloads-access-our-premium-toolkits-and-ebooks-today/"><u>Unlock a World of Knowledge with FREE Downloads: Access Our Premium Toolkits and Ebooks Today!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-best-practices-for-crafting-viral-instagram-reels-for-2024/"><u>Unveiling the Best Practices for Crafting Viral Instagram Reels for 2024</u></a></li>
 </ul></div>
 

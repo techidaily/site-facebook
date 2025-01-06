@@ -1,7 +1,7 @@
 ---
 title: "Online Gridlock: All Major Social Networks Down"
-date: 2024-12-05T21:13:41.135Z
-updated: 2024-12-12T22:08:58.850Z
+date: 2025-01-04T04:42:36.338Z
+updated: 2025-01-06T07:21:33.737Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
@@ -41,14 +37,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
@@ -59,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  As per the tweet linked in the previous section, even Facebook's internal services were down in what's described as "a pretty epic configuration error."
 
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What Are BGP Routes?
 
@@ -71,12 +67,16 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
 
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -109,14 +109,20 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ro-level-7-dslrs-that-transform-your-digital-storytelling/"><u>[New] Pro-Level 7 DSLRs That Transform Your Digital Storytelling</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/descargue-y-convierte-videos-flv-a-mp3-de-forma-gratuita-con-herramientas-online-movavi/"><u>Descargue Y Convierte Vídeos FLV a MP3 De Forma Gratuita Con Herramientas Online: Movavi</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/elite-cameras-perfect-tools-for-upcoming-musical-film-shoots/"><u>Elite Cameras Perfect Tools for Upcoming Musical Film Shoots</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-unlocking-zooms-potential-by-leveraging-skype/"><u>In 2024, Unlocking Zoom's Potential by Leveraging Skype</u></a></li>
-<li><a href="https://facebook.techidaily.com/inspiring-community-engagement-through-fb-event-creation/"><u>Inspiring Community Engagement Through FB Event Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-facebook-feed-for-relevance/"><u>Tailoring Your Facebook Feed for Relevance</u></a></li>
-<li><a href="https://facebook.techidaily.com/translating-iconography-the-meaning-behind-messengers-visual-codes/"><u>Translating Iconography: The Meaning Behind Messenger's Visual Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-why-some-users-are-missing-from-chats/"><u>Understanding Why Some Users Are Missing From Chats</u></a></li>
-<li><a href="https://win11.techidaily.com/unpacking-windows-11s-enhanced-update-schedule-what-it-means-for-users/"><u>Unpacking Windows 11’S Enhanced Update Schedule: What It Means For Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-chords-to-chart-toppers-essential-musician-focused-youtube-content/"><u>[Updated] In 2024, From Chords to Chart-Toppers Essential Musician-Focused YouTube Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-mastering-facebook-hashtags-for-strategic-marketing/"><u>[Updated] In 2024, Mastering Facebook Hashtags for Strategic Marketing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-strategies-for-downloading-twitter-video-content-to-mp3/"><u>2024 Approved Strategies for Downloading Twitter Video Content to MP3</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-unleash-calmness-asmr-titles-to-try-out/"><u>2024 Approved Unleash Calmness ASMR Titles to Try Out</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/aesir-clash-dawn-of-the-gods-for-2024/"><u>Aesir Clash Dawn of the Gods for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/eliminating-cyberpunk-2077-sound-glitches-for-a-smoother-gaming-experience/"><u>Eliminating Cyberpunk 2077 Sound Glitches for a Smoother Gaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-tecno-pop-8-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Tecno Pop 8 Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-secrets-skip-these-privacy-invasive-apps/"><u>Protect Your Secrets: Skip These Privacy Invasive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-contact-post-blockage-on-fb/"><u>Reestablishing Contact Post-Blockage on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-admiration-how-to-conceal-like-counts-on-sites/"><u>Silent Admiration: How to Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-governance-right-to-suspend-trump-temporarily/"><u>Social Media Governance: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-strategies-with-8-powerful-crowdflower-capabilities/"><u>Streamline Strategies with 8 Powerful CrowdFlower Capabilities</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/understanding-and-leveraging-snapchat-spotlight-for-2024/"><u>Understanding and Leveraging Snapchat Spotlight for 2024</u></a></li>
 </ul></div>
 

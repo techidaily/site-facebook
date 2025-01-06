@@ -1,7 +1,7 @@
 ---
 title: Leveraging Facebook's Today Memory Recollection
-date: 2024-12-24T17:28:23.303Z
-updated: 2024-12-27T16:08:56.753Z
+date: 2024-12-29T17:29:26.605Z
+updated: 2025-01-06T02:56:29.327Z
 tags:
   - facebook
 categories:
@@ -26,15 +26,15 @@ thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is the On This Day Feature on Facebook?
 
  If you are keen on saving and revisiting memories, the On This Day feature is just for you. It allows you to check out the posts you made on the same day years ago—some even call it a way to relive your past cringe. It includes everything from the media you uploaded to the posts you shared and the statuses you posted.
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use the On This Day Feature
 
@@ -45,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c
 3. Scroll down until you see**Memories** . Open it to view your activity on the same date previously.
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Share Memories
 
@@ -62,15 +58,19 @@ To share a memory from the On This Day feature:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Save and Delete Memories
 
@@ -96,10 +96,14 @@ To access your saved memories:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -114,10 +118,6 @@ Close
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Customization Options for the On This Day Feature
 
  If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
@@ -128,11 +128,11 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
 
@@ -173,24 +173,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/updated-instagram-engagement-obs-streamed-content/"><u>[Updated] Instagram Engagement OBS Streamed Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/11-best-color-correction-and-color-grading-tutorial/"><u>11 Best Color Correction and Color Grading Tutorial</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-essential-steps-to-design-impressive-facebook-slideshows/"><u>2024 Approved Essential Steps to Design Impressive Facebook Slideshows</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/come-recuperare-i-file-cancellati-erroneamente-da-un-disco-fisso-esterno/"><u>Come Recuperare I File Cancellati Erroneamente Da Un Disco Fisso Esterno</u></a></li>
-<li><a href="https://facebook.techidaily.com/engaging-users-the-art-of-a-captivating-timeline/"><u>Engaging Users: The Art of a Captivating Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/exact-date-of-my-digital-milestone-facebook-account-creation/"><u>Exact Date of My Digital Milestone: Facebook Account Creation</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722899819887-explore-the-best-ai-conversational-agents-beyond-chatgpt/"><u>Explore the Best AI Conversational Agents Beyond ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacked-out-restore-your-social-media-secrets/"><u>Hacked Out! Restore Your Social Media Secrets</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-virtual-reality-capture-heres-the-best-software/"><u>In 2024, Virtual Reality Capture? Here's the Best Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/instantly-describe-your-images-ai-solutions-for-social-media-captions/"><u>Instantly Describe Your Images: AI Solutions for Social Media Captions</u></a></li>
-<li><a href="https://facebook.techidaily.com/legalities-of-digital-picture-sharing/"><u>Legalities of Digital Picture Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/paving-the-path-for-predictable-crypto-prices-stablecoins/"><u>Paving the Path for Predictable Crypto Prices: Stablecoins</u></a></li>
-<li><a href="https://win-web3.techidaily.com/revive-your-graphics-performance-a-comprehensive-walkthrough-on-reinstalling-graphics-card-drivers-guided-by-yl-software-experts/"><u>Revive Your Graphics Performance: A Comprehensive Walkthrough on Reinstalling Graphics Card Drivers - Guided by YL Software Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-scouting-pinpointing-and-listing-your-facebook-interactions/"><u>Social Media Scouting: Pinpointing and Listing Your Facebook Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-nostalgia-engine-mastering-day-reflection/"><u>Social Media’s Nostalgia Engine - Mastering Day Reflection</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-under-fire-trust-erosion-amidst-public-concerns/"><u>Tech Titans Under Fire: Trust Erosion Amidst Public Concerns</u></a></li>
-<li><a href="https://some-tips.techidaily.com/troubleshoot-flaky-airdrop-links-simple-steps-to-solutions-for-2024/"><u>Troubleshoot Flaky AirDrop Links Simple Steps to Solutions for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/worldwide-etiquette-for-welcoming-others/"><u>Worldwide Etiquette for Welcoming Others</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/yl-computings-bold-design-icon-collection-inspired-by-sex-and-the-city-characters-for-your-app/"><u>YL Computing's Bold Design: Icon Collection Inspired by Sex & The City Characters for Your App</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-clicks-top-tags-for-gamers-content-for-2024/"><u>[New] Crafting Clicks Top Tags for Gamers' Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamless-transitions-smooth-editing-techniques-for-youtube-content/"><u>[Updated] 2024 Approved Seamless Transitions Smooth Editing Techniques for YouTube Content</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-ultimate-guide-to-crafting-impressive-android-time-lapses-2enas/"><u>[Updated] In 2024, The Ultimate Guide to Crafting Impressive Android Time-Lapses (2Enas)</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-samsung-galaxy-a23-5g-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Samsung Galaxy A23 5G Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-innovative-software-solutions-for-smarter-posting/"><u>9 Innovative Software Solutions for Smarter Posting</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/de-to-gathering-creative-themes-using-google-trends-for-2024/"><u>A Guide to Gathering Creative Themes Using Google Trends for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-customization-techniques-for-social-media/"><u>Cutting-Edge Customization Techniques for Social Media</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-iphone-11-pro-how-to-unlock-a-disabled-iphone-11-pro-by-drfone-ios/"><u>Disabled iPhone 11 Pro How to Unlock a Disabled iPhone 11 Pro?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/encers-utopia-summit/"><u>Influencers' Utopia Summit</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-shift-to-nft-world/"><u>Instagram's Shift to NFT World</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/media-magic-which-social-site-captures-the-crowd-faster-for-2024-youtubes-or-tiktoks/"><u>Mini-Media Magic Which Social Site Captures the Crowd Faster for 2024 YouTubes or TikToks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unfriendly-book-how-to-break-up-with-facebook-friends/"><u>The Unfriendly Book: How to Break Up with Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-real-vs-phantom-identifying-false-accounts-in-fb/"><u>Unveiling Real Vs. Phantom: Identifying False Accounts in FB</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-top-5-best-websites-to-add-emojis-to-photo-online/"><u>Updated 2024 Approved Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-an-absence-from-messenger/"><u>What Lies Behind an Absence From Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-everyone-needs-to-chill-out-about-facebooks-user-numbers/"><u>Why Everyone Needs to Chill Out About Facebook's User Numbers</u></a></li>
 </ul></div>
 

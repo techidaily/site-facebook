@@ -1,7 +1,7 @@
 ---
 title: Unexpected Silence in Digital Communication Realms
-date: 2024-12-22T18:58:40.639Z
-updated: 2024-12-27T20:21:39.917Z
+date: 2025-01-04T05:32:12.103Z
+updated: 2025-01-05T17:34:35.317Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,20 +51,21 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-ideal-voice-modification-programs-for-dynamic-virtual-personalities/"><u>[New] Ideal Voice-Modification Programs for Dynamic Virtual Personalities</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-ultimate-gif-making-software-showdown/"><u>[New] In 2024, The Ultimate GIF Making Software Showdown</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-unleash-more-views-on-youtube-with-pro-tag-optimization/"><u>[New] In 2024, Unleash More Views on YouTube with Pro Tag Optimization</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-authenticating-your-youtube-username-and-email/"><u>[Updated] In 2024, Authenticating Your YouTube Username & Email</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/y-youtube-audio-extraction-methods-free-and-secure-for-2024/"><u>3 Easy YouTube Audio Extraction Methods Free & Secure for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-privacy-intrusion-stops-with-germany-ordering-halt-in-whatsapp-data-harvesting/"><u>Facebook’s Privacy Intrusion Stops with Germany Ordering Halt in WhatsApp Data Harvesting</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-passive-posts-to-active-conversations-12-innovative-ideas-for-fb/"><u>From Passive Posts to Active Conversations: 12 Innovative Ideas for FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-approach-minor-user-behavior-on-web-platforms/"><u>How to Approach Minor User Behavior on Web Platforms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-decoding-the-revised-youtube-earnings-criteria/"><u>In 2024, Decoding the Revised YouTube Earnings Criteria</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-leading-sites-boosting-youtube-viewership/"><u>In 2024, Leading Sites Boosting YouTube Viewership</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-platforms-fight-against-viral-disinformations/"><u>Interactive Platforms' Fight Against Viral Disinformations</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/maximizing-youtube-income-lessons-from-sourav-joshi/"><u>Maximizing YouTube Income Lessons From Sourav Joshi</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-in-redefined-spheres-on-facebook/"><u>Networking in Redefined Spheres on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/selecting-the-perfect-facebook-portal-device/"><u>Selecting the Perfect Facebook Portal Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/shifting-identities-online-adjusting-your-facebook-identity/"><u>Shifting Identities Online: Adjusting Your Facebook Identity</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-3-part-blueprint-to-monitor-and-maximize-your-youtube-profits/"><u>[New] 3-Part Blueprint to Monitor and Maximize Your YouTube Profits</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-ancient-aesthetics-public-domain-pieces/"><u>[New] Ancient Aesthetics Public Domain Pieces</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ultimate-action-camera-review-gopro-vs-yi-4k-fresh-perspectives/"><u>[Updated] In 2024, Ultimate Action Camera Review GoPro Vs. Yi 4K - Fresh Perspectives</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-artificial-intelligence-be-a-friend-to-the-mind/"><u>Can Artificial Intelligence Be a Friend to the Mind?</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-batch-execution-with-task-scheduler/"><u>Effortless Batch Execution with Task Scheduler</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-interaction-on-facebook-must-try-settings-revealed/"><u>Enhance Interaction on Facebook: Must-Try Settings Revealed</u></a></li>
+<li><a href="https://win-news.techidaily.com/how-can-you-repair-a-malfunctioning-sound-card-in-windows-tips-and-solutions-by-yl-computing/"><u>How Can You Repair a Malfunctioning Sound Card in Windows - Tips & Solutions by YL Computing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/how-to-make-a-video-from-photo-with-music/"><u>How to Make a Video From Photo with Music</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/huge-monitor-discount-alert-save-550-on-a-brand-new-samsung-odyssey-neo-g8-at-best-buy-for-cyber-weeks-biggest-shopping-frenzy-digital-lifestyle-blog/"><u>Huge Monitor Discount Alert! Save $550 on a Brand New Samsung Odyssey Neo G8 at Best Buy for Cyber Week's Biggest Shopping Frenzy | Digital Lifestyle Blog</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/leveraging-visuals-snap-camera-for-team-discussions-for-2024/"><u>Leveraging Visuals Snap Camera for Team Discussions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-mobile-communication-tools-beyond-facebook/"><u>Mastering Mobile Communication Tools Beyond Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-social-media-profiles-email-and-number-switch/"><u>Revamping Social Media Profiles: Email & Number Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-frozen-facebook-alerts-display/"><u>Reviving Frozen Facebook Alerts Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-intrusion-rates-revealed/"><u>Social Media Intrusion Rates Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-eclipses-tech-giant-with-personalized-links-explanation-here/"><u>Social Network Eclipses Tech Giant with Personalized Links: Explanation Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-unwanted-facebook-screenshots/"><u>Steering Clear of Unwanted Facebook Screenshots</u></a></li>
 </ul></div>
 

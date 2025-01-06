@@ -1,7 +1,7 @@
 ---
 title: "Remain Vigilant: Hidden Messages on Facebook App"
-date: 2024-08-08T11:25:26.307Z
-updated: 2024-08-09T11:25:26.307Z
+date: 2024-12-31T21:38:55.587Z
+updated: 2025-01-06T00:36:15.877Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
  The most noteworthy development is the addition of a control to its disappearing messages that notifies you if your chat partner takes a screenshot of your conversation. Here's what you need to know.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Messenger Now Has Full End-to-End Encryption (E2EE)
 
  Meta's journey to encrypting our chats on Messenger has been a bit of a winding road. It began when Meta (then Facebook) introduced[Secret Conversations](https://www.makeuseof.com/facebook-messenger-secret-conversation/) to Messenger in 2016.
@@ -39,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -51,42 +53,39 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 4. In secret conversation mode, Messenger shows you a**timer** icon beside the chatbox. Tap on it and select your preferred timer option (from five seconds to one day). This will decide how long your message lasts after your chat partner reads it.
 5. Type a message as you normally would and hit**Send** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Other Updates to Messenger
 
  Besides the opt-in end-to-end encryption feature, encrypted voice and video calls are also now available to everyone. Users can also reply to specific messages in their end-to-end encrypted chats, either by long pressing or swiping to reply. In addition, typing indicators have been added, so you can now see when others are typing.
 
  Meta has also added Verified Badges to help identify authentic accounts and have meaningful interactions. The new Save Media feature will let you save a video or image by long-pressing any media you receive. And lastly, the Video edits feature will enable you to edit a photo or video from your gallery before sending it, meaning you can add stickers, text, or crop and edit audio (for videos).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +94,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-video-translation.techidaily.com/2024-approved-elevate-your-content-with-the-best-free-video-translator-apps/"><u>2024 Approved Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-power-of-youtubes-creative-commons-for-videographers/"><u>2024 Approved The Power of YouTube's Creative Commons for Videographers</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-v27-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/coming-soon-the-psvr2-for-pcs-key-reasons-to-think-twice-before-buying/"><u>Coming Soon! The PSVR2 for PCs - Key Reasons to Think Twice Before Buying</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-steps-to-transfer-your-video-files-onto-a-motorola-device/"><u>Easy Steps to Transfer Your Video Files Onto a Motorola Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-cmo-carolyn-steps-down-marketing-leadership-change/"><u>Facebook's CMO Carolyn Steps Down - Marketing Leadership Change</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-motorola-g24-power-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Motorola G24 Power Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-12-pro-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 12 Pro Max to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched.</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-review-onslaught-activists-shake-up-app-store-ratings/"><u>One-Star Review Onslaught: Activists Shake Up App Store Ratings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721991702158-secrets-to-keeping-your-chatgpt-dialogues-confidential-no-deletes-required/"><u>Secrets to Keeping Your ChatGPT Dialogues Confidential, No Deletes Required!</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-company-files-court-case-over-new-communication-rules/"><u>Tech Company Files Court Case Over New Communication Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-battles-five-instances-where-facebook-fumbled/"><u>The Unseen Battles: Five Instances Where Facebook Fumbled</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-wealth-discover-5-new-ways-to-make-money-on-instagram-and-facebook/"><u>Unleashing Wealth: Discover 5 New Ways to Make Money on Instagram & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-rationale-behind-rumored-fb-sale-of-giphy/"><u>Unraveling the Rationale Behind Rumored FB Sale of Giphy</u></a></li>
+</ul></div>
 

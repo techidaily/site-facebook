@@ -1,7 +1,7 @@
 ---
 title: "Social Stealth: Evasion of Friendlists"
-date: 2024-12-18T18:59:18.429Z
-updated: 2024-12-21T18:18:01.236Z
+date: 2024-12-30T16:12:28.564Z
+updated: 2025-01-06T02:05:37.066Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
 ![facebook mutual followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-mutual-followers.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
 ## How to Hide Your Facebook Friends List
@@ -54,15 +58,19 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hiding Your Friends List on Desktop
 
@@ -75,7 +83,7 @@ The steps are similar on Facebook's desktop website.
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  3\. From the left sidebar, click**Privacy** .
@@ -83,26 +91,18 @@ The steps are similar on Facebook's desktop website.
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
  On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Gaining Privacy on Facebook
 
@@ -125,18 +125,22 @@ The steps are similar on Facebook's desktop website.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/iggest-fifa-visuals-youtube-insights-graphed-for-2024/"><u>[New] Biggest FIFA Visuals YouTube Insights Graphed for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-building-brand-loyalty-tips-for-higher-fb-page-ranking/"><u>[New] In 2024, Building Brand Loyalty Tips for Higher FB Page Ranking</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-comprehensive-guide-to-free-premium-video-callers/"><u>[New] In 2024, Comprehensive Guide to Free, Premium Video Callers</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-direct-link-method-for-iphone-picture-sharing/"><u>[New] In 2024, Direct Link Method for iPhone Picture Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/2022s-worst-of-the-tech-world-exposed/"><u>2022'S Worst of the Tech World Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/audience-faces-change-as-carolyn-exits-facebook/"><u>Audience Faces Change as Carolyn Exits Facebook</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/explore-the-ultimate-list-of-optimal-xvid-media-applications-for-desktop-computing-environments/"><u>Explore the Ultimate List of Optimal Xvid Media Applications for Desktop Computing Environments</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-vivo-g2-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Vivo G2 Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-social-media-tools-is-facebook-an-event-ally/"><u>Mastering Social Media Tools: Is Facebook an Event Ally?</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-gadgets-and-reviews-by-tomtechspace/"><u>Top Gadgets and Reviews by TomTechSpace</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleash-creativity-designing-an-engaging-social-media-profile-picture-using-your-avatar/"><u>Unleash Creativity: Designing an Engaging Social Media Profile Picture Using Your Avatar</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-networks-groups-suit-you-best-facebook-or-linkedin/"><u>Which Network's Groups Suit You Best? Facebook or LinkedIn</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-runs-todays-facebook/"><u>Who Runs Today's Facebook?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixed-anthem-no-sound-in-windows-11/"><u>[FIXED] Anthem No Sound in Windows 11</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-exploring-vlcs-screen-recorder-features/"><u>[New] In 2024, Exploring VLC's Screen Recorder Features</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-tecno-pop-8-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Tecno Pop 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusations-facebook-targets-honest-commerce-promotion/"><u>Accusations: Facebook Targets Honest Commerce Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-pristine-profile-7-strategies/"><u>Achieve Pristine Profile: 7 Strategies</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/canon-dslr-530-driver-download-how-to-update-and-install-latest-version/"><u>Canon DSLR-530 Driver Download: How to Update & Install Latest Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-romance-in-the-social-media-era-facebooks-fresh-take-on-dating/"><u>Crafting Romance in the Social Media Era: Facebook's Fresh Take on Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/eight-paths-how-netizens-bond-across-cyberspace/"><u>Eight Paths: How Netizens Bond Across Cyberspace</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-preferences-in-online-news-distribution-by-fb/"><u>Exploring Preferences in Online News Distribution by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-data.techidaily.com/1728500054205-macosaomei-backupper/"><u>MacOS用AOMEI Backupperで初心者向けバックアップ同期ガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/manage-custom-recommendations-for-better-privacy-online/"><u>Manage Custom Recommendations for Better Privacy Online</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-chromes-page-display-errors-solutions-for-loading-issues/"><u>Overcoming Chrome's Page Display Errors: Solutions for Loading Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-behind-excluded-social-media-content/"><u>The Mystery Behind Excluded Social Media Content</u></a></li>
+<li><a href="https://win-web3.techidaily.com/the-ultimate-selection-process-finding-top-notch-m2-ssd-drives-for-optimal-operating-system-performance/"><u>The Ultimate Selection Process: Finding Top-Notch M.2 SSD Drives for Optimal Operating System Performance</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-xiaomi-mix-fold-3-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Xiaomi Mix Fold 3 to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

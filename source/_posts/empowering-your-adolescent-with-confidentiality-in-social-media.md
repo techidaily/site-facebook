@@ -1,7 +1,7 @@
 ---
 title: Empowering Your Adolescent with Confidentiality in Social Media
-date: 2024-12-15T17:38:50.549Z
-updated: 2024-12-21T17:06:38.279Z
+date: 2025-01-03T02:31:38.637Z
+updated: 2025-01-05T22:01:06.703Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Privacy Check on Facebook?
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -51,6 +51,10 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -78,19 +82,19 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -99,10 +103,6 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -125,20 +125,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-optimal-screen-record-settings-for-facetime-conversations/"><u>[New] In 2024, Optimal Screen Record Settings for FaceTime Conversations</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-cutting-out-background-sounds-freepaid-options-for-clear-videos-for-2024/"><u>[Updated] Cutting Out Background Sounds - Free/Paid Options for Clear Videos for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-innovative-video-edits-made-simple-with-windows-10s-story-remix/"><u>[Updated] In 2024, Innovative Video Edits Made Simple with Windows 10'S Story Remix</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/cleaning-up-clutter-removing-objectionable-pages-from-facebook/"><u>Cleaning Up Clutter: Removing Objectionable Pages From Facebook</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/cutting-edge-camera-list-best-videography-devices-of-the-year/"><u>Cutting-Edge Camera List Best Videography Devices of the Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/england-athletics-endorses-digital-detox-movement/"><u>England Athletics Endorses Digital Detox Movement</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-ceo-welcomes-new-chief-after-everson-departs/"><u>FB CEO Welcomes New Chief After Everson Departs</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Honor 90 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/one-star-uprising-activist-movements-shake-up-social-app-ratings/"><u>One-Star Uprising: Activist Movements Shake Up Social App Ratings</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/prime-selection-your-guide-to-best-tv-streaming-choices-for-2024/"><u>Prime Selection Your Guide to Best TV Streaming Choices for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/review-the-top-5-technology-flops/"><u>Review: The Top 5 Technology Flops</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/skepticism-in-automated-text-summaries-why-trust-bots-less/"><u>Skepticism in Automated Text Summaries: Why Trust Bots Less?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-to-see-a-surge-in-crypto-commercials/"><u>Social Media to See a Surge in Crypto Commercials</u></a></li>
-<li><a href="https://facebook.techidaily.com/tactical-approaches-to-hidden-facebook-accounts/"><u>Tactical Approaches to Hidden Facebook Accounts</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixed-missing-network-interface-on-windows-10-notebook/"><u>[FIXED] Missing Network Interface on Windows 10 Notebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-and-expert-use-of-obs-studio-with-android-devices-for-2024/"><u>[Updated] Effortless and Expert Use of OBS Studio with Android Devices for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-get-premium-minecraft-channel-graphics-for-2024/"><u>[Updated] Get Premium Minecraft Channel Graphics for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-skyline-artistry-review-studio-25-in-focus-2023-for-2024/"><u>[Updated] Skyline Artistry Review Studio 25 in Focus, 2023 for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-dominating-the-digital-space-5-tips-for-video-visibility-victory/"><u>2024 Approved Dominating the Digital Space 5 Tips for Video Visibility Victory</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/30plus-ways-to-convert-instagram-videos-onto-your-computer-iphone-or-android/"><u>30+ Ways To Convert Instagram Videos Onto Your Computer, iPhone or Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-designing-facebook-background-artwork/"><u>Best Practices in Designing Facebook Background Artwork</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-content-allowed-on-facebook/"><u>Deciphering Content Allowed on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trump-claims-infringement-on-speech-by-tech-giants/"><u>Donald Trump Claims Infringement on Speech by Tech Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-of-year-update-instagrams-chat-curtain-call/"><u>End-of-Year Update: Instagram's Chat Curtain Call</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-features-are-they-game-changers/"><u>Facebook’s Interactive Features: Are They Game Changers?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/game-file-recovery-techniques-fixing-broken-games-on-a-desktop-system-2024-edition/"><u>Game File Recovery Techniques: Fixing Broken Games on a Desktop System - 2024 Edition</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-transition-techniques-for-different-facebook-accounts/"><u>Rapid Transition Techniques for Different Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-standoff-what-you-should-know/"><u>Social Network Standoff: What You Should Know</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976053494-streamlined-process-secure-your-microsoft-wireless-mouse-5000-driver-download-now/"><u>Streamlined Process: Secure Your Microsoft Wireless Mouse 5000 Driver Download Now!</u></a></li>
 </ul></div>
 

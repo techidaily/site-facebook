@@ -1,7 +1,7 @@
 ---
 title: "Renewable Revolution: Complete Energy for FB"
-date: 2024-08-08T11:26:21.612Z
-updated: 2024-08-09T11:26:21.612Z
+date: 2025-01-03T01:51:19.411Z
+updated: 2025-01-06T03:38:14.733Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
  Climate change presents risks for everyone and everything—from plant species to human beings. Google, Apple, Amazon, as well as Facebook, understand how serious the issues are and have all created environmental targets to eliminate carbon emissions.
@@ -39,14 +40,16 @@ thumbnail: https://thmb.techidaily.com/1155b908ebc8fe078487b3227b97ba044636fc471
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -58,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +74,20 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-get-the-best-free-pc-sound-logger-download-x-recorder/"><u>[New] In 2024, Get the Best Free PC Sound Logger – Download X-Recorder</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-start-with-snapseed-a-foundation-for-image-editing/"><u>[Updated] In 2024, Start with Snapseed A Foundation for Image Editing</u></a></li>
+<li><a href="https://win-lab.techidaily.com/compatibilite-des-peripheriques-de-stockage-avec-aomei-backupper-guide-complet/"><u>Compatibilité Des Périphériques De Stockage Avec AOMEI Backupper : Guide Complet</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-to-end-encryption-on-hold-metas-rationale-deadline/"><u>End-to-End Encryption on Hold: Meta's Rationale Deadline</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-free-storage-after-resolving-the-cyclic-redundancy-check-glitches/"><u>Error-Free Storage After Resolving the Cyclic Redundancy Check Glitches</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-actions-to-undo-the-impact-of-a-facebook-intrusion/"><u>Instant Actions to Undo the Impact of a Facebook Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-privacy-an-exhaustive-fb-security-checklist/"><u>Master the Art of Privacy: An Exhaustive FB Security Checklist</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1691963-9780804152358-shamanism-as-a-spiritual-practice-for-daily-life/"><u>Shamanism As a Spiritual Practice for Daily Life | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-language-of-emojis-and-icons-used-in-facebook-chats/"><u>The Hidden Language of Emojis & Icons Used in Facebook Chats</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unlock-the-solution-for-realtek-hd-audio-manager-failure-to-open-on-your-pc/"><u>Unlock the Solution for Realtek HD Audio Manager Failure to Open on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-verified-meta-achievement-with-payments/"><u>Unlock Verified Meta Achievement with Payments</u></a></li>
+<li><a href="https://facebook.techidaily.com/zero-hour-for-falsehoods-as-fb-levies-heavier-fines/"><u>Zero-Hour for Falsehoods as FB Levies Heavier Fines</u></a></li>
+</ul></div>
 

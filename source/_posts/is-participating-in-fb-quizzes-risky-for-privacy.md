@@ -1,7 +1,7 @@
 ---
 title: Is Participating in FB Quizzes Risky for Privacy?
-date: 2024-12-25T16:14:28.330Z
-updated: 2024-12-27T17:44:36.350Z
+date: 2025-01-01T21:55:02.234Z
+updated: 2025-01-05T18:40:21.577Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are Facebook Quizzes?
@@ -34,12 +34,16 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
@@ -49,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -66,17 +74,9 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Staying Safe on Facebook
@@ -119,20 +119,22 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-aurora-high-dynamic-range-review-pros-and-cons/"><u>[New] In 2024, Aurora High-Dynamic Range Review – Pros & Cons</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-mastering-audio-transitions-in-premiere-pro/"><u>[New] In 2024, Mastering Audio Transitions in Premiere Pro</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-15-must-have-openers-for-maximum-youtube-engagement/"><u>[Updated] 15 Must-Have Openers for Maximum YouTube Engagement</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-learn-the-fastest-way-to-retrieve-gifs-directly-from-social-platforms-like-fb/"><u>[Updated] Learn the Fastest Way to Retrieve GIFs Directly From Social Platforms Like FB</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210101854-9781989838761-bedtime-stories-for-stressed-out-adults-relaxing-sleep-stories-guided-mindfulness-meditations-self-hypnosis-for-deep-sleep-overcoming-anxiety-insomnia-stress-re/"><u>Bedtime Stories for Stressed Out Adults Relaxing Sleep Stories, Guided Mindfulness Meditations & Self-Hypnosis For Deep Sleep, Overcoming Anxiety, Insomnia & Stress Relief | Free Book</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/como-realizar-una-transicion-perfecta-de-hdd-a-ssd-en-windows-tecnicas-sencillas-para-versiones-10-8-y-7/"><u>Cómo Realizar Una Transición Perfecta De HDD a SSD en Windows: Técnicas Sencillas Para Versiones 10, 8 Y 7</u></a></li>
-<li><a href="https://facebook.techidaily.com/engaging-ears-connecting-hearts-facebooks-audio-venture/"><u>Engaging Ears, Connecting Hearts: Facebook's Audio Venture</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-events-on-facebook/"><u>How to Create Events on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-hiatus-recommended-by-social-networking-giant/"><u>Instagram Hiatus Recommended by Social Networking Giant</u></a></li>
-<li><a href="https://facebook.techidaily.com/unexpected-disclosure-have-my-phone-details-been-shared-on-fb/"><u>Unexpected Disclosure: Have My Phone Details Been Shared on FB?</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-social-media-potential-with-imagery/"><u>Unlocking Social Media Potential with Imagery</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-exploring-the-magic-of-ai-selfie-generators/"><u>Updated In 2024, Exploring the Magic of AI Selfie Generators</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-list-10-final-cut-pro-x-competitors-you-need-to-know-for-2024/"><u>Updated The Ultimate List 10 Final Cut Pro X Competitors You Need to Know for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/updating-group-standards-for-effective-community-engagement/"><u>Updating Group Standards for Effective Community Engagement</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726029989207-pc-2024/"><u>ベストのビデオコンバータープログラム - PC画面抽出に最適 | 2024年リコメンド</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-tips-zooming-in-on-videoleap-videos/"><u>[New] Expert Tips Zooming In on Videoleap Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-streamline-editing-workflow-with-youtube-video-editor/"><u>[New] In 2024, Streamline Editing Workflow with YouTube Video Editor</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-premium-vr-headset-picks-for-uavs/"><u>[New] Premium VR Headset Picks for UAVs</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-which-screen-recording-app-wins-bandicam-vs-camtasia-analysis-for-2024/"><u>[New] Which Screen Recording App Wins? Bandicam Vs Camtasia Analysis for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-captivating-your-audience-tactics-for-powerful-snap-promotions/"><u>2024 Approved Captivating Your Audience Tactics for Powerful Snap Promotions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-premier-list-of-smartphone-compatible-vr-headset/"><u>2024 Approved The Premier List of Smartphone-Compatible VR Headset</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-honor-magic-v2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-off-with-legality-the-3-non-facebook-nations/"><u>Face Off with Legality: The 3 Non-Facebook Nations</u></a></li>
+<li><a href="https://facebook.techidaily.com/headsets-as-security-measures-for-facebooks-vulnerable-users/"><u>Headsets as Security Measures for Facebook's Vulnerable Users</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-honor-x9b-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Honor X9b</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-shift-sending-2fa-verification-through-whatsapp/"><u>Instagram's Shift: Sending 2FA Verification Through WhatsApp</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-how-to-prevent-final-cut-pro-x-from-freezing-and-crashing/"><u>New 2024 Approved How to Prevent Final Cut Pro X From Freezing and Crashing</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-leaders-ban-social-platform-use-over-negative-commentary/"><u>Premier League Leaders Ban Social Platform Use Over Negative Commentary</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-social-media-investigation-techniques/"><u>Stealthy Social Media Investigation Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-fb-friends-when-to-follow-and-unfollow/"><u>Timing Your FB Friends: When to Follow & Unfollow?</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-facebook-solutions-for-a-non-operational-account/"><u>Troubleshooting Facebook: Solutions for a Non-Operational Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-stuck-fb-notification-bars/"><u>Troubleshooting Stuck FB Notification Bars</u></a></li>
 </ul></div>
 

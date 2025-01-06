@@ -1,7 +1,7 @@
 ---
 title: The Road Ahead for Silicon Valley After Antitrust Overhaul
-date: 2024-12-23T19:49:55.034Z
-updated: 2024-12-27T17:18:58.640Z
+date: 2025-01-01T22:03:05.639Z
+updated: 2025-01-06T08:59:15.327Z
 tags:
   - facebook
 categories:
@@ -31,23 +31,19 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
@@ -78,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -87,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -102,13 +98,13 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -121,6 +117,10 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,19 +143,19 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-a-deep-dive-into-effective-youtube-banner-techniques/"><u>[Updated] 2024 Approved A Deep Dive Into Effective YouTube Banner Techniques</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-elevate-your-virtual-identity-expert-tips-for-memorable-fb-bios/"><u>[Updated] In 2024, Elevate Your Virtual Identity Expert Tips for Memorable FB Bios</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-navigating-the-zoom-interface-for-effective-fb-lives/"><u>[Updated] In 2024, Navigating the Zoom Interface for Effective FB Lives</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/7-best-free-online-youtube-tag-extractors-for-2024/"><u>7 Best Free Online YouTube Tag Extractors for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/extract-your-entire-social-footprint-downloading-facebook-content/"><u>Extract Your Entire Social Footprint: Downloading Facebook Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-linkedins-tracking-makes-networking-effortless-and-free/"><u>How LinkedIn’s Tracking Makes Networking Effortless and Free</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-oneplus-11r-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from OnePlus 11R to Another | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-skyrocketing-numbers-enhancing-youtube-presence/"><u>In 2024, Skyrocketing Numbers Enhancing YouTube Presence</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-vivo-s17-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Vivo S17 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/interface-innovation-tracing-facebooks-evolution-into-meta/"><u>Interface Innovation: Tracing Facebook's Evolution Into Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-platforms-for-mass-reach/"><u>Leveraging Platforms for Mass Reach</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-fb-events-benefits-vs-drawbacks/"><u>Navigating FB Events: Benefits vs Drawbacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-your-data-against-facebook-quiz-traps/"><u>Safeguarding Your Data Against Facebook Quiz Traps</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-best-brit-tv-programs-available-on-netflix-updated-list/"><u>The Best Brit TV Programs Available on Netflix – Updated List!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/09459298-new-2024-approved-best-hashtags-for-youtube-to-get-your-views-to-6-figures/"><u>[New] 2024 Approved Best Hashtags for YouTube To Get Your Views to 6 Figures</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-cyberlink-screen-recorder-review/"><u>[New] Cyberlink Screen Recorder Review</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-effortlessly-enhanced-images-learn-the-insider-snapchat-tactics-for-2024/"><u>[New] Effortlessly Enhanced Images Learn the Insider Snapchat Tactics for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-mastering-video-broadcasts-wirecast-and-its-allies/"><u>[New] Mastering Video Broadcasts Wirecast and Its Allies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-gold-class-selection-of-unseen-video-extractors/"><u>[Updated] 2024 Approved Gold-Class Selection of Unseen Video Extractors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-ad-101-create-stunning-and-effective-snapchat-ads/"><u>[Updated] In 2024, Snapchat Ad 101 Create Stunning & Effective Snapchat Ads</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-flawless-playlist-integration-techniques-in-web-development/"><u>2024 Approved Flawless Playlist Integration Techniques in Web Development</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-personalized-content-a-deep-dive/"><u>Facebook’s Personalized Content: A Deep Dive</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-language-of-facebook-to-capture-attention/"><u>Mastering the Language of Facebook to Capture Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-part-ways-on-biometrics-the-why-behind-the-shift/"><u>Meta and FB Part Ways on Biometrics: The Why Behind the Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-earning-how-instagram-is-boosting-creator-incomes/"><u>New Age of Earning: How Instagram Is Boosting Creator Incomes</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-honor-magic-vs-2-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Honor Magic Vs 2 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-complete-guide-to-expressing-hello-in-spanish-top-10-ways/"><u>The Complete Guide to Expressing 'Hello' In Spanish - Top 10 Ways</u></a></li>
 </ul></div>
 

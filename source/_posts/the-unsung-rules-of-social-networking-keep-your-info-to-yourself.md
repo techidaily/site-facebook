@@ -1,7 +1,7 @@
 ---
 title: "The Unsung Rules of Social Networking: Keep Your Info to Yourself"
-date: 2024-12-20T19:07:29.910Z
-updated: 2024-12-21T18:35:40.632Z
+date: 2025-01-02T17:43:11.271Z
+updated: 2025-01-05T19:33:16.076Z
 tags:
   - facebook
 categories:
@@ -20,10 +20,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -32,23 +28,19 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Location Data
 
@@ -58,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -65,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -98,10 +90,6 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
@@ -111,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  The key point is that you simply don't (and can't) know all the facts. If someone is sick or in trouble, they should seek professional help. This also applies to advice on exercise, weight loss, diet, finance, relationships, and other sensitive topics. You're not going to get the whole picture from a social post.
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Scammy Giveaways and Contests
 
@@ -128,6 +120,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -135,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
  On the internet, once something has been published, it's pretty much impossible to remove it completely. Even if you set your posts to "friends only," there's no way to know for sure who's seen your posts and photos, saved them, or shared them with someone else. Someone could always send a screenshot to another person who can't "officially" see the post, for instance.
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
 
@@ -157,15 +157,21 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-ultimate-list-of-superior-live-streaming-services/"><u>[New] 2024 Approved The Ultimate List of Superior Live Streaming Services</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-revamped-picsart-in-depth-review-and-exploration-2024/"><u>[New] Revamped PicsArt - In-Depth Review and Exploration, 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-screener-info-deconverter-for-2024/"><u>[Updated] Screener Info Deconverter for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-ways-to-regain-sanity-by-unfollowing-not-undergoing/"><u>5 Ways to Regain Sanity by Unfollowing, Not Undergoing</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-critical-look-at-ustream-with-similar-sites-for-2024/"><u>A Critical Look at Ustream with Similar Sites for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
-<li><a href="https://facebook.techidaily.com/ban-random-friends-notifications-on-social-media/"><u>Ban Random Friends Notifications on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/monitor-displays-half-size-not-full-screen-windows/"><u>Monitor Displays Half Size, Not Full Screen Windows</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-strength-of-amd-vs-intel-how-zen-technology-surpasses-with-advanced-threading-techniques/"><u>The Strength of AMD vs Intel: How Zen Technology Surpasses with Advanced Threading Techniques</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-a-comprehensive-guide-to-iptv-recording-mastery-for-2024/"><u>[New] A Comprehensive Guide to IPTV Recording Mastery for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mastering-screen-saves-on-iphone-7/"><u>[Updated] Mastering Screen Saves on iPhone 7</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722095133536-android-users-rejoice-download-the-newly-updated-chatgpt-mobile-application/"><u>Android Users Rejoice: Download the Newly Updated ChatGPT Mobile Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistic-assets-transforming-video-content-into-money-through-metric-mastery/"><u>Artistic Assets: Transforming Video Content Into Money Through Metric Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-freedom-6-compelling-reasons-to-ditch-facebook/"><u>Embrace Freedom - 6 Compelling Reasons to Ditch Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expanding-horizinas-with-vlcs-versatile-conversion-capabilities-for-2024/"><u>Expanding Horizinas with VLC's Versatile Conversion Capabilities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-will-soon-advise-teenagers-to-take-a-break-from-instagram/"><u>Facebook Will Soon Advise Teenagers to Take a Break From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-goodbye-to-the-social-networking-empire/"><u>Final Goodbye to the Social Networking Empire</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Vivo Y200e 5G? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/lost-ark-pc-crashes-effective-solutions-for-a-smooth-gaming-experience/"><u>Lost Ark PC Crashes - Effective Solutions for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/mastering-image-editing-boosting-contrast-levels-in-flip-image-expert-software/"><u>Mastering Image Editing: Boosting Contrast Levels in Flip Image Expert Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-safety-in-the-realm-of-social-media-quizzes/"><u>Navigating Safety in the Realm of Social Media Quizzes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/nintendos-best-hd-recorders-for-enthusiasts-for-2024/"><u>Nintendo's Best HD Recorders for Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebook-chat-emojis-and-glyphs/"><u>The Secret Language of Facebook Chat Emojis & Glyphs</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-consensus-platforms-are-overwhelmingly-negative/"><u>U.S. Consensus: Platforms Are Overwhelmingly Negative</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-today-we-will-take-a-look-at-the-best-motion-tracking-video-editing-apps-for-ios-and-android-devices-for-2024/"><u>Updated Today We Will Take a Look at the Best Motion Tracking Video Editing Apps for iOS & Android Devices for 2024</u></a></li>
 </ul></div>
 

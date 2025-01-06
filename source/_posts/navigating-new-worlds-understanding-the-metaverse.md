@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Worlds: Understanding the Metaverse"
-date: 2024-12-23T19:46:36.146Z
-updated: 2024-12-27T17:06:24.096Z
+date: 2025-01-03T05:02:19.684Z
+updated: 2025-01-06T06:42:58.118Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ So, what is the metaverse?
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Etymology and Origin of the Term "Metaverse" and Its Concept
 
 ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
@@ -46,6 +42,10 @@ So, what is the metaverse?
 
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
 
 Yet.
@@ -57,6 +57,10 @@ Yet.
  So, what exactly is the metaverse? Well, since the metaverse is a concept straight out of a science fiction novel and it doesn’t have an actual referent in the real world, we should probably ask ourselves a different question: What does the Metaverse intend to be?
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Internet vs. Metaverse
 
@@ -75,28 +79,24 @@ Yet.
  The metaverse is a collection of information and software linked together and made available to the public through a worldwide network, either as 3D shared persistent virtual spaces or in the form of 2D images.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Metaverse Precursors
 
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -112,7 +112,7 @@ Yet.
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
@@ -136,18 +136,17 @@ Yet.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-top-techniques-for-streamlining-console-video-saves/"><u>[Updated] Top Techniques for Streamlining Console Video Saves</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/1-lost-saved-excel-file-easy-steps-to-recover-your-data/"><u>1. Lost SAVED EXCEL FILE? Easy Steps to RECOVER Your Data</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Infinix Zero 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovations-in-balancing-exposures-for-perfect-pictures-for-2024/"><u>Innovations in Balancing Exposures for Perfect Pictures for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/joes-plan-leveraging-fb-tweet-and-snap-for-health/"><u>JOE'S PLAN: Leveraging FB, Tweet & Snap for Health</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-emoji-language-with-ease/"><u>Navigating Facebook Emoji Language with Ease</u></a></li>
-<li><a href="https://fox-info.techidaily.com/navigating-the-rainbow-skills-for-cinematic-tinting/"><u>Navigating the Rainbow Skills for Cinematic Tinting</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-through-the-real-facebook-defections/"><u>Sifting Through the Real Facebook Defections</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-social-habits-leave-facebook-behind/"><u>Transforming Social Habits: Leave Facebook Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-apples-rationale-for-metaverse-absence/"><u>Unraveling Apple's Rationale for Metaverse Absence</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-11-interface-revolution-learning-the-widget-basics/"><u>Windows 11 Interface Revolution: Learning the Widget Basics</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-preserving-past-a-guide-to-digitally-archiving-faded-prints/"><u>[New] Preserving Past A Guide to Digitally Archiving Faded Prints</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-demystifying-the-journey-to-knowing-who-watches-you-for-2024/"><u>[Updated] Demystifying the Journey to Knowing Who Watches You for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revolutionizing-art-sales-7-top-generators-for-turning-images-into-nfts/"><u>[Updated] Revolutionizing Art Sales - 7 Top Generators for Turning Images Into NFTs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-screen-grab-specialists-top-apps-for-windows-10-users/"><u>[Updated] Screen Grab Specialists Top Apps for Windows 10 Users</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-switching-to-grid-view-in-google-meet-chat-room-for-2024/"><u>[Updated] Switching to Grid View in Google Meet Chat Room for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revel-in-the-wonders-of-asmrs-positive-effects/"><u>2024 Approved Revel in the Wonders of ASMR's Positive Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-eclipsed-by-facebooks-customized-personalized-user-access-methods/"><u>Apple Eclipsed by Facebook's Customized, Personalized User Access Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-picture-control-guide-mastering-privacy/"><u>Facebook Picture Control Guide: Mastering Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-vigilance-identifying-and-correcting-breaches/"><u>Facebook Vigilance: Identifying & Correcting Breaches</u></a></li>
+<li><a href="https://fox-that.techidaily.com/facing-delayed-text-messages-on-your-iphone-correct-the-issue-using-our-expert-advice-for-9-remedies/"><u>Facing Delayed Text Messages on Your iPhone? Correct the Issue Using Our Expert Advice for 9 Remedies</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-grants-extension-exploring-reasons-behind-encryption-push-to-23/"><u>Meta Grants Extension: Exploring Reasons Behind Encryption Push to '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/tennis-associations-discontinue-digital-participation/"><u>Tennis Associations Discontinue Digital Participation</u></a></li>
 </ul></div>
 

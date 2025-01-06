@@ -1,7 +1,7 @@
 ---
 title: "Enter the Virtual Domain: Facebook's Pathway to Metaverse"
-date: 2024-12-21T19:13:47.616Z
-updated: 2024-12-27T18:47:22.237Z
+date: 2025-01-04T03:26:51.460Z
+updated: 2025-01-05T23:46:08.879Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Facebook Metaverse?
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
@@ -36,23 +40,15 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
 
@@ -71,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
  When it comes to social media, it’s important to remember that access to information on a curated newsfeed always comes with an agenda, even if it wasn’t the original intention.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Security Risks of Granular Data
@@ -82,19 +78,23 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -119,18 +119,18 @@ thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-expert-netflix-tips-maximizing-screenshots-with-your-mac/"><u>[New] 2024 Approved Expert Netflix Tips Maximizing Screenshots with Your Mac</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-essential-tips-for-obs-on-android-platforms-for-2024/"><u>[Updated] Essential Tips for OBS on Android Platforms for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-foundational-methods-to-improve-color-balance/"><u>2024 Approved Foundational Methods to Improve Color Balance</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-optimal-strategies-for-downloading-audio-from-pinterest-videos/"><u>2024 Approved Optimal Strategies for Downloading Audio From Pinterest Videos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-analysis-of-toms-gadgets-and-hardware/"><u>Comprehensive Analysis of Tom's Gadgets and Hardware</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/convert-raw-and-dpx-to-jpegpng-for-free-with-movavis-raf-emp-editor/"><u>Convert RAW and DPX to JPEG/PNG for Free with Movavi's RAF EMP Editor</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/core-components-of-an-excellent-ai-support-package/"><u>Core Components of an Excellent AI Support Package</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-lately-engaged-with-fb-content/"><u>Identifying Lately Engaged with FB Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-vax-using-social-networks-in-his-strategy-against-coronavirus/"><u>JOE VAX: Using Social Networks in His Strategy Against Coronavirus</u></a></li>
-<li><a href="https://driver-install.techidaily.com/professional-sound-support-amd-version/"><u>Professional Sound Support, AMD Version</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-fix-guide-reactivate-computer-speakers-for-smooth-zoom-audio-performance/"><u>Quick Fix Guide: Reactivate Computer Speakers for Smooth Zoom Audio Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-and-singleness-adapting-to-facebooks-dating-features/"><u>Social Media and Singleness: Adapting to Facebook's Dating Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiktoks-stealthy-revenue-siege-on-facebooks-empire/"><u>TikTok's Stealthy Revenue Siege on Facebook’s Empire</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-timeless-trove-of-freely-shared-works/"><u>2024 Approved The Timeless Trove of Freely Shared Works</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024s-best-camera-reviews-your-go-to-list/"><u>2024'S Best Camera Reviews Your Go-To List</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-tour-of-metas-digital-command-center/"><u>A Comprehensive Tour of Meta's Digital Command Center</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/access-bing-chat-without-a-microsoft-account-new-options-available/"><u>Access Bing Chat Without a Microsoft Account: New Options Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-rising-trends-causing-a-drop-in-facebooks-user-count/"><u>Four Rising Trends Causing a Drop in Facebook's User Count</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/guide-to-reaching-windows-update-via-control-panel-expert-tips-from-yl-computing/"><u>Guide to Reaching Windows Update via Control Panel - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-rebooting-your-phone-resolves-most-technical-issues/"><u>How Rebooting Your Phone Resolves Most Technical Issues</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-messenger-video-guide-dimensions-file-type-elapsed/"><u>In 2024, Messenger Video Guide Dimensions, File Type, Elapsed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-visionary-8-tools-transforming-gameplay/"><u>In 2024, Visionary 8 Tools Transforming Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-pics-and-popularity-the-image-based-connection/"><u>Profile Pics & Popularity: The Image-Based Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-on-confirming-facebooks-online-presence/"><u>Quick Tips on Confirming Facebook’s Online Presence</u></a></li>
+<li><a href="https://driver-install.techidaily.com/silent-windows-desktop-check-and-reinstall-drivers/"><u>Silent Windows Desktop? Check and Reinstall Drivers</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/tres-faciles-tacticas-para-resguardar-su-windows-server-20199s-implementacion-de-un-copia-de-seguridad-en-una-nas/"><u>Tres Fáciles Tácticas Para Resguardar Su Windows Server 201ˈ#99;s: Implementación De Un Copia De Seguridad en Una NAS</u></a></li>
 </ul></div>
 

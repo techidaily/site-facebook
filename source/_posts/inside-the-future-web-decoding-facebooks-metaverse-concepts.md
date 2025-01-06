@@ -1,7 +1,7 @@
 ---
 title: "Inside The Future Web: Decoding Facebook’s Metaverse Concepts"
-date: 2024-08-08T11:25:29.241Z
-updated: 2024-08-09T11:25:29.241Z
+date: 2025-01-01T17:17:20.909Z
+updated: 2025-01-06T08:17:05.942Z
 tags:
   - facebook
 categories:
@@ -19,12 +19,13 @@ thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292f
 
  After going through the valley of darkness, years of iteration, and unlocking the secret of monetization with ads, Zuckerberg clawed his way to the top and built an empire—the Facebook Metaverse.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is the Facebook Metaverse?
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Since its rebirth into a next-generation social media platform, Facebook has grown to unprecedented proportions. While Facebook is still synonymous with its ubiquitous social media platform, it has gone to acquire competitors, supporting services, and even hardware companies to join its ranks.
 
@@ -34,18 +35,24 @@ thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292f
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Effects of a Granular Customer Profile
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Data Brokering and Targeted Ads
 
  When tech giants like Facebook create incredibly granular customer profiles, they don’t just have an idea of how you behave as a person. Companies can also understand, predict, and create trends for whole segments of a population.
@@ -70,15 +77,13 @@ thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292f
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A Battle Among Giants
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
@@ -86,9 +91,6 @@ thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292f
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The Perils of Being an Ordinary Person
 
  When we think of the metaverse, it’s often within the context of heroes and villains. However, it’s important to understand that when talking about the internet, things are not so black and white. At the heart of it, most of the problems the tech giants of today are that they are not run by gods who are infallible. Despite all the talk of algorithms, these companies are very much human, which is both their greatest weakness and strength.
@@ -97,14 +99,11 @@ thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292f
 
  However, like all empires, it’s us ordinary people who are guinea pigs and collaterals in this fight for control over our data. In fact, it doesn’t even really matter which overlord reigns supreme. For convenience and cat videos, we are watching the end of the right to be anonymous, offline, and forgotten. The silly thing is, we are doing so with thunderous applause.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,4 +112,19 @@ thumbnail: https://thmb.techidaily.com/b734a2c6690e4996dacb7188f3387d968781f292f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-strategies-to-solve-off-screen-problems-on-youtube/"><u>[Updated] Strategies to Solve Off-Screen Problems on YouTube</u></a></li>
+<li><a href="https://discover-great.techidaily.com/1-unbreakable-data-protection-with-bare-metal-backup-and-restoration-services/"><u>1. Unbreakable Data Protection with Bare Metal Backup & Restoration Services</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/aerial-autonomy-groups-for-2024/"><u>Aerial Autonomy Groups for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/command-attention-in-advertising-using-20-powerful-terms-for-2024/"><u>Command Attention in Advertising Using 20 Powerful Terms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/expeditious-transition-tactics-between-unique-fb-users/"><u>Expeditious Transition Tactics Between Unique FB Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-connect-a-ps5-controller-to-your-phone/"><u>How to Connect a PS5 Controller to Your Phone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-advanced-tips-for-nvidia-recorded-content/"><u>In 2024, Advanced Tips for NVIDIA Recorded Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-facebooks-troubleshooting-platform/"><u>Inside Facebook's Troubleshooting Platform</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/merging-technology-and-commerce-through-vr-innovation/"><u>Merging Technology & Commerce Through VR Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-facebook-portal-tv-to-enhance-communication/"><u>Navigating Your Facebook Portal TV to Enhance Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-social-music-platform-boombox-by-facebook-and-spotify/"><u>New Social-Music Platform: Boombox by Facebook & Spotify?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-formulate-an-impactful-facebook-collective/"><u>Tips to Formulate an Impactful Facebook Collective</u></a></li>
+</ul></div>
 

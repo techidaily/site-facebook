@@ -1,7 +1,7 @@
 ---
 title: "Facebook App: Accessing Spotify's Music Library"
-date: 2024-08-08T11:29:46.579Z
-updated: 2024-08-09T11:29:46.579Z
+date: 2024-12-29T22:32:35.715Z
+updated: 2025-01-06T02:33:38.181Z
 tags:
   - facebook
 categories:
@@ -20,31 +20,25 @@ thumbnail: https://thmb.techidaily.com/cf1ae4b3cdb5debdafe3b02949517a45048f6142d
  We're going to explain what the Spotify miniplayer is, how to use it, and what features premium and free users get while using the feature on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Spotify Miniplayer?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![Spotify Miniplayer screen example](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Before the Spotify miniplayer, sharing songs from Spotify directly to Facebook had a bit of an issue. Instead of being able to listen to the shared music in your Facebook app, you would automatically be taken to the Spotify app.
 
  Those days are over as Spotify has created a way for you to listen to any shared song in the Facebook app. You can scroll through your news feed and navigate throughout the app while still being able to listen to your music.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Can Use the Spotify Miniplayer?
 
  Anyone with a Spotify account is able to use the miniplayer. The features you have will depend on[the Spotify subscription that you have](https://www.makeuseof.com/tag/which-spotify-subscription-is-best/) .
@@ -54,13 +48,11 @@ No advertising on the website.
  Premium users will enjoy free rein when using their Spotify miniplayer. The feature offers full control over playability and which songs you listen to. There are also no ads interjected between tunes for premium users.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use the Spotify Miniplayer on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
 
  Once you find a shared track in your news feed, click the track to listen like you normally would.
@@ -72,22 +64,20 @@ No advertising on the website.
  If you're concerned about what is being shared between Spotify and Facebook, there are ways you can[limit the amount of data that Facebook shares with Spotify](https://www.makeuseof.com/stop-facebook-sharing-data-with-spotify/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Listen to Spotify Using the Facebook App
 
  With the Spotify miniplayer, you can listen to tracks your friends share through the Facebook app without switching back and forth. Premium users will have no interruptions but free Spotify subscribers will have ads with limited shuffle only.
 
  There are plenty of tricks to learn about the Spotify app to get the most out of the platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,4 +86,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-thorough-examination-of-dji-inspire-1/"><u>[New] Thorough Examination of DJI Inspire 1</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-in-depth-evaluation-hero4-black-experience/"><u>[Updated] In 2024, In-Depth Evaluation Hero4 Black Experience</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unleash-marketing-potential-with-unpacked-plans/"><u>[Updated] Unleash Marketing Potential with Unpacked Plans</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/avoid-game-disruptions-solving-maplestory-crash-issues-for-windows-11-users/"><u>Avoid Game Disruptions: Solving MapleStory Crash Issues for Windows 11 Users</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-realme-c33-2023-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Realme C33 2023</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/expert-online-assistance-hub-winx-dvd-ripping-and-video-conversion-solutions/"><u>Expert Online Assistance Hub: WinX DVD Ripping & Video Conversion Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-broadcasting-your-place/"><u>Facebook Messenger: Broadcasting Your Place</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-alert-about-minors-using-social-network/"><u>Methods to Alert About Minors Using Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-new-era-utilizing-soundmojis-in-chats/"><u>Navigating New Era: Utilizing Soundmojis in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-respond-to-a-stolen-fb-account/"><u>Protect Your Digital Life: Respond to a Stolen FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/scam-free-web-a-call-for-more-robust-oversight-by-facebook-and-google/"><u>Scam-Free Web: A Call for More Robust Oversight by Facebook & Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-from-stings-identifying-and-evade-online-market-frauds-on-fb/"><u>Shielding Yourself From Stings: Identifying and Evade Online Market Frauds on FB</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-fixes-for-forza-horizon-5-stability-issues-on-pc/"><u>Step-by-Step Fixes for Forza Horizon 5 Stability Issues on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-content-development-for-social-media-success-with-ripl/"><u>Strategic Content Development for Social Media Success with Ripl</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-art-of-chatgpt-navigations-a-guide-to-effective-file-use/"><u>The Art of ChatGPT Navigations: A Guide to Effective File Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweeting-terminology-mastering-the-top-30-smarts/"><u>Tweeting Terminology: Mastering the Top 30 SMARTs</u></a></li>
+</ul></div>
 

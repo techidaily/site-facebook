@@ -1,7 +1,7 @@
 ---
 title: "The Fight for Freedom: Trump's Legal Challenge to Tech Firms"
-date: 2024-08-08T11:29:49.406Z
-updated: 2024-08-09T11:29:49.406Z
+date: 2024-12-31T18:46:44.683Z
+updated: 2025-01-05T16:17:44.196Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/e64ba1588493794efe1f30713a2c1b387c63e2ee1
  Former President Donald Trump is taking legal action against Twitter, Facebook, and YouTube after he was banned from each platform following the January 6 Capitol riots. Trump announced that he's filing class-action lawsuits against each platform and their respective CEOs, arguing that he was wrongfully censored on these social networks.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Trump Is Suing Big Tech for Alleged Censorship
 
  At a press conference in New Jersey, Trump told his audience that he's suing Facebook, Twitter, and YouTube for allegedly infringing on his right to free speech. Trump's filing seeks punitive damages, as well as the reinstatement of his accounts on each social network.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/e64ba1588493794efe1f30713a2c1b387c63e2ee1
  YouTube also suspended Trump in January, and only[plans to lift the ban once "the risk of violence has decreased](https://www.makeuseof.com/youtube-on-trump-suspension/) ."
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What About Trump's New Social Network?
 
  To counteract his bans from the most popular social platforms, Trump has created his own: GETTR. GETTR prides itself on "rejecting political censorship and 'cancel culture,'" which is a policy that Twitter, Facebook, and YouTube allegedly don't have.
@@ -47,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/e64ba1588493794efe1f30713a2c1b387c63e2ee1
 
  Image Credit: Chairman of the Joint Chiefs of Staff/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Trump,%5FPentagon%5Fleaders%5Fhonor%5F9-11%5Fvictims%5F%2836979645216%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,4 +62,20 @@ thumbnail: https://thmb.techidaily.com/e64ba1588493794efe1f30713a2c1b387c63e2ee1
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unfollow-the-rush-instagrams-pitch-for-a-balanced-tech-diet/"><u>'Unfollow the Rush': Instagram’s Pitch for a Balanced Tech Diet</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-evaluating-the-leading-video-calling-platforms-for-tech-enthusiasts/"><u>[New] 2024 Approved Evaluating the Leading Video Calling Platforms for Tech Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-launchpad-gear-your-youtube-channels-first-steps/"><u>[New] 2024 Approved Launchpad Gear Your YouTube Channel's First Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-resource-for-youtube-studio-edition-crafting/"><u>[New] 2024 Approved The Ultimate Resource for YouTube Studio Edition Crafting</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-rapid-route-learning-the-ins-and-outs-of-insta-talks/"><u>[New] Rapid Route Learning the Ins and Outs of Insta Talks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-audience-captivation-for-personal-podcasts/"><u>In 2024, Audience Captivation for Personal Podcasts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-honor-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Honor?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-mini-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/newly-released-driver-software-for-the-hp-deskjet-ink-advantage-3755-multifunctional-printer-on-windows-systems-win1087/"><u>Newly Released Driver Software for the HP DeskJet Ink Advantage 3755 Multifunctional Printer on Windows Systems (Win10/8/7)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-guardrails-metas-strategy-against-image-leakage/"><u>The Digital Guardrails: Meta’s Strategy Against Image Leakage</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncoupling-your-social-media-instagram-vs-facebook/"><u>Uncoupling Your Social Media: Instagram Vs. Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-political-parody-facebooks-stance/"><u>Understanding Political Parody: Facebook's Stance</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-transforming-everyday-mac-users-into-pro-voice-recording-enthusiasts-a-beginners-approach-for-2024/"><u>Updated Transforming Everyday Mac Users Into Pro Voice Recording Enthusiasts A Beginners Approach for 2024</u></a></li>
+</ul></div>
 

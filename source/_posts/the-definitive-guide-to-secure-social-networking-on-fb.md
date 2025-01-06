@@ -1,7 +1,7 @@
 ---
 title: The Definitive Guide to Secure Social Networking on FB
-date: 2024-08-08T11:29:27.669Z
-updated: 2024-08-09T11:29:27.669Z
+date: 2025-01-03T04:54:35.052Z
+updated: 2025-01-06T01:23:51.943Z
 tags:
   - facebook
 categories:
@@ -36,11 +36,16 @@ thumbnail: https://thmb.techidaily.com/270d60dd7eabb30b6772ffb66d3ea0dacdceb2788
 * Be made aware of any[unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2. Privacy
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -54,13 +59,11 @@ thumbnail: https://thmb.techidaily.com/270d60dd7eabb30b6772ffb66d3ea0dacdceb2788
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3. Profile and Tagging
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
@@ -71,9 +74,6 @@ thumbnail: https://thmb.techidaily.com/270d60dd7eabb30b6772ffb66d3ea0dacdceb2788
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
@@ -86,8 +86,9 @@ thumbnail: https://thmb.techidaily.com/270d60dd7eabb30b6772ffb66d3ea0dacdceb2788
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
@@ -110,21 +111,18 @@ thumbnail: https://thmb.techidaily.com/270d60dd7eabb30b6772ffb66d3ea0dacdceb2788
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Be Facebook Privacy Aware
 
  By cleaning up past posts, being mindful of who sees your photos, and restricting access to your personal data, you can create a secure online presence on Facebook and other social media outlets. It's worthwhile reviewing these settings periodically to ensure that everything is as locked as you want it to be.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +131,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-ios-snapshot-spectrum-your-quick-reference/"><u>[New] IO's Snapshot Spectrum Your Quick Reference</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-enhancing-visual-content-turning-youtube-clips-into-animated-gifs/"><u>[Updated] In 2024, Enhancing Visual Content Turning Youtube Clips Into Animated GIFs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-camtasia-tutorial-implementing-the-classic-ken-burns-effect/"><u>2024 Approved Camtasia Tutorial Implementing the Classic Ken Burns Effect</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebooks-fabulous-video-showcase/"><u>Facebook's Fabulous Video Showcase</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-best-stop-motion-animation-tools-for-mac-and-pc/"><u>New In 2024, Best Stop Motion Animation Tools for Mac and PC</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premier-software-for-photo-based-videography/"><u>Premier Software for Photo-Based Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-platform-revises-humor-standards/"><u>Social Media Platform Revises Humor Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-login-cycle-switching-between-various-fb-users/"><u>Speedy Login Cycle: Switching Between Various FB Users</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-must-know-insights-prior-to-investing-in-an-unrestricted-smartphone/"><u>The Must-Know Insights Prior to Investing in an Unrestricted Smartphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-price-of-permanence-uncovering-top-10-reasons-to-leave-facebook-behind/"><u>The Price of Permanence: Uncovering Top 10 Reasons to Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-side-of-success-how-connectivity-can-aid-growth/"><u>The Social Side of Success: How Connectivity Can Aid Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-recovering-forgotten-facebook-comments/"><u>The Ultimate Guide to Recovering Forgotten Facebook Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-informative-model-influences-facebooks-prompting-strategy/"><u>Twitter’s Informative Model Influences Facebook's Prompting Strategy</u></a></li>
+<li><a href="https://app-tips.techidaily.com/ultimate-guide-choosing-the-best-app-to-check-if-your-android-is-rooted/"><u>Ultimate Guide: Choosing the Best App to Check if Your Android Is Rooted</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-limiting-your-network-is-a-smart-security-move/"><u>Why Limiting Your Network Is a Smart Security Move</u></a></li>
+</ul></div>
 

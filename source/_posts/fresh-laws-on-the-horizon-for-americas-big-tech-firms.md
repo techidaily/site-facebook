@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2024-12-25T20:46:27.012Z
-updated: 2024-12-27T16:51:29.388Z
+date: 2025-01-04T18:09:47.730Z
+updated: 2025-01-06T04:09:57.847Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
@@ -43,12 +39,16 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -89,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 In essence: leave the selling to the sellers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
@@ -106,6 +106,10 @@ In essence: leave the selling to the sellers.
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -117,10 +121,6 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,22 +143,16 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-cut-to-impress-youtube-video-editing-made-simple/"><u>[Updated] 2024 Approved Cut to Impress YouTube Video Editing Made Simple</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-breaking-barriers-youtube-marketing-mastery-for-2024/"><u>[Updated] Breaking Barriers YouTube Marketing Mastery for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-directory-for-vr-display-venues/"><u>[Updated] Ultimate Directory for VR Display Venues</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-step-into-tomorrow-secure-these-7-devices-for-metaverse-life/"><u>2024 Approved Step Into Tomorrow Secure These 7 Devices for Metaverse Life</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-honor-100-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Honor 100 Pro to iPhone | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/complete-step-by-step-instructions-to-get-sony-vaio-drivers-for-windows-computers/"><u>Complete Step-by-Step Instructions to Get Sony Vaio Drivers for Windows Computers</u></a></li>
-<li><a href="https://facebook.techidaily.com/empowering-societies-through-7-digital-interactions/"><u>Empowering Societies Through 7 Digital Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-new-admin-tools-to-help-moderate-communities/"><u>Facebook Launches New Admin Tools to Help Moderate Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-you-through-disconnecting-spotify-from-facebook/"><u>Guiding You Through Disconnecting Spotify From Facebook</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/insightful-analysis-of-the-lavish-and-rapid-glion-dolly-electric-scooter/"><u>Insightful Analysis of the Lavish & Rapid Glion Dolly Electric Scooter</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-next-step-facebooks-personalized-business-tool/"><u>Navigating the Next Step: Facebook's Personalized Business Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-principles-for-the-digital-age-critical-tips-and-traps/"><u>Privacy Principles for the Digital Age: Critical Tips & Traps</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-messages-on-facebooks-platform/"><u>Securing Messages on Facebooks Platform</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/usb-to-hdmi-bridge-malfunction-heres-how-to-solve-it/"><u>USB to HDMI Bridge Malfunction? Here's How to Solve It</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-identity-evolution-oculuss-latest-avatars/"><u>Virtual Identity Evolution: Oculus's Latest Avatars</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-know-about-impending-thread-shutdown-on-insta/"><u>What to Know About Impending Thread Shutdown on Insta</u></a></li>
-<li><a href="https://solve-help.techidaily.com/1726029865282-twitter/"><u>デジタルガジェット上でTwitter映像を見るための解決策：徹底調査と方法</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-flash-share-sharing-playlists-in-a-snap-for-2024/"><u>[Updated] Flash-Share Sharing Playlists in a Snap for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ai-in-action-selecting-your-social-sphere-sidekick/"><u>AI in Action: Selecting Your Social Sphere Sidekick</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-techniques-for-legitimate-video-acquisition/"><u>Avoiding Pitfalls: Techniques for Legitimate Video Acquisition</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dissent-whatsapp-questions-legality-of-new-privacy-laws/"><u>Digital Dissent: WhatsApp Questions Legality of New Privacy Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-networking-experience-on-facebook-mobile/"><u>Elevate Your Social Networking Experience on Facebook Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/filtering-public-access-to-online-check-ins/"><u>Filtering Public Access to Online Check-Ins</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-100-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Honor 100 Pro Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/inside-virtuality-metaverse-vs-omniverse-in-focus/"><u>Inside Virtuality Metaverse Vs. Omniverse in Focus</u></a></li>
+<li><a href="https://win-lab.techidaily.com/quick-and-simple-guide-adding-captions-to-your-reels-videos/"><u>Quick and Simple Guide: Adding Captions to Your Reels Videos</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154481696-unleash-content-potential-transfer-fb-posts-and-notes-among-leading-apps/"><u>Unleash Content Potential: Transfer Fb Posts & Notes Among Leading Apps</u></a></li>
 </ul></div>
 

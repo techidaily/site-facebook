@@ -1,7 +1,7 @@
 ---
 title: Updating Your Birthdate Information on FB
-date: 2024-08-08T11:28:39.720Z
-updated: 2024-08-09T11:28:39.720Z
+date: 2025-01-02T18:10:14.420Z
+updated: 2025-01-06T00:03:50.908Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/b7ac3fecaf39cbf4ad53ade68b5607328fb5fc5fa
 
  If you've ever received greetings from your Facebook friends on a date that wasn't your birthday, this article is for you. We'll show you how to change your Facebook birthday to avoid those wishes coming on the wrong date.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Know Before Changing Your Birthday on Facebook
 
  Before we go into the steps to changing your birthday on Facebook, let us cover some preliminary information.
@@ -32,21 +36,20 @@ thumbnail: https://thmb.techidaily.com/b7ac3fecaf39cbf4ad53ade68b5607328fb5fc5fa
  Also, you can only change your birthday three times. Well, maybe more, but you'll have to send a request for the fourth time, and Facebook staff will make the change for you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Change Your Birthday on the Facebook App
 
 Follow the steps below to edit your birthday on the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![Edit basic info on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Edit-basic-info-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
 
@@ -61,9 +64,6 @@ Close
 5. Make your desired corrections.
 6. Check the confirmation box, scroll down, and tap**Save** .
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Change Your Facebook Birthday on the Web
 
 Here's how:
@@ -74,10 +74,11 @@ Here's how:
 
 * Click on**About** in the menu below your name and profile photo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook-profile-page-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page-1.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select**Basic and Contact Info** in the menu on the left.
 
@@ -89,14 +90,12 @@ Here's how:
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Request a Birthday Change to Facebook
 
  If you've changed your birthdate more than three times, you can still do so. But this time, you'll have to send a request to Facebook to change it for you. Here's how to do that:
@@ -110,25 +109,23 @@ Here's how:
 
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook will then correct the error in your birthdate as soon as your request is processed.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Get Your Birthday Wishes on the Right Day
 
  Follow the steps we've outlined above to edit your birthday on Facebook. That way, you no longer have to worry about getting birthday wishes on a day that isn't your birthday.
 
  One other importance of having accurate information, like birthdays, on your Facebook account is that they sometimes require government-issued IDs that show your actual birthday when retrieving an account. So if the birthdate on your ID and on the social media platform doesn't match up, you might lose your account permanently.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +134,17 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-best-9-smartphone-video-call-solutions-iphone-vs-android-reviewed-for-2024/"><u>[Updated] Best 9 Smartphone Video Call Solutions IPhone vs Android Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-youtube-traction-techniques-for-million-sub-attainment/"><u>[Updated] Youtube Traction Techniques for Million-Sub Attainment</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-interactive-features-are-they-valuable/"><u>Exploring Facebook's Interactive Features: Are They Valuable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-board-will-soon-announce-ruling-on-trumps-ban/"><u>Facebook's Oversight Board Will Soon Announce Ruling on Trump's Ban</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-y100-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Vivo Y100 5G Phone Without Password?</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-revealing-translation-methods-netflix-subtitle-software-comprehensive-guide-for-2024/"><u>New Revealing Translation Methods Netflix Subtitle Software Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-nft-trends-with-meta-drops-short-term-support-test/"><u>Pioneering NFT Trends with Meta Drop's Short-Term Support Test</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/tackling-frame-loss-best-practices-for-obs-users-for-2024/"><u>Tackling Frame Loss Best Practices for OBS Users for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-edit-mov-files-for-free-top-10-video-editing-software/"><u>Updated 2024 Approved Edit MOV Files for Free Top 10 Video Editing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/young-users-in-the-spotlight-balancing-digital-consumption-with-real-life-experiences-as-suggested-by-facebook/"><u>Young Users in the Spotlight: Balancing Digital Consumption with Real-Life Experiences, as Suggested by Facebook</u></a></li>
+</ul></div>
 

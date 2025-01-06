@@ -1,7 +1,7 @@
 ---
 title: "Social Sphere Stewardship: Implementing the New Features for Group Management on FB"
-date: 2024-12-16T19:36:30.928Z
-updated: 2024-12-21T16:15:13.980Z
+date: 2024-12-31T03:37:07.046Z
+updated: 2025-01-05T23:52:15.579Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/a7dd9142f70f2e1fb0515e1b92c73345b73af0eeb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Do Facebook's New Moderation Tools Do?
 
 In a nutshell, these new moderation tools allow group admins to:
@@ -37,13 +41,13 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ## How to Use Facebook's New Moderation Tools
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Content Moderation
 
 ![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  This tool allows you to police posts, comments, and promotions. If you'd like to moderate spam comments, for example, here's how:
 
@@ -51,19 +55,11 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ![Decline incoming posts in Facebook Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Decline-incoming-posts-in-Facebook-Groups.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  2\. Click on the**Spam posts** option and either choose the default criteria or click**Edit** to change how you'd like to mark spam. Finally, click**Apply Criteria** .
 
 ![Select your criteria to mark comments or posts as spam](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Mark-spam-in-FB-groups.png)
 
  You can follow the same steps to moderate how published posts will be removed and whether people can comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conflict Alerts
 
@@ -80,7 +76,7 @@ In a nutshell, these new moderation tools allow group admins to:
 ![Member-Summary-in-Facebook-Groups-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Member-Summary-in-Facebook-Groups-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Appeals
@@ -94,6 +90,10 @@ In a nutshell, these new moderation tools allow group admins to:
  To use Tag Group Rules, tap the**three dots** next to an offending comment, then click**Remove comment** . A window will pop up asking you for additional information, and you can tag a group rule by clicking in the**checkbox** next to it.
 
 ![Remove Comment screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/RemoveComment.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Before this feature works, however, you will need to create a set of rules for your group. You can navigate to**Group Rules** in the left sidebar to do so.
 
@@ -110,7 +110,7 @@ In a nutshell, these new moderation tools allow group admins to:
  Related:[Do Hashtags Work on Facebook? What You Need to Know](https://www.makeuseof.com/do-hashtags-work-on-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Gain More Control Over Your Facebook Groups
@@ -134,21 +134,20 @@ In a nutshell, these new moderation tools allow group admins to:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-reel-in-the-solution-to-instagram-video-glitches/"><u>[New] In 2024, Reel in the Solution to Instagram Video Glitches</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-rapid-accessibility-of-instagram-videos-and-stories/"><u>[New] Rapid Accessibility of Instagram Videos and Stories</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-top-8-screen-recording-apps-in-windows-11-revealed/"><u>2024 Approved Top 8 Screen Recording Apps in Windows 11 Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-protection-in-mail-applications-implementing-robust-2fa-systems/"><u>Boosting Protection in Mail Applications - Implementing Robust 2FA Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/containing-cyber-cheats-metas-commitment-to-confidentiality/"><u>Containing Cyber Cheats: Meta's Commitment to Confidentiality</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/embrace-private-messaging-unveil-new-possibilities-with-ai-on-duckduckgo-platform/"><u>Embrace Private Messaging: Unveil New Possibilities With AI on DuckDuckGo Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-guide-swiftly-clearing-facebook-data-trails/"><u>Expert Guide: Swiftly Clearing Facebook Data Trails</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-honor-x8b-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Honor X8b to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/new-in-2024-record-your-desktop-like-a-pro-a-filmora-scrn-guide/"><u>New In 2024, Record Your Desktop Like a Pro A Filmora Scrn Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/proven-winner-keyboards-for-the-new-year-in-depth-analysis-and-ratings-pcmag/"><u>Proven Winner Keyboards for the New Year: In-Depth Analysis and Ratings | PCMag</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-profile-becoming-a-safe-indicator-on-fb/"><u>Securing Profile: Becoming a Safe Indicator on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-sheryls-role-at-the-worlds-largest-social-network/"><u>Unveiling Sheryl's Role at the World's Largest Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-sues-over-alleged-breach-in-new-it-laws/"><u>WhatsApp Sues Over Alleged Breach in New IT Laws</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-friends-may-be-leaving-social-media-today/"><u>Why Friends May Be Leaving Social Media Today</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/wie-man-wma-dateien-mit-windows-and-macos-schnell-zu-mp3-konvertiert-funf-tipps-zum-effizienten-umwandeln/"><u>Wie Man WMA Dateien Mit Windows & macOS Schnell Zu MP3 Konvertiert – Fünf Tipps Zum Effizienten Umwandeln</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-conquering-the-crowd-through-effective-smm/"><u>[New] 2024 Approved Conquering the Crowd Through Effective SMM</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-innovative-techniques-for-final-frame-enhancements-on-vimeo/"><u>[New] Innovative Techniques for Final Frame Enhancements on Vimeo</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-ig-upgrade-starts-here-top-tools-for-follower-growth/"><u>[Updated] 2024 Approved IG Upgrade Starts Here Top Tools for Follower Growth</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-diy-youtube-intros-and-ends-without-breaking-the-bank/"><u>[Updated] DIY YouTube Intros & Ends Without Breaking the Bank</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-action-like-never-before-review-the-t5-eye-action-camera/"><u>2024 Approved Action Like Never Before Review the T5 Eye Action Camera</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-changing-the-soundtrack-of-conversation-whatsapp-ringtones-for-ios-android/"><u>2024 Approved Changing the Soundtrack of Conversation WhatsApp Ringtones for iOS, Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-essential-apps-that-make-social-timing-easier/"><u>9 Essential Apps That Make Social Timing Easier</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hush-on-upcoming-oculus-quest-3/"><u>Facebook's Hush on Upcoming Oculus Quest 3</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-realme-gt-5-pro-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Realme GT 5 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-managing-linked-apps-and-sites-to-fb/"><u>Guidelines for Managing Linked Apps & Sites to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook/"><u>How to Disconnect Your Instagram Account From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-season-for-altering-fb-identity-snapshot/"><u>Ideal Season for Altering FB Identity Snapshot</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Will iSpoofer update On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-fb-sightings-avoid-strangers-glimpses/"><u>Safeguarding FB Sightings: Avoid Stranger's Glimpses</u></a></li>
+<li><a href="https://facebook.techidaily.com/sanctioned-resistance-fb-groups-defy-immunization-bans/"><u>Sanctioned Resistance: FB Groups Defy Immunization Bans</u></a></li>
 </ul></div>
 

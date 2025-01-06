@@ -1,7 +1,7 @@
 ---
 title: "Meta's Strategic Delay: Defaulting to E2E Encryption"
-date: 2024-08-08T11:29:45.643Z
-updated: 2024-08-09T11:29:45.643Z
+date: 2024-12-29T19:05:25.474Z
+updated: 2025-01-05T20:41:05.432Z
 tags:
   - facebook
 categories:
@@ -20,14 +20,16 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
  Let us explore the winding road that has brought Meta to this decision.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Does Meta Want End-to-End Encryption?
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
 
@@ -38,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Has Meta Delayed End-to-End Encryption?
 
  The plan has been delayed due to what[Meta says](https://www.telegraph.co.uk/business/2021/11/20/people-shouldnt-have-choose-privacy-safety-says-facebook-safety/) is a desire to engage with all concerned parties to ensure end-to-end encryption is not abused by bad actors. However, when you read between the lines, it appears Meta has buckled to pressure from law enforcement and regulators, who have been adamantly opposed to Meta's E2EE plans.
@@ -51,8 +54,9 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can a Balance Be Found?
 
  The biggest concerns with encryption are child safety and national security. The UK's National Society for the Prevention of Cruelty to Children (NSPCC) has said encrypting messages could lead to the easier spread of child porn, child abuse, and online grooming of minors.
@@ -61,14 +65,11 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
 
  So, what happens next? That's what Meta needs more time to figure out.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +78,22 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-auditory-data-extraction-and-analysis/"><u>[New] Auditory Data Extraction & Analysis</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-rapid-rise-mastering-engagement-with-likes-and-vids-for-2024/"><u>[New] Insta Rapid Rise Mastering Engagement with Likes & Vids for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximizing-reach-sharing-igtv-to-fb-4-methods/"><u>[Updated] Maximizing Reach Sharing IGTV to FB (4 Methods)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-prime-pc-idle-gaming-selections-for-2024/"><u>[Updated] Prime PC Idle Gaming Selections for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/effortless-transfer-of-melodies-how-to-migrate-songs-from-your-iphone-to-a-windows-or-mac-computer-via-itunes/"><u>Effortless Transfer of Melodies: How to Migrate Songs From Your iPhone to a Windows or Mac Computer via iTunes</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/exploring-the-dynamics-of-canon-timelapse-imagery-for-2024/"><u>Exploring the Dynamics of Canon Timelapse Imagery for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-samsung-galaxy-z-flip-5-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Samsung Galaxy Z Flip 5 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-intervention-halts-facebooks-intrusion-on-whatsapp-user-privacy/"><u>German Intervention Halts Facebook's Intrusion on WhatsApp User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-metas-intentions-postponing-end-to-end-encryption-until-23/"><u>Insight Into Meta’s Intentions: Postponing End-to-End Encryption Until '23</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/merging-images-into-a-single-pdf-a-step-by-step-guide/"><u>Merging Images Into a Single PDF: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-go-rooting-by-facebook-empowerment-or-concern/"><u>Oculus Go Rooting by Facebook - Empowerment or Concern?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-entry-into-metas-centralized-user-command-center/"><u>Tactical Entry Into Meta’s Centralized User Command Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-12-promoters-of-covid-19-untruths/"><u>Top 12 Promoters of Covid-19 Untruths</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-ideal-images-for-facebook-profiles/"><u>Unveiling Ideal Images for Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/wearable-tech-update-facebooks-watch-might-double-up-on-cams/"><u>Wearable Tech Update: Facebook's Watch Might Double Up on Cams</u></a></li>
+</ul></div>
 

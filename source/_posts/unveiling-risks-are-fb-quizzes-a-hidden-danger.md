@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Risks: Are FB Quizzes a Hidden Danger?"
-date: 2024-12-19T17:08:12.480Z
-updated: 2024-12-21T19:21:18.091Z
+date: 2024-12-30T21:26:01.782Z
+updated: 2025-01-06T03:48:36.998Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are Facebook Quizzes?
 
  We’ve all been there: you’re scrolling through Facebook and run into a quiz promising to match you with a fictional character. It might ask you to fill out a long list of favorites to share with friends or advertise “accurate results” for your Hogwarts house, for instance.
@@ -38,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
  Take a look at the types of questions Facebook quizzes and challenges ask. They want things like the names of your pets, children, and parent, which are frequently used as security question answers. So are names of schools, streets you lived on, or even info about vehicles you’ve owned.
@@ -46,13 +46,13 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What to Do if You’ve Taken Facebook Quizzes
 
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Analyze the Quiz
 
@@ -62,13 +62,13 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Change Your Security Question Answers
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Staying Safe on Facebook
@@ -119,19 +119,14 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-echoes-unleashed-mac-studio-techniques-for-2024/"><u>[New] Echoes Unleashed Mac Studio Techniques for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-from-photos-jpg-png-on-ios-to-pdf-the-easy-steps-for-2024/"><u>[New] From Photos (JPG, PNG) on iOS to PDF The Easy Steps for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-5-best-live-streaming-webcamscameras-for-twitch/"><u>[New] In 2024, 5 Best Live Streaming Webcams/Cameras for Twitch</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-the-essentials-in-metas-privacy-adjustments/"><u>Breaking Down the Essentials in Meta's Privacy Adjustments</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficiently-pinpoint-friends-3-tagging-tactics-on-facebook/"><u>Efficiently Pinpoint Friends: 3 Tagging Tactics on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unveiling-strategies-for-building-impressive-youtube-teaser-vids/"><u>In 2024, Unveiling Strategies for Building Impressive YouTube Teaser Vids</u></a></li>
-<li><a href="https://common-error.techidaily.com/master-the-technique-reinitializing-laptop-or-desktop-keyboards-with-ease/"><u>Master the Technique: Reinitializing Laptop or Desktop Keyboards with Ease</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/masterclass-in-making-engaging-video-lessons-your-step-by-step-guide-for-youtube-for-2024/"><u>Masterclass in Making Engaging Video Lessons Your Step-by-Step Guide for YouTube for 2024</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/mastering-the-apowermirror-application-a-step-by-step-guide-for-iphone-and-ipad-users/"><u>Mastering the ApowerMirror Application: A Step-by-Step Guide for iPhone and iPad Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-fb-backgrounds/"><u>Mastering The Art of Captivating FB Backgrounds</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/olympic-thrills-amidst-snowy-bliss-in-beijing-2022-for-2024/"><u>Olympic Thrills Amidst Snowy Bliss in Beijing 2022 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-through-the-hate-for-universal-network-engagement-platforms/"><u>Sifting Through the Hate for Universal Network Engagement Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/weekends-boosted-by-facebooks-live-shopping-fridays/"><u>Weekends Boosted by Facebook’s Live Shopping Fridays</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-from-ordinary-to-stunning-photo-tile-magic/"><u>[New] From Ordinary to Stunning Photo Tile Magic</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-infuse-your-reels-with-dynamic-music-choices/"><u>[Updated] How to Infuse Your Reels with Dynamic Music Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-might-reshape-social-networking-for-europeans/"><u>How Meta Might Reshape Social Networking for Europeans</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-ai-enabled-bing-search-registration-guide/"><u>Mastering AI-Enabled Bing Search: Registration Guide</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/photographic-files-unresponsive-post-restore/"><u>Photographic Files Unresponsive Post-Restore</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-leader-pledges-aid-for-covid-19-relief/"><u>Social Networking Leader Pledges Aid for COVID-19 Relief</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-price-of-proximity-evaluating-online-platform-pitfalls/"><u>The Price of Proximity: Evaluating Online Platform Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/trends-in-account-compromises-on-websites/"><u>Trends in Account Compromises on Websites</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Infinix Note 30 VIP Racing Edition</u></a></li>
 </ul></div>
 

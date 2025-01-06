@@ -1,7 +1,7 @@
 ---
 title: Mastering the Art of Anonymity on Social Networking (FB)
-date: 2024-08-08T11:29:34.525Z
-updated: 2024-08-09T11:29:34.525Z
+date: 2025-01-01T04:09:21.172Z
+updated: 2025-01-06T03:01:13.386Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
  Many people prefer limiting their Facebook accounts to protect their privacy. It would help if you took some extra steps to protect your private information on Facebook. Here are seven simple and effective ways to do so.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Avoid Befriending Strangers
 
  Let's start with the basics. It is an[unsaid rule not to add strangers on Facebook](https://www.makeuseof.com/reasons-shouldnt-add-strangers-facebook/) because we never know their intentions or real identity. The best practice is to only add people you know personally and in real life.
@@ -36,9 +37,6 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 
  Facebook allows its users to add a status update with the location. If you wish to keep your whereabouts private, avoid uploading that for the general public.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Customize Your Post Privacy
 
  Every post you share has the option to edit the privacy and make it visible to a particular audience. For instance, users can upload a profile picture and change its privacy settings to**Friends** or**Only me** .
@@ -52,17 +50,12 @@ To change the privacy of your Facebook post:
 3. Choose the desired audience. You can choose**Friends** ,**Friends except** ,**Specific Friends** , or**Only Me** from the available options.
 4. Tap**Done** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Post a Facebook Status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Post-a-Facebook-Status.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-post-audience.JPG)
 
 Close
@@ -78,13 +71,14 @@ Close
 
 ![Facebook Story privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Story-privacy.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  Facebook Stories expire after 24 hours, but since anyone can view them, it is better to change your settings to keep the Stories within your friend circle.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Lock Your Facebook Profile
 
  Locking your Facebook profile is a feature that limits Facebook users from viewing your profile. People who are not your friends won't be able to click your display picture or open your Facebook cover photo. Similarly, the personal details and contents you share are also not visible.
@@ -95,9 +89,6 @@ To lock your Facebook profile:
 2. Tap the three horizontal dots next to**Edit profile** .
 3. From the menu, select**Lock profile** and tap the**Lock your profile** button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![Facebook-Menu-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Menu-on-mobile.JPG)
 
 ![Facebook-user-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-user-profile.JPG)
@@ -108,9 +99,6 @@ To lock your Facebook profile:
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Frequently Check Which Devices You Are Logged In On
 
  To ensure your account security, it is essential to keep tabs on your login sessions. To do that:
@@ -122,8 +110,9 @@ Close
 ![Facebook Settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Settings-and-privacy.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Security and login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Security-and-login.JPG)
 
 ![Check where you are logged in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Check-where-you-are-logged-in.JPG)
@@ -151,22 +140,25 @@ Close
 ![Facebook app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-app-settings.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Turn off Allow Tracking option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Turn-off-Allow-Tracking-option.JPG)
 
 ![Choose Selected Photos option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Selected-Photos-option.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Choose Ask Next Time Or When I Share option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Choose-Ask-Next-Time-Or-When-I-Share-option.JPG)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Perform Privacy Checkups
 
  For those who feel unsatisfied even after taking all necessary protocols, Facebook offers its users the option to perform a complete privacy checkup of their account. You can review the changes and settings to ensure your account is safe and secure.
@@ -186,11 +178,16 @@ To conduct the Facebook privacy checkup:
 ![Take a privacy checkup on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Take-a-privacy-checkup-on-Facebook.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Privacy-checkup.JPG)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Keep Your Facebook Account Private and Safe
 
@@ -200,14 +197,11 @@ Close
 
  Lastly, users must keep tabs on logged-in devices and perform regular privacy checks to ensure a safe experience.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,4 +210,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-depth-dive-perfecting-the-art-of-green-screen-with-kinemaster/"><u>[New] In-Depth Dive Perfecting the Art of Green Screen with Kinemaster</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comparing-giants-top-10-distinctions-between-chatgpt-and-microsoft-bings-conversational-engine/"><u>Comparing Giants: Top 10 Distinctions Between ChatGPT and Microsoft Bing's Conversational Engine</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/complete-instructions-to-activate-or-deactivate-the-virtual-keyboard-in-windows-11/"><u>Complete Instructions to Activate or Deactivate the Virtual Keyboard in Windows 11</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/essential-insights-into-valheim-planting-methods/"><u>Essential Insights Into Valheim Planting Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-illusion-tips-to-discern-real-from-phony-fb/"><u>Exposing the Illusion: Tips to Discern Real From Phony FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-social-networking-changed-the-privacy-of-our-contacts/"><u>Has Social Networking Changed the Privacy of Our Contacts?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-a-black-screen-on-discord-during-screen-share-sessions/"><u>How to Fix a Black Screen on Discord During Screen Share Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-metaverse-a-new-threat-here-are-three-reasons-to-be-careful/"><u>Is the Metaverse a New Threat? Here Are Three Reasons to Be Careful</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-enabling-two-factor-security/"><u>Mastering FB: Enabling Two-Factor Security</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-youtube-brand-visuals-the-ultimate-creation-guide-for-2024/"><u>Mastering YouTube Brand Visuals The Ultimate Creation Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unlocks-trumps-online-accounts/"><u>Meta Unlocks Trump's Online Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/severing-social-ties-removing-instagram-links-to-facebook/"><u>Severing Social Ties: Removing Instagram Links to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-content-tiktok-eats-into-facebooks-pieces/"><u>The New Era of Content: TikTok Eats Into Facebook’s Pieces</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-mac-video-editing-software-by-apple/"><u>Top-Rated Mac Video Editing Software by Apple</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transforming-windows-11-7-holiday-upgrades/"><u>Transforming Windows 11: 7 Holiday Upgrades</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-prior-public-commentaries-on-fb/"><u>Unearthing Prior Public Commentaries on FB</u></a></li>
+</ul></div>
 

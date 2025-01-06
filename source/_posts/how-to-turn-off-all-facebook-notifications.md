@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2024-12-24T16:28:51.172Z
-updated: 2024-12-27T20:08:09.019Z
+date: 2025-01-05T08:11:13.212Z
+updated: 2025-01-06T06:29:16.963Z
 tags:
   - facebook
 categories:
@@ -24,9 +24,17 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete Facebook Notifications
 
 ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -57,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
@@ -84,7 +88,7 @@ Follow the steps below to learn about the process on the web app:
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
@@ -112,19 +116,19 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -145,10 +149,6 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -173,19 +173,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-photo-perfection-seamless-text-integration-on-pc-and-mac-systems/"><u>[Updated] 2024 Approved Photo Perfection Seamless Text Integration on PC & Mac Systems</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-can-you-stream-a-pre-recorded-video-live-on-facebook/"><u>[Updated] In 2024, How Can You Stream A Pre-Recorded Video Live on Facebook?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-screen-capture-clarified-a-fraps-breakdown-for-2024/"><u>[Updated] Screen Capture Clarified A Fraps Breakdown for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/embark-on-an-odyssey-constructing-photo-collage-masterpieces-for-2024/"><u>Embark on an Odyssey Constructing Photo Collage Masterpieces for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-missing-alerts-on-desktops/"><u>How To Fix Missing Alerts on Desktops</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagramfacebook-experiment-integrating-meta-drops-innovations/"><u>Instagram/Facebook Experiment: Integrating Meta Drops' Innovations</u></a></li>
-<li><a href="https://fox-links.techidaily.com/narratives-in-motion-transforming-thoughts-into-words/"><u>Narratives in Motion Transforming Thoughts Into Words</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-to-fb-no-problem-resetting-passwords-made-simple/"><u>New to FB? No Problem - Resetting Passwords Made Simple</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-social-media-practice-pros-and-cons-of-fb-event-management/"><u>Optimal Social Media Practice: Pros & Cons of FB Event Management</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210527994-9781591434641-quantum-spirituality/"><u>Quantum Spirituality | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/selective-engagement-balancing-fb-relationships/"><u>Selective Engagement: Balancing Fb Relationships</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-future-unfurled-an-insight-into-benq-sw320s-4k-display/"><u>The Future Unfurled An Insight Into BenQ SW320's 4K Display</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-converting-dvds-and-online-videos-into-high-quality-mp4-for-iphones/"><u>Ultimate Guide to Converting DVDs and Online Videos Into High-Quality MP4 for iPhones</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-is-stealthier-meta-or-fb-for-quest-2-users/"><u>Which Is Stealthier? Meta or FB for Quest 2 Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-jump-cut-strategies-for-compelling-vlogs/"><u>[New] 2024 Approved Jump Cut Strategies for Compelling Vlogs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-igtv-star-making-picks-for-your-watchlist/"><u>[New] IGTV Star-Making Picks for Your Watchlist</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-revamp-your-tiktok-strategy-with-these-10-analytic-aids/"><u>[New] In 2024, Revamp Your TikTok Strategy with These 10 Analytic Aids</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-10-gif-apps-for-iphone-x876/"><u>[New] In 2024, Top 10 GIF Apps for iPhone X/8/7/6</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-approach-to-uncovering-favorite-youtube-remarks/"><u>2024 Approved Step-by-Step Approach to Uncovering Favorite YouTube Remarks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-strategy-in-jeopardy-with-the-ios-145-shift/"><u>Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-chat-rooms-to-tiktoks-the-evolutionary-journey/"><u>From Chat Rooms to TikToks: The Evolutionary Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-gathering-places-seniors-social-media-picks/"><u>Greatest Gathering Places: Seniors' Social Media Picks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-decoding-the-dynamics-of-whatsapp-audio-communication/"><u>In 2024, Decoding the Dynamics of WhatsApp Audio Communication</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-chromium-connection-pixel-phone-rhythms/"><u>In 2024, The Chromium Connection Pixel Phone Rhythms</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-initiate-a-facebook-based-forum/"><u>Steps to Initiate a Facebook-Based Forum</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oney-making-techniques-for-short-videos/"><u>Top Money-Making Techniques for Short Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-celebrate-connectivity-9-blessings-of-being-social/"><u>Why You Should Celebrate Connectivity: 9 Blessings of Being Social</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/your-life-your-legacy-youtube-videos-that-matter-for-2024/"><u>Your Life, Your Legacy YouTube Videos That Matter for 2024</u></a></li>
 </ul></div>
 

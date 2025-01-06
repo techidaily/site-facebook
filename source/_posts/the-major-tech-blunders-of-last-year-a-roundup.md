@@ -1,7 +1,7 @@
 ---
 title: "The Major Tech Blunders of Last Year: A Roundup"
-date: 2024-08-08T11:28:05.376Z
-updated: 2024-08-09T11:28:05.376Z
+date: 2024-12-31T01:48:01.172Z
+updated: 2025-01-06T02:23:57.441Z
 tags:
   - facebook
 categories:
@@ -17,12 +17,13 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
 
  The tech industry changes every year, with new inventions and ideas coming to the fore in an attempt to change our lives forever. While many of these products and services make the grade, others don't. These are the biggest tech fails of 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Google Stadia
 
 ![A screenshot of the Google Stadia platform](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-stadia.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It was the most highly anticipated launch of 2019;[Google Stadia](https://stadia.google.com/) was set to revolutionize gaming by giving players access to games anytime, anywhere, with no downloads or installs necessary. But it quickly became apparent that the results did not match the hype. By December 2022, Google Stadia had become one of the biggest tech flops of recent times, and certainly 2022.
 
@@ -34,10 +35,11 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
 
 ## 2\. Elon Musk's Twitter Takeover
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Heisenberg Media/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Elon%5FMusk%5F-%5FThe%5FSummit%5F2013.jpg)
 
@@ -50,14 +52,16 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
  This Twitter takeover has proven to be an unmitigated disaster and a cautionary tale for anyone considering a similar venture. Musk's ambitious plan will likely be remembered as one of the biggest tech failures of 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when[Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
@@ -77,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
 
 ## 4\. Meta
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on[Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
@@ -90,12 +91,13 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Amazon Alexa
 
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Despite being one of the[most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a[Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
@@ -111,14 +113,11 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
 
  But these failures can be repaired and prevented by developers and consultants. We must aim for perfection, clearly define performance objectives in routine situations and emergencies, and confirm that the technology meets them. If our systems are excessively complex, we must prioritize automation, support training, and regular testing until they become second nature and function when needed.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,22 @@ thumbnail: https://thmb.techidaily.com/708d4edc039ed7c214c16e7feab40bf91a645580b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-chuckle-chamber-fast-track-to-funny-memes/"><u>[New] Chuckle Chamber Fast Track to Funny Memes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-novice-to-pro-learning-snapseed-essentials/"><u>[New] From Novice to Pro Learning Snapseed Essentials</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-mastering-mobile-screen-recording-in-snapchat-for-2024/"><u>[Updated] Mastering Mobile Screen Recording in Snapchat for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-connection-the-perks-of-social-groupings-online/"><u>Enhancing Connection: The Perks of Social Groupings Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-social-media-giants-influence-local-retail-spaces/"><u>How Will Social Media Giants Influence Local Retail Spaces?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-realme-c53mirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Realme C53Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-how-to-disable-live-recording-in-quicktime-player/"><u>In 2024, How to Disable Live Recording in QuickTime Player</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/leading-ipad-models-of-2024-evaluated-and-ranked-in-depth-analysis-zdnet/"><u>Leading iPad Models of 2024 Evaluated & Ranked - In-Depth Analysis | ZDNet</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/maximizing-visual-storytelling-with-b-roll-integration-for-2024/"><u>Maximizing Visual Storytelling with B Roll Integration for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-pioneers-next-level-personalized-simulations/"><u>Oculus Pioneers Next Level Personalized Simulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescheduling-of-whatsapps-may-15-policy-deadline/"><u>Rescheduling of WhatsApp's May 15 Policy Deadline</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-whos-on-my-facebook-block/"><u>Step-by-Step: Who's on My Facebook Block?</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-of-your-online-sessions-via-facebook-alerts/"><u>Taking Control of Your Online Sessions via Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-savvy-how-to-reset-facebook-conversations/"><u>The Social Media Savvy: How to Reset Facebook Conversations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/winix-video-registrazione-dello-schermo-e-webcam-audio-con-windows/"><u>Winix Video: Registrazione Dello Schermo E Webcam Audio Con Windows</u></a></li>
+</ul></div>
 

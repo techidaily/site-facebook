@@ -1,7 +1,7 @@
 ---
 title: "Social Media Reality Check: Debunking Top 10 Facebook Fables"
-date: 2024-12-20T18:16:34.763Z
-updated: 2024-12-27T17:30:37.953Z
+date: 2025-01-04T00:41:08.777Z
+updated: 2025-01-06T08:48:40.479Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ Let's bust some common Facebook myths that are floating around.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. People Can See Who Viewed Their Profile
 
 ![A phone with Facebook logo laying next to scrabble letters spelling out social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/social-media-for-socialization.jpg)
@@ -38,6 +42,10 @@ Pixabay free image
 
 > "No, Facebook doesn't tell people that you've seen their profile. Third-party apps also can't provide this functionality. Facebook also wants your help in dealing with apps that are scamming people by claiming they have this ability. So if you come across anything that claims to offer this, please report the app."
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Facebook Messages From My Friends Are Safe to Click
 
 ![woman in a christmas sweater holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-christmas-sweater.jpg)
@@ -45,18 +53,18 @@ Pixabay free image
  Your friends would never want to harm you, and you're right about that. Unfortunately, online miscreants try to take advantage of this trust. Sometimes, you'll get a weird message from your friend asking you to click a link. Don't do it![Facebook scams are becoming all too common](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , so you need to exercise the same precautions here as you would elsewhere on the internet. If you have received a message from a friend with a link, before you click it, ask them whether they intended to send that to you. If it's a public post, go through the comments and see if anyone has warned that this is a hoax or a virus.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Facebook Is Going to Charge You Money
 
 ![Cybersecurity measures of sites with payment methods](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Cybersecurity-measures-of-sites-with-payment-methods.jpg)
 
- Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
 
 ## 4\. Facebook Owns My Photos and Sells Them for Ads
 
@@ -70,16 +78,12 @@ Pixabay free image
 
  Also, it means that if you've liked a certain page, your friends might see a photo of your face showing as a supporter of the page when the page is advertising on Facebook. So be careful what you "like".
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. You Can Post Other People's Content on Facebook
 
 ![Woman's hand handling a phone with a cup of coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/My-project-(4)-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When it comes to content ownership on Facebook, there are some things you need to know. Facebook is a place where you can post and share content, however, you need to make sure that the content you post is yours. If you post other people's content without their permission, you could be infringing copyright.
@@ -96,17 +100,9 @@ Pixabay free image
 
  You'll also need to manually disconnect any app you have connected to Facebook, uninstall the Facebook app from your phone and tablet, as well as clear out your browser history.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. If I Don't Use Facebook, It Doesn't Know Anything About Me
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Facebook is a social network, and if you know a lot of people who use it, chances are that the social network has information about you. It's called a "[shadow profile](https://www.makeuseof.com/tag/facebook-shadow-profiles/) ". When your friends use Facebook, they give it access to their contact book and personal information. Now let's say one of your friends has you and your phone number in their contact book. Facebook stores this. Now let's say another friend has you, your phone number, and your email address in their contact book. Facebook will also store that and match it to the existing information.
 
@@ -119,7 +115,7 @@ Pixabay free image
 ![Facebook-myths-dislike-button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/10/Facebook-myths-dislike-button.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  For a long time now, people have been hoping for a "Dislike" button much like the "Like" button. But while Facebook wants you to get more Likes, a "Dislike" button would go against the fabric of the positive experience Facebook wants to push, according to founder Mark Zuckerberg.
@@ -133,7 +129,7 @@ Pixabay free image
 ![A group of people engaged on their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-8088495.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Have you ever seen a message saying that if you are not using your account, it will be deleted? The message goes on to ask you to prove you're active by copy-pasting that message or downloading something, otherwise your account will be deleted. There is a high chance that what you received was spam.
@@ -147,6 +143,10 @@ Pixabay free image
 ## 10\. Facebook Requires ID Proof
 
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
 
@@ -176,17 +176,19 @@ Pixabay free image
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-experts-choice-top-8-proven-video-marketing-actions-for-2024/"><u>[Updated] Expert's Choice Top 8 Proven Video Marketing Actions for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/avchd-vs-mp4-showdown-determining-the-perfect-video-format-fit-for-your-needs/"><u>AVCHD Vs. MP4 Showdown: Determining the Perfect Video Format Fit for Your Needs</u></a></li>
-<li><a href="https://common-error.techidaily.com/breakthrough-alert-we-fixed-that-unable-to-show-this-site-problem/"><u>Breakthrough Alert: We Fixed That Unable to Show This Site Problem</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/consistent-portion-control-the-petsafe-automatic-pet-feeder-solution/"><u>Consistent Portion Control: The PetSafe Automatic Pet Feeder Solution</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-safety-protocols-for-platforms/"><u>Evaluating Safety Protocols for Platforms</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/from-80211b-to-be-navigating-through-the-latest-wireless-communication-protocols-for-seamless-connectivity/"><u>From 802.11B to Be: Navigating Through the Latest Wireless Communication Protocols for Seamless Connectivity</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-huawei-nova-y71-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Huawei Nova Y71 FRP Bypass</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-look-facebooks-backbone-organizational-model/"><u>Inside Look: Facebook's Backbone Organizational Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/say-no-to-facebook-keep-your-online-movements-private/"><u>Say No to Facebook: Keep Your Online Movements Private</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-duo-facebook-and-collaboration-8-key-insights/"><u>The Power Duo: Facebook & Collaboration - 8 Key Insights</u></a></li>
-<li><a href="https://win11.techidaily.com/unlocking-full-potential-narrator-keybindings-decoded/"><u>Unlocking Full Potential: Narrator Keybindings Decoded</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-rules-should-make-us-nervous/"><u>Why Meta Rules Should Make Us Nervous</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-a-celebs-brief-appearance-scrutiny/"><u>[New] 2024 Approved A Celeb’s Brief Appearance Scrutiny</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-evaluating-high-capacity-drives-how-many-vids-can-a-64128gb-hold/"><u>[New] 2024 Approved Evaluating High-Capacity Drives How Many Vids Can a 64/128GB Hold?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-ultimate-guide-to-live-video-comparing-obs-and-twitch-studio/"><u>[New] The Ultimate Guide to Live Video Comparing OBS & Twitch Studio</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-navigating-iphones-most-popular-watermarking-software-solutions/"><u>[Updated] Navigating iPhone's Most Popular Watermarking Software Solutions</u></a></li>
+<li><a href="https://fox-place.techidaily.com/404-not-found-how-to-fix-pages-that-cant-be-located-on-your-website/"><u>404 Not Found: How to Fix Pages That Can't Be Located on Your Website</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-mimics-style-through-image-based-text-recognition/"><u>AI Mimics Style Through Image-Based Text Recognition</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-comprehensive-guide-to-social-account-linking-for-xbox/"><u>Crafting a Comprehensive Guide to Social Account Linking for Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-legacy-memorializing-vs-removing-deceaseds-facebook-profile/"><u>Digital Legacy: Memorializing Vs. Removing Deceased's Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-most-impactful-press-stories-of-google/"><u>Dissecting the Most Impactful Press Stories of Google</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ensuring-safety-integrating-chatgpt-into-your-mental-health-coaching-techniques/"><u>Ensuring Safety: Integrating ChatGPT Into Your Mental Health Coaching Techniques</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-google-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Google Phone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/maximize-gaming-why-accessing-nintendos-eshop-on-pc-trumps-playstation-network/"><u>Maximize Gaming: Why Accessing Nintendo's eShop on PC Trumps PlayStation Network</u></a></li>
+<li><a href="https://some-tips.techidaily.com/tailoring-custom-features-in-wix-installation-projects-expert-techniques/"><u>Tailoring Custom Features in WiX Installation Projects: Expert Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-flip-the-friend-switch-on-facebook-insights-and-strategies/"><u>When to Flip the Friend Switch on Facebook: Insights and Strategies</u></a></li>
 </ul></div>
 

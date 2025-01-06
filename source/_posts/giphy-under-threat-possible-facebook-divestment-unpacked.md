@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2024-12-20T00:00:54.493Z
-updated: 2024-12-21T17:42:52.546Z
+date: 2024-12-31T02:34:38.785Z
+updated: 2025-01-06T01:29:51.477Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Giphy's Acquisition by Facebook
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -95,22 +95,18 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-screen-moments-a-compreenasive-recorder-roundup/"><u>[New] 2024 Approved Screen Moments A Compreenasive Recorder Roundup</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-whats-captivating-twitter-users-the-most-in-2024/"><u>[New] What's Captivating Twitter Users the Most, In 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-studio-monetization-check-ensure-your-channels-monetization/"><u>[New] YouTube Studio Monetization Check Ensure Your Channel's Monetization</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-must-have-tools-for-effective-social-media-scheduling/"><u>5 Must-Have Tools for Effective Social Media Scheduling</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-unique-vision-staying-away-from-metaverse-frenzy/"><u>Apple's Unique Vision: Staying Away From Metaverse Frenzy</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-falsehoods-a-request-to-tech-giants-like-facebook-and-google/"><u>Banishing Falsehoods: A Request to Tech Giants Like Facebook and Google</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-facebooks-reel-challenge-succeed-against-tiktoks-appeal/"><u>Can Facebook’s Reel Challenge Succeed Against TikTok's Appeal?</u></a></li>
-<li><a href="https://facebook.techidaily.com/capture-every-interaction-download-tactics-for-facebook-history/"><u>Capture Every Interaction: Download Tactics for Facebook History</u></a></li>
-<li><a href="https://facebook.techidaily.com/chirp-cheer-and-celebrate-mastering-messengers-auditory-emojis/"><u>Chirp, Cheer, and Celebrate: Mastering Messenger’s Auditory Emojis</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-rights-to-your-social-media-photos/"><u>Clarifying Rights to Your Social Media Photos</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-connections-the-covert-evolution-of-facebooks-wrist-tech/"><u>Crafting Connections: The Covert Evolution of Facebook’s Wrist Tech</u></a></li>
-<li><a href="https://games-able.techidaily.com/enhancing-your-wallets-gaming-capacity-on-steam/"><u>Enhancing Your Wallet's Gaming Capacity on Steam</u></a></li>
-<li><a href="https://fox-place.techidaily.com/exploring-success-routes-with-our-comprehensive-project-paths-tab-guide/"><u>Exploring Success Routes with Our Comprehensive Project Paths Tab Guide</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-vivo-v27e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Vivo V27e | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On OnePlus 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/nas-systems-unveiled-a-comprehensive-comparison-between-nas-and-san-for-optimal-data-management/"><u>NAS Systems Unveiled: A Comprehensive Comparison Between NAS and SAN for Optimal Data Management</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-obs-tutorial-broadcasting-on-youtube-from-home/"><u>[New] 2024 Approved OBS Tutorial Broadcasting on Youtube From Home</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-apex-palette-adjuster/"><u>[New] Apex Palette Adjuster</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-insta-reels-with-tiktok-techniques-for-massive-shares/"><u>[Updated] In 2024, Mastering Insta Reels with TikTok Techniques for Massive Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-curators-guide-to-this-years-most-riveting-podcast-episodes/"><u>A Curator's Guide to This Year's Most Riveting Podcast Episodes</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/blue-screen-blues-clearing-up-error-0x0000001e-on-your-computer/"><u>Blue Screen Blues: Clearing Up Error 0X0000001E on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-commitment-to-privacy-when-will-we-see-encrypted-chats/"><u>FB's Commitment to Privacy: When Will We See Encrypted Chats?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-boosting-channel-traffic-with-youtube-backlink-tactics/"><u>In 2024, Boosting Channel Traffic with YouTube Backlink Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-network-driving-covid-19-fallacies/"><u>Influential Network Driving Covid-19 Fallacies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/maintaining-the-right-video-aspect-on-twitters-for-2024/"><u>Maintaining the Right Video Aspect on Twitters for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-business-page-removal-guide/"><u>Mastering Facebook Business Page Removal Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/powerslide-music-integration-a-comprehensive-guide/"><u>PowerSlide Music Integration A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelation-on-platform-whistleblower-spills-secrets/"><u>Revelation on Platform: Whistleblower Spills Secrets</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210406359-9781786786111-signposts-of-the-spiritual-journey/"><u>Signposts of the Spiritual Journey | Free Book</u></a></li>
 </ul></div>
 

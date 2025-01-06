@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2024-12-24T16:22:11.779Z
-updated: 2024-12-27T18:22:52.936Z
+date: 2025-01-05T00:12:05.528Z
+updated: 2025-01-06T01:08:52.751Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Cyberbullying
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
@@ -62,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -74,13 +70,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -107,7 +103,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Unhealthy Sleep Patterns
@@ -119,6 +115,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  This is especially the case when using your phone in bed at night. It's all too easy to tell yourself that you'll spend five minutes checking your Facebook notifications, only to realize an hour later that you've been mindlessly scrolling through some nonsense on Twitter you don't even care about.
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. General Addiction
 
@@ -153,18 +153,22 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-a-comprehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube/"><u>[New] In 2024, A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-secure-video-streaming-apps-1-to-8-2023-edition/"><u>2024 Approved Top Secure Video Streaming Apps #1 to #8, 2023 Edition</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-from-iphone-15-plus-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons From iPhone 15 Plus? Find the Best Solution Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-functionality-of-non-loading-fb-notifications/"><u>Enhancing Functionality of Non-Loading FB Notifications</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/expert-insights-mastering-your-game-recording-on-windows-10-for-2024/"><u>Expert Insights Mastering Your Game Recording on Windows 10 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-endgame-data-afterlife/"><u>Facebook's Endgame: Data Afterlife</u></a></li>
-<li><a href="https://facebook.techidaily.com/fostering-friendship-safe-social-media-etiquette/"><u>Fostering Friendship: Safe Social Media Etiquette</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-tecno-pova-6-pro-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Tecno Pova 6 Pro 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-lava-agni-2-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Lava Agni 2 5G Phone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/no-more-crashes-discover-how-to-play-pathfinder-wrath-of-the-righteamaximized-for-pc/"><u>No More Crashes! Discover How to Play Pathfinder: Wrath of the Righteamaximized for PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-evolved-fb-launches-next-gen-oversight-tools/"><u>Social Networking Evolved: FB Launches Next-Gen Oversight Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-secrets-the-meanings-behind-common-chat-emoji-uses-in-fb/"><u>Unlocking Secrets: The Meanings Behind Common Chat Emoji Uses in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-anticipate-with-facebooks-interface-revamp/"><u>What to Anticipate with Facebook’s Interface Revamp</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-crafting-viral-videos-on-youtube-a-strategic-plan/"><u>[Updated] Crafting Viral Videos on YouTube A Strategic Plan</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-enhance-your-livestreams-on-mac-with-these-elite-software/"><u>[Updated] Enhance Your Livestreams on Mac with These Elite Software</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mjolnirs-legacy-new-era-dawned/"><u>[Updated] In 2024, Mjolnir's Legacy New Era Dawned</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transforming-images-with-ar-a-guide-to-free-lut-downloads/"><u>[Updated] Transforming Images with AR A Guide to Free LUT Downloads</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-unmarked-image-accumulation-essentials/"><u>[Updated] Unmarked Image Accumulation Essentials</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-how-superior-the-latest-apple-watch-series-4-really-is/"><u>Discover How Superior, the Latest Apple Watch Series 4 Really Is</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-ethernet-finding-friendly-face-connections-on-fb/"><u>Explore the Ethernet: Finding Friendly Face Connections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-assistance-unveiling-its-capabilities/"><u>Facebook Assistance: Unveiling Its Capabilities</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-v29e-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo V29e Is Unlocked</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-sports-season-with-fb-and-twt/"><u>Interactive Sports Season with FB & Twt</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-11-typical-facebook-snags-and-their-fixes/"><u>Overcoming 11 Typical Facebook Snags and Their Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/rift-as-a-password-facebook-users-spending-big-on-rewriting-history/"><u>Rift as a Password: Facebook Users Spending Big on Rewriting History</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-generosity-fights-global-health-emergency/"><u>Social Network's Generosity Fights Global Health Emergency</u></a></li>
+<li><a href="https://fox-that.techidaily.com/stumped-by-iphones-wireless-charging-malfunctions-discover-these-seven-resolving-strategies/"><u>Stumped by iPhone's Wireless Charging Malfunctions? Discover These ^Seven Resolving Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-realm-how-facebook-is-shaping-our-future-online-world/"><u>The New Realm: How Facebook Is Shaping Our Future Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-to-riches-5-innovative-money-making-methods-on-social-networks/"><u>The Secret to Riches: 5 Innovative Money-Making Methods on Social Networks</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/yl-software-presents-the-ultimate-set-of-kim-kardashian-backgrounds-and-imagery-for-your-screen/"><u>YL Software Presents: The Ultimate Set of Kim Kardashian Backgrounds and Imagery for Your Screen</u></a></li>
 </ul></div>
 

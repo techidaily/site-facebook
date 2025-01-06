@@ -1,7 +1,7 @@
 ---
 title: Ensuring Teen Social Media Security on Facebook
-date: 2024-08-08T11:25:22.566Z
-updated: 2024-08-09T11:25:22.566Z
+date: 2025-01-03T03:06:51.398Z
+updated: 2025-01-06T01:49:27.390Z
 tags:
   - facebook
 categories:
@@ -19,12 +19,17 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
  You can show them how to perform a privacy check on Facebook by going through it with them, or by doing it for them. Let's take a look at what you should be checking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Privacy Check on Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
@@ -32,14 +37,12 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 Close
@@ -74,20 +77,19 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Check Ad Settings
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -103,14 +105,11 @@ Close
 
  By doing this, you will be able to make sure that when your teen posts something, it is only being seen by their close circle. You will also make sure that spammers have a limited chance of reaching them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +118,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-converting-your-fb-videos-to-shareable-mp3-music/"><u>[Updated] In 2024, Converting Your Fb Videos to Shareable MP3 Music</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-timekeeping-tutorial-setting-up-a-timer-in-obs-studio/"><u>In 2024, Timekeeping Tutorial Setting Up a Timer in OBS Studio</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-impact-on-covid-19-beliefs-unveiled/"><u>Influential Impact on Covid-19 Beliefs Unveiled</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/installing-snapchat-a-mac-owners-handbook-for-2024/"><u>Installing Snapchat A Mac Owner's Handbook for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavi-yayinada-onemli-mp3lere-donusturulenecek-13-uykudur-youtube-video-hareketleri/"><u>Movavi Yayınada Önemli MP3'lere Dönüştürülenecek 13 Uykudur YouTube Video Hareketleri</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/passfab-apple-iphone-13-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab Apple iPhone 13 Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/satire-scrutiny-in-social-networks-policies/"><u>Satire Scrutiny in Social Network's Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-discreetly-observing-fb-users/"><u>The Art of Discreetly Observing FB Users</u></a></li>
+<li><a href="https://program-issues.techidaily.com/top-6-solutions-to-stop-stuttering-and-crashing-in-baldurs-gate-game/"><u>Top 6 Solutions to Stop Stuttering and Crashing in Baldur's Gate Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-an-image-to-text-stylist-facebooks-ai/"><u>Unveiling an Image-to-Text Stylist: Facebook’s AI</u></a></li>
+</ul></div>
 

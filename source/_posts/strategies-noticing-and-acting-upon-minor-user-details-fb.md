@@ -1,7 +1,7 @@
 ---
 title: "Strategies: Noticing and Acting upon Minor User Details, FB"
-date: 2024-12-20T18:59:29.310Z
-updated: 2024-12-21T19:40:42.463Z
+date: 2024-12-31T22:39:13.380Z
+updated: 2025-01-05T16:19:57.908Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Report an Underage Account on Facebook
 
  If you see a child who's possibly under 13 years of age on Facebook, you can simply fill out a form and report it. The rest is up to Facebook. There are a few simple steps to take.
@@ -39,16 +43,8 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
 6. Tap**Send** to submit the report for review.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Facebook might need your help or verification proof to proceed with the report. For recovery, the underage account must submit details like official documents or evidence of identity. Failure to do so will result in the account being permanently disabled.
 
@@ -62,14 +58,14 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 6. From the following drop-down menu, choose the year your child was born.
 7. Select the attested documentation under the Notarized Statement tab.
@@ -87,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
@@ -104,11 +100,11 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### It Might Expose Your Child to Inappropriate Content
 
@@ -117,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
  Young children can be exposed to this content if they've lied about their age and are using Facebook despite the age limit.
 
 ###
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Say No to Underage Facebook Accounts
 
@@ -139,24 +139,19 @@ thumbnail: https://thmb.techidaily.com/f44a3055113623243d984e90c974cbd9f7a475110
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-capturing-your-workflow-optimal-screenshot-tools/"><u>[New] In 2024, Capturing Your Workflow Optimal Screenshot Tools</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-those-who-left-my-instagram-circle-for-2024/"><u>[Updated] Discovering Those Who Left My Instagram Circle for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-revamping-videos-the-art-of-editing-via-story-remix-and-windows-photos/"><u>[Updated] Revamping Videos The Art of Editing via Story Remix and Windows Photos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-guide-to-transforming-fast-action-into-slow-motion-ig-treasures-for-2024/"><u>[Updated] The Ultimate Guide to Transforming Fast Action Into Slow Motion IG Treasures for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-engineering-engaging-media-excerpts/"><u>2024 Approved Engineering Engaging Media Excerpts</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-the-art-of-game-recording-a-comprehensive-look/"><u>2024 Approved The Art of Game Recording A Comprehensive Look</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-realme-11x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Realme 11X 5G | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/decoding-wintoys-an-overview-of-a-commanding-windows-tool/"><u>Decoding 'WinToys' : An Overview of a Commanding Windows Tool</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/decoding-the-mystery-of-facebook-data-a-novices-handbook/"><u>Decoding the Mystery of Facebook Data A Novice’s Handbook</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-protocol-for-reactivating-deactivated-fb-id/"><u>Essential Protocol for Reactivating Deactivated FB ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-gt-3-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Realme GT 3 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/infuse-text-with-tune-utilizing-soundemojis-in-chats/"><u>Infuse Text with Tune: Utilizing Soundemojis in Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-assesses-president-trumps-status/"><u>Social Network Assesses President Trump's Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-of-unliking-on-websites/"><u>The Impact of Unliking on Websites</u></a></li>
-<li><a href="https://facebook.techidaily.com/us-stance-on-online-communities-negative-dominant/"><u>U.S. Stance on Online Communities: Negative Dominant</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-expertly-picked-top-10-windows-11-cam-recorders/"><u>[Updated] 2024 Approved Expertly Picked Top 10 Windows 11 Cam Recorders</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-navigating-instagram-data-a-complete-analysis-for-businesses-and-individuals/"><u>[Updated] In 2024, Navigating Instagram Data A Complete Analysis for Businesses and Individuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/americans-favor-detriments-of-online-networking-dominate/"><u>Americans Favor: Detriments of Online Networking Dominate</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-sarcasm-and-jokes-in-fbc-messages/"><u>Breaking Down Sarcasm & Jokes in FBC Messages</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/correcting-steam-apps-dll-deficit/"><u>Correcting Steam App's Dll Deficit</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-esteemed-facebook-presence-a-guide/"><u>Crafting an Esteemed Facebook Presence: A Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-se-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone SE Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-download-and-setup-epson-wf-2750-printer-software/"><u>Easy Steps to Download & Setup Epson WF-2750 Printer Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-listening-our-top-podcast-picks-for-22/"><u>Essential Listening: Our Top Podcast Picks for '22</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-amd-radeon-driver-updates-for-windows-11-enhance-your-gaming-experience/"><u>Latest AMD Radeon Driver Updates for Windows 11: Enhance Your Gaming Experience</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/maximize-efficiency-on-macos-using-quick-actions-features-in-finder-insights-for-advanced-users/"><u>Maximize Efficiency on macOS Using Quick Actions Features in Finder - Insights for Advanced Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-controvernial-approach-to-advertising/"><u>Social Media's New Controvernial Approach to Advertising?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On HTC U23 Pro | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Reinforcing Online Safety Measures with Effective 2FA for Email Services
-date: 2024-12-16T23:57:06.341Z
-updated: 2024-12-22T01:31:30.602Z
+date: 2025-01-02T21:30:02.216Z
+updated: 2025-01-06T05:21:02.145Z
 tags:
   - facebook
 categories:
@@ -32,16 +32,12 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  Check out our article on the[pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Google Prompt
@@ -54,6 +50,10 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
 ### Authenticator App
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 ![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Some users may prefer to use a different 2FA system. One such option is the Google Authenticator app. The Authenticator app generates a six-digit code for you to log into your account, but you must have your phone with you for the system to work.
@@ -76,13 +76,13 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Microsoft Outlook
 
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
@@ -100,19 +100,23 @@ thumbnail: https://thmb.techidaily.com/fed3ffae9229ff3a7d3580519bb324f0e6bad8a6c
 
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf[guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Facebook
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your[Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Twitter
 
@@ -123,10 +127,6 @@ Locking your Facebook account is as important as your email address.
  Head to your[Twitter account settings](https://twitter.com/settings/account) , then under the**Security** header, select**Login Verification** . You can turn on SMS 2FA by entering your phone number and then entering the code. If your Twitter account isn't already using SMS verification, you must turn this on before enabling a third-party authentication app.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set Up 2FA on Instagram
 
@@ -163,22 +163,22 @@ Locking your Facebook account is as important as your email address.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-discovering-the-top-10-invisible-story-lovers-for-2024/"><u>[New] Discovering the Top 10 Invisible Story Lovers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-budget-friendly-methods-for-youtube-card-creation/"><u>[New] In 2024, Budget-Friendly Methods for YouTube Card Creation</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-teenyscreenmugger-evaluation-insights/"><u>[New] In 2024, TeenyScreenMugger Evaluation Insights</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-plating-perfection-tips-for-shooting-culinary-content-for-2024/"><u>[Updated] Plating Perfection Tips for Shooting Culinary Content for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-innovative-apps-to-enhance-social-media-dispatch-timing/"><u>5 Innovative Apps to Enhance Social Media Dispatch Timing</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-blueprint-for-crafting-a-signature-online-journey/"><u>A Blueprint for Crafting a Signature Online Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-peek-into-the-world-of-elusive-social-media-posts/"><u>A Peek Into the World of Elusive Social Media Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/care-for-confidentiality-sidestep-these-3-apps/"><u>Care for Confidentiality: Sidestep These 3 Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-social-network-groups-fbs-hub-vs-linkedins-professional-circle/"><u>Comparing Social Network Groups: FB's Hub Vs. LinkedIn's Professional Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-diligence-defense-sidestep-these-snooping-apps/"><u>Data Diligence Defense: Sidestep These Snooping Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154372180-favorite-social-app-cast-your-ballot-now/"><u>Favorite Social App: Cast Your Ballot Now</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-best-3ip-top-audio-capture-apps/"><u>In 2024, Best 3iP Top Audio Capture Apps</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-iphone-8-plus-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the iPhone 8 Plus Without Previous Owner?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbelievable-quality-why-these-35-wireless-buds-are-a-game-changer/"><u>Unbelievable Quality: Why These $35 Wireless Buds Are a Game-Changer</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146908119-unveil-social-connectivity-transfer-facebook-storages-to-leading-services/"><u>Unveil Social Connectivity: Transfer Facebook Storages to Leading Services.</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-essential-techniques-for-striking-podcast-cover-designs-your-step-by-step-guide/"><u>Updated Essential Techniques for Striking Podcast Cover Designs Your Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-essential-free-mac-apps-to-perfect-your-tiktok-videos/"><u>[New] Essential Free Mac Apps to Perfect Your TikTok Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-complete-guide-to-morphvox-voice-changer-find-the-best-way/"><u>[Updated] Complete Guide to MorphVOX Voice Changer Find the Best Way</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-film-your-flavors-top-7-guides-for-delicious-cooking-cinematography/"><u>[Updated] Film Your Flavors Top 7 Guides for Delicious Cooking Cinematography</u></a></li>
+<li><a href="https://win11.techidaily.com/1-quick-guide-transforming-tta-files-into-various-audio-formats-like-flac-wav-and-mp3/"><u>1. [Quick Guide: Transforming TTA Files Into Various Audio Formats Like FLAC, WAV, and MP3]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-price-variations-in-cloud-services/"><u>2024 Approved Navigating Price Variations in Cloud Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-core-revelations-unveiled-in-whistleblowers-expose-on-fb/"><u>7 Core Revelations Unveiled in Whistleblower's Exposé on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disappearing-text-feature-in-fb-messenger/"><u>Decoding the Disappearing Text Feature in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-techniques-for-capturing-and-transferring-fb-media/"><u>Efficient Techniques for Capturing and Transferring FB Media</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722977256589-get-your-updated-nvidia-graphics-drivers-now-perfect-for-pc-gamers/"><u>Get Your Updated Nvidia Graphics Drivers Now - Perfect for PC Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-business-page/"><u>How to Delete a Facebook Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/iphone-savvy-techniques-for-storing-and-streaming-animated-images-for-2024/"><u>IPhone-Savvy Techniques for Storing and Streaming Animated Images for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-removing-facial-data-a-risk-to-privacy-and-security-for-fb-users/"><u>Is Removing Facial Data a Risk to Privacy and Security for FB Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/react-to-breach-securing-your-social-media-identity-fast/"><u>React to Breach: Securing Your Social Media Identity Fast</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-editors-approach-to-declining-audio-tracks-gradually/"><u>The Editor's Approach to Declining Audio Tracks Gradually</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-mysteries-of-facebook-privacy-and-security-controls/"><u>Unlock the Mysteries of Facebook Privacy & Security Controls</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-openais-sora-the-revolutionary-ai-shaping-video-creation-tomorrow/"><u>Unveiling OpenAI's Sora: The Revolutionary AI Shaping Video Creation Tomorrow.</u></a></li>
 </ul></div>
 

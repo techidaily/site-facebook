@@ -1,7 +1,7 @@
 ---
 title: Expand Your Chat Circle with Ease via Messenger
-date: 2024-08-08T11:25:44.006Z
-updated: 2024-08-09T11:25:44.006Z
+date: 2024-12-29T19:17:15.796Z
+updated: 2025-01-05T18:57:35.457Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/8e351a495ce579ab157428c084339d1c33794d9d4
  But how can you actually add contacts to Facebook Messenger? Can you add them on Messenger but not on Facebook? And what if they don’t even have Facebook?
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do I Add New Contacts on Messenger?
 
  If you have the person you want to interact with already added as a Facebook friend, you can chat to them via Messenger really easily.
@@ -33,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/8e351a495ce579ab157428c084339d1c33794d9d4
  Suggested contacts will appear, or you can type in a name in the “To:” field to filter that list. All applicable Facebook friends and groups will appear, so simply click on the one you want and start talking!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Messenger Automatically Add Contacts?
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
@@ -51,14 +53,8 @@ thumbnail: https://thmb.techidaily.com/8e351a495ce579ab157428c084339d1c33794d9d4
 
  You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can I Add Someone on Messenger but Not Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
 
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
@@ -70,8 +66,9 @@ Close
  All you have to do is go on Facebook, search for their name, and click on the profile of the person you want to chat to. Underneath their profile picture and banner, you’ll see three icons. You don’t want to click on the ellipsis, or on “Add Friend”. Instead, click**Message** . This will open up the Messenger app and let you talk to them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Add Someone on Messenger Without a Facebook Profile?
 
  There used to be simple ways to use Messenger without being on Facebook too, chiefly through adding phone numbers. However, since Facebook’s parent company refocused itself as Meta, this option has gone.
@@ -81,8 +78,9 @@ Close
  Essentially, anyone can use Messenger as long as they have had a Facebook account at some point and haven’t deleted it. In this case, you should be able to add them as you would anyone else, i.e. via your contact list if you have them in your address book, or by clicking on**Message** [on their deactivated profile](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Can’t I Add Someone on Messenger?
 
 ![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
@@ -107,18 +105,19 @@ So how can you delete old messages on Messenger?
 
  You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Add Friends on Messenger With Ease
 
  You can now keep in touch with your family and friends easily through Facebook and its associated Messenger app. Of course, there are plenty of instant messaging alternatives, but if you’re intent on sticking with Meta, you can at least make sure your chats are secure by keeping them encrypted too.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,24 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-optimizing-color-depth-and-gradients-for-obs-for-2024/"><u>[New] Optimizing Color Depth and Gradients for OBS for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-enhancing-presence-how-to-effortlessly-eliminate-borders/"><u>[Updated] Enhancing Presence How to Effortlessly Eliminate Borders</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-future-filming-top-15-video-cameras-to-watch/"><u>2024 Approved Future Filming – Top 15 Video Cameras to Watch</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-clear-choice-between-projectors-and-televisions-for-4k-quality/"><u>2024 Approved The Clear Choice Between Projectors and Televisions for 4K Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-inability-to-load-facebook-alertsupdates/"><u>Fixing the Inability to Load Facebook Alerts/Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-recognition-metas-paid-verification-badge/"><u>Gain Recognition: Meta's Paid Verification Badge</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-next-gen-of-visual-perfection-a-review-of-eizos-cg318-4k/"><u>In 2024, The Next Gen of Visual Perfection A Review of EIZO's CG318-4K</u></a></li>
+<li><a href="https://extra-support.techidaily.com/premier-selection-of-moving-typefaces-for-2024/"><u>Premier Selection of Moving Typefaces for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-transformations-shunning-partisan-and-dogmatic-content/"><u>Profile Transformations: Shunning Partisan & Dogmatic Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefine-ig-live-no-video-no-sound-required/"><u>Redefine IG Live - No Video, No Sound Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-your-social-circle-without-facebook-top-10-proposals-for-quitting/"><u>Reinventing Your Social Circle Without Facebook - Top 10 Proposals for Quitting</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-mic-disconnect-on-discord/"><u>Resolved Mic Disconnect on Discord</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-digital-interactions-on-fb/"><u>Streamlining Your Digital Interactions on FB</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sustaining-innovation-how-iphone-upgrades-work/"><u>Sustaining Innovation: How iPhone Upgrades Work</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-vegas-pros-latest-features-in-21/"><u>The Ultimate Guide to Vegas Pro's Latest Features in '21</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-notification-lights/"><u>Turn Off Facebook's Notification Lights</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-facebook-ditch-news-feed-in-favor-of-just-feed/"><u>Why Did Facebook Ditch 'News Feed' In Favor of Just 'Feed'?</u></a></li>
+</ul></div>
 

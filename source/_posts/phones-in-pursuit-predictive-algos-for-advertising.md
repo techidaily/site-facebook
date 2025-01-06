@@ -1,7 +1,7 @@
 ---
 title: "Phones in Pursuit: Predictive Algos for Advertising?"
-date: 2024-12-18T17:00:14.979Z
-updated: 2024-12-21T16:29:13.708Z
+date: 2024-12-31T21:03:08.927Z
+updated: 2025-01-06T02:18:52.372Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -45,7 +41,7 @@ What is going on?
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
@@ -64,6 +60,10 @@ What is going on?
 
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
@@ -76,15 +76,15 @@ What is going on?
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can You Prove If an App Is Listening to You?
 
@@ -96,13 +96,13 @@ What is going on?
 
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
 
@@ -129,7 +129,7 @@ What is going on?
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## So, Why Do You Get Ads for Things You Talk About?
@@ -159,19 +159,17 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-strategy-supreme-the-top-7-battlefield-commanders/"><u>[New] 2024 Approved Strategy Supreme The Top 7 Battlefield Commanders</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-essential-handheld-guide-to-youtube-production-for-2024/"><u>[New] The Essential Handheld Guide to YouTube Production for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-farming-fiesta-with-pals-the-ultimate-agritainment-guide/"><u>2024 Approved Farming Fiesta with Pals The Ultimate Agritainment Guide</u></a></li>
-<li><a href="https://win-forum.techidaily.com/beat-100-hard-drive-use-in-windows-11-proven-strategies-and-techniques/"><u>Beat 100% Hard Drive Use in Windows 11: Proven Strategies and Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-interaction-potential-including-friends-to-messenger/"><u>Boosting Interaction Potential: Including Friends to Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-id-switching-technique-for-multiple-fb-users/"><u>Efficient ID Switching Technique for Multiple FB Users</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-your-content-game-with-professional-facebook-slideshow-techniques-for-2024/"><u>Elevate Your Content Game with Professional Facebook Slideshow Techniques for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-loop-and-relish-youtube-videos-double-the-delight-on-tv/"><u>In 2024, Loop & Relish YouTube Videos, Double the Delight on Tv</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/in-2024-thunderous-echoes-the-soundscape-of-immense-entities/"><u>In 2024, Thunderous Echoes The Soundscape of Immense Entities</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-account-with-instagrams-whatsapp-code-alerts/"><u>Secure Your Account with Instagram's WhatsApp Code Alerts</u></a></li>
-<li><a href="https://discover-docs.techidaily.com/step-by-step-guide-upscaling-your-videos-to-hd-or-4k-resolution-on-pcs-and-macs/"><u>Step-by-Step Guide: Upscaling Your Videos to HD or 4K Resolution on PCs & Macs</u></a></li>
-<li><a href="https://facebook.techidaily.com/techs-divisive-stars-the-leading-six/"><u>Tech's Divisive Stars: The Leading Six</u></a></li>
-<li><a href="https://facebook.techidaily.com/utilizing-social-networks-for-effective-hiring/"><u>Utilizing Social Networks for Effective Hiring</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-xsplit-alternatives-for-streaming/"><u>[Updated] Best Xsplit Alternatives for Streaming</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-top-6-slide-show-creation-apps-on-latest-iphones/"><u>[Updated] In 2024, Top 6 Slide Show Creation Apps on Latest iPhones</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-quick-ways-to-transfer-contacts-from-apple-iphone-12-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>4 Quick Ways to Transfer Contacts from Apple iPhone 12 to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-keeping-post-discussions-at-bay-on-fb/"><u>A Guide to Keeping Post Discussions at Bay on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquering-facebook-challenges-solutions-to-11-typical-errors/"><u>Conquering Facebook Challenges: Solutions to 11 Typical Errors</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-the-digital-landscape-with-facebook-twitter-instagram-and-youtube/"><u>Exploring the Digital Landscape with Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-response-to-tiktoks-growth-spurt/"><u>Facebook's Reel Response to TikTok's Growth Spurt</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-7-plus-data-from-ios-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 7 Plus Data From iOS iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/sneak-peek-affordable-apple-watch-se-inspection-and-review/"><u>Sneak Peek: Affordable Apple Watch SE Inspection and Review</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-memory-related-challenges-in-windows-os-insights-from-yl-computing/"><u>Top 5 Memory-Related Challenges in Windows OS: Insights From YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-regulatory-shift-a-new-era-for-big-tech-companies/"><u>US Regulatory Shift: A New Era for Big Tech Companies</u></a></li>
 </ul></div>
 

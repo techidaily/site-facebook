@@ -1,7 +1,7 @@
 ---
 title: "Stepping Away From the World: Ungrouping on Social Media"
-date: 2024-08-08T11:26:45.676Z
-updated: 2024-08-09T11:26:45.676Z
+date: 2025-01-01T21:50:48.423Z
+updated: 2025-01-06T02:08:07.569Z
 tags:
   - facebook
 categories:
@@ -33,51 +33,33 @@ Here's all you need to know...
 
  Then scroll down until you find the group you want to leave on the left menu and tap it.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![groups you joined Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/group-you-joined-facebook.png)
 
  Click the**…** on the right side of the group, next to the magnifying glass. Then, pick the last option, which is**Leave Group** .
 
 ![leave Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You’ll see a popup that asks if you’re sure. In that popup, you can also pick the option that prevents people from adding you to the group again in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![leave-Facebook-group-are-you-sure](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-are-you-sure.png)
 
  That’s it, you’re no longer a member of that group, and won’t receive any more notifications from it.
 
 ## How Do I Leave a Facebook Group on My Mobile?
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![your-facebook-groups-app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/your-Facebook-groups-app.png)
 
 ![mobile Facebook groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/mobile-Facebook-groups.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![Your groups on Facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Your-groups-on-Facebook-mobile.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -89,17 +71,19 @@ Close
 4. Press**Leave Group** , followed by**Leave Group** again.
 5. The last screen will ask for some feedback, which you can just close if you don’t have any.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![leave Facebook group app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![leave Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-mobile.png)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![feedback about Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/feedback-about-Facebook-group-mobile.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -107,20 +91,21 @@ Close
 
  Read more: [Ways Facebook Is Cracking Down on Groups Which Break the Rules](https://www.makeuseof.com/ways-facebook-cracking-down-on-groups-break-rules/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay in a Facebook Group, but Receive Less Spam
 
  If you’re only annoyed about the number of notifications and posts you get from a group, but like it otherwise, you don’t have to leave it. First, you can manage the notifications, and only receive alerts about highlights, posts from friends, or none at all.
 
  You can also choose to unfollow the group, which will block all of its content from your feed but will still allow you to visit it and post in it without interruptions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +114,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/he-essential-guide-to-early-success-on-youtube-steer-clear-of-these-top-8-pitfalls/"><u>[New] The Essential Guide to Early Success on YouTube Steer Clear of These Top 8 Pitfalls!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/macmovavi-suite/"><u>全功能Mac動畫設計：Movavi Suite 無限量測試用</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-your-social-media-identity-whatsapp-and-fb-avatars/"><u>Embracing Your Social Media Identity: WhatsApp and FB Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-fossil-to-green-facebooks-total-energy-transformation/"><u>From Fossil to Green: Facebook's Total Energy Transformation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-screens-on-record-unveiling-the-leading-screencap-software/"><u>In 2024, Screens on Record Unveiling The Leading Screencap Software</u></a></li>
+<li><a href="https://win-community.techidaily.com/retrieve-lost-contacts-from-your-samsung-device-effortless-restoration-guide/"><u>Retrieve Lost Contacts From Your Samsung Device - Effortless Restoration Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-profiles-a-no-politics-no-religion-rule/"><u>Securing Profiles: A No Politics, No Religion Rule</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here</u></a></li>
+</ul></div>
 

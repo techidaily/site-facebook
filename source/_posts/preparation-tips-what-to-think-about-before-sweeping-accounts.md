@@ -1,7 +1,7 @@
 ---
 title: "Preparation Tips: What to Think About Before Sweeping Accounts"
-date: 2024-08-08T11:26:52.339Z
-updated: 2024-08-09T11:26:52.339Z
+date: 2025-01-05T00:29:52.567Z
+updated: 2025-01-06T05:41:53.367Z
 tags:
   - facebook
 categories:
@@ -21,13 +21,18 @@ thumbnail: https://thmb.techidaily.com/0de78e74e4231d077c0bbd1093422fc13ce8314c6
 
  Here's what you need to consider before deleting your social media accounts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Deactivate First
 
 ![Deactivating Facebook Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-facebook-account-settings-page-1.JPEG)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Deactivating TikTok Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-tiktok-account-settings-page-1.JPEG)
 
 ![Deactivating Twitter Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-twitter-account-settings-page.JPEG)
@@ -43,15 +48,13 @@ Close
  When deactivating, remember that some platforms will permanently delete your account after a specific time period. For example, you can only stay deactivated for 30 days on X (Twitter) before your account gets deleted.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Delete the App
 
 ![Long-Pressing on Facebook App to Bring Up Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/long-press-to-bring-up-options-for-facebook-app.JPEG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![Deleting Facebook App Confirmation Pop-Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/delete-facebook-app-confirmation-pop-up.JPEG)
 
 Close
@@ -60,24 +63,13 @@ Close
 
  There's also no limit as to how many times you can uninstall and reinstall an app should you keep changing your mind. Whereas with deactivation, there's a waiting period on some platforms before you can deactivate again if you have back-and-forth contemplations.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Stop Doomscrolling
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Screen Time Setting on TikTok](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screen-time-setting-on-tiktok.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Time Spent Setting on Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/time-spent-setting-on-instagram-1.JPEG)
 
@@ -91,9 +83,6 @@ Close
 
  Once you've developed a healthier relationship with social media, you might not feel the need to delete your accounts anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Consider Your Career
 
 ![Person Using Laptop and Taking Notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/person-using-laptop-and-taking-notes.jpg)
@@ -106,10 +95,6 @@ Close
 
 ## 5\. Take Accountability
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Woman Using Phone in the Dark Outside](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/woman-using-phone-dark.jpg)
 
  For a lot of people, deleting their social media accounts is a way of bidding goodbye to a time when they were problematic. We're all constantly learning what is and isn't acceptable, so it's only natural to want to part with your old self.
@@ -118,12 +103,17 @@ Close
 
  Our advice is to own up to what you've said instead by admitting you were wrong, apologizing, and demonstrating that you've learned and improved. If people are aware of your problematic posts, and you delete your account upon getting called out, it will only give the impression that you have no intention of truly taking accountability.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Make a Final Post
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![Draft for Farewell Post About Deleting Social Media Accounts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/farewell-draft-for-deleting-social-media-account.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you're still dead set on deleting your accounts, compose a final post to inform your mutuals that you'll be leaving. You can use the same draft on all your social media accounts, depending on how many characters are allowed per post.
 
@@ -133,9 +123,6 @@ Close
 
 ![Download Your Data Option on Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-download-data-option.JPEG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Download Data Option on TikTok App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/tiktok-download-data-option.JPEG)
 
 Close
@@ -150,21 +137,23 @@ Close
 
 ![Spreadsheet on Black an grey Laptop on wooden desk with womans hands typing. around desk is a black notebook, coffee on saucer and sunglasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/spreadsheet-on-laptop-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Some people are only connected through social media, and when your account is gone, you won't have a means of contacting them anymore.
 
  Compile a list of emails and phone numbers of the people you wish to remain in contact with. Often, you'll find that many of these connections aren't even worth pursuing. This is a testament to how desolate these platforms can be if you don't use them for the right reasons, which is one of the major[negative effects of social media](https://www.makeuseof.com/tag/negative-effects-social-media/) .
 
  But should there be someone you'd like to keep in touch with, having their contact details ensures you won't have to spend hours trying to find them after your account is gone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Update Your Login Information on Sites That Use Social Login
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Sign Up Options for Canva on Desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/canva-sign-up-options-page-on-desktop.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The social login feature (part of Social Sign-On Technology) allows users to log in to other apps or sites with one social media account. This makes it easier to remember your username and password. The problem with this feature is that it's not foolproof.
 
@@ -173,13 +162,11 @@ Close
  Take note of all the sites and apps where you used the social login feature, and change it to something else that you still have access to.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. Prepare for FOMO
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Sad Person Scrolling on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/sad-person-using-phone.jpg)
 
  The FOMO will be real, especially if you've succumbed to the grips of short-form content like Reels and TikToks.
@@ -199,8 +186,9 @@ Close
  Given how dependent socialization and communication have become on social media, giving it up could result in a bit of social alienation. It might be worth ensuring your real-life connections are reliable before cutting off the digital ones.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Consider deactivating your social media accounts first to see if it brings any positive changes to your life before permanently deleting them.
@@ -215,14 +203,11 @@ Close
 
  Even if you're planning on starting afresh with new social media profiles, these points will still help you through the process.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -231,4 +216,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-perfecting-ultimate-canon-sequence-crafts/"><u>[New] Perfecting Ultimate Canon Sequence Crafts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-unlock-youtubes-enigmentic-video-cache/"><u>[Updated] 2024 Approved How to Unlock YouTube’s Enigmentic Video Cache</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-boosting-youtube-traffic-outsmarting-automated-viewers-for-2024/"><u>[Updated] Boosting YouTube Traffic Outsmarting Automated Viewers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-premiere-pros-shadowy-showdown/"><u>[Updated] Premiere Pro's Shadowy Showdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-present-power-brokers/"><u>Facebook’s Present Power Brokers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-redefine-your-birthday-on-the-worlds-most-popular-social-network/"><u>How to Redefine Your Birthday on the World’s Most Popular Social Network</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-motorola-moto-g34-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Motorola Moto G34 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-through-strategic-posting/"><u>Maximizing Engagement Through Strategic Posting</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/snippet-screenplay-guide-for-2024/"><u>Snippet Screenplay Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/solutions-for-non-receipt-of-facebook-login-code/"><u>Solutions for Non-Receipt of Facebook Login Code</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unleashing-potential-gopro-karmas-journey-for-2024/"><u>Unleashing Potential GoPro Karma's Journey for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/eling-youtubes-vision-for-a-thriving-ecosystem-of-short-form-video-for-2024/"><u>Unraveling YouTube's Vision for a Thriving Ecosystem of Short-Form Video for 2024</u></a></li>
+</ul></div>
 

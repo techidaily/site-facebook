@@ -1,7 +1,7 @@
 ---
 title: "Face Off: Re-Securing Your Account Post-Hack"
-date: 2024-08-08T11:25:09.764Z
-updated: 2024-08-09T11:25:09.764Z
+date: 2024-12-31T07:49:04.869Z
+updated: 2025-01-06T01:13:27.441Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 
  Facebook hackers could lock you out of your account and hassle your friends and family. Secure your Facebook account now and get it back before it's too late. We'll show you how.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Tell Whether Your Facebook Account Was Hacked
 
  You can[tell your Facebook account was hacked](http://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) if you spot one of the following signs:
@@ -39,10 +36,11 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 
  Under**Security checks** , expand the**Where you're logged in** option, and select your account. Now you can review a comprehensive list of devices from which you've most recently logged into your Facebook account and when they were active. You can select each individually or all at once to log them out. Be sure to change your password before you remove a suspicious login.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Accounts Center Where You're Logged In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-accounts-center-where-you-re-logged-in.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Other signs that your account may have been hacked include:
 
@@ -54,9 +52,6 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
@@ -67,9 +62,6 @@ Other signs that your account may have been hacked include:
 
  To change your password from either your desktop or mobile device, go to**Accounts Center** , select**Password and security,** and then select**Change password** . Pick your account, enter your current password, set a strong new password, and click**Change password** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
 
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
@@ -90,6 +82,10 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
  If the hacker changed your email address, you should have received a message to the original address. Find this message because it contains a special link that will let you reverse the change and secure your account.
@@ -98,18 +94,20 @@ Do this only if you're sure you can log back in.
 
  Remember that you must keep those accounts equally secure, at least by using a strong password and ideally by[enabling two-factor authentication](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) on your email accounts.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Use the**Try another way** link if you no longer have access to any of the offered email accounts. Facebook will offer to send a code to the phone numbers associated with your account. If none of those are viable, either, it's nearly impossible to recover your account.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -126,23 +124,22 @@ Do this only if you're sure you can log back in.
 
  Click**See More** to expand the list of**Active** apps and websites, and click**Remove** for each suspicious app individually.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
@@ -163,14 +160,11 @@ Do this only if you're sure you can log back in.
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +173,24 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-leverage-loops-for-stirring-instagram-engagement-and-likes/"><u>[New] In 2024, Leverage Loops for Stirring Instagram Engagement & Likes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-low-end-pc-visual-recorders-for-2024/"><u>[New] Low-End PC Visual Recorders for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-checklist-for-protecting-your-digital-assets/"><u>[New] The Ultimate Checklist for Protecting Your Digital Assets</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-retrace-steps-how-to-turn-your-yt-queue-on-its-head/"><u>[Updated] 2024 Approved Retrace Steps How to Turn Your YT Queue on Its Head</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-speedy-periscope-broadcasting-made-simple/"><u>2024 Approved Speedy Periscope Broadcasting Made Simple</u></a></li>
+<li><a href="https://driver-error.techidaily.com/alleviated-storage-controller-stress/"><u>Alleviated Storage Controller Stress</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-impersonation-unraveling-fb-scam-mechanics/"><u>Identity Impersonation: Unraveling FB Scam Mechanics</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/ink-your-photos-leading-apps-for-captioning-iosandroid/"><u>Ink Your Photos Leading Apps for Captioning (iOS/Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-online-more-authentic-the-social-disconnect-experience/"><u>Less Online, More Authentic: The Social Disconnect Experience</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leveraging-cg-central-luts-for-cinematic-color-enhancement-for-2024/"><u>Leveraging CG Central LUTs for Cinematic Color Enhancement for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-etiquette-101-social-media-disclosure-dos-and-donts/"><u>Online Etiquette 101: Social Media Disclosure Dos & Don'ts</u></a></li>
+<li><a href="https://facebook.techidaily.com/redesigning-reality-from-facebook-to-meta-evolution/"><u>Redesigning Reality: From Facebook to Meta Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/revitalize-the-silent-sphere-reactivating-facebook/"><u>Revitalize the Silent Sphere: Reactivating Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-enforces-anti-misinfo-measures/"><u>Social Media Giant Enforces Anti-Misinfo Measures</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-power-behind-content-creation-how-companies-deploy-ai-tech/"><u>The Power Behind Content Creation: How Companies Deploy AI Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-right-approach-for-leaving-an-engaged-facebook-community/"><u>The Right Approach for Leaving an Engaged Facebook Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/trim-your-social-media-targeted-ads-a-step-by-step-guide/"><u>Trim Your Social Media Targeted Ads: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unlocking a Safer Social Media Experience with Facebook’s Streamlined Privacy Control
-date: 2024-12-17T04:16:58.702Z
-updated: 2024-12-21T19:58:54.702Z
+date: 2024-12-29T22:47:00.035Z
+updated: 2025-01-06T04:59:32.351Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -38,18 +42,10 @@ Here's how:
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
 
@@ -63,6 +59,10 @@ Here's how:
 
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
@@ -70,7 +70,7 @@ Here's how:
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
@@ -80,7 +80,7 @@ Here's how:
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
@@ -104,7 +104,7 @@ Here's how:
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Protect Your Privacy
@@ -128,19 +128,16 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-shining-spotlight-on-luminous-hdr-techniques/"><u>[Updated] 2024 Approved Shining Spotlight on Luminous HDR Techniques</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-zoom-video-conferencing-via-email-client/"><u>2024 Approved Navigating Zoom Video Conferencing via Email Client</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-digital-detox-diary-my-journey-beyond-the-feeds/"><u>A Digital Detox Diary: My Journey Beyond the Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-did-facebook-expose-our-groups-numbers/"><u>Alert! Did Facebook Expose Our Group's Numbers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-components-of-facebooks-white-list/"><u>Analyzing the Components of Facebook's White List</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-social-media-downtime-reasons/"><u>Breaking Down Social Media Downtime Reasons</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridges-and-barriers-in-a-facebook-era/"><u>Bridges and Barriers in a Facebook Era</u></a></li>
-<li><a href="https://facebook.techidaily.com/clearing-every-unwanted-fb-notification-type/"><u>Clearing Every Unwanted FB Notification Type</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-pair-your-nintendo-switch-with-the-appropriate-televisual-display/"><u>How To Pair Your Nintendo Switch With The Appropriate Televisual Display</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-vivo-v29e-phone-by-drfone-android/"><u>How to Unlock a Network Locked Vivo V29e Phone?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-the-ultimate-yosemite-video-editing-guide-tips-tricks-and-tutorials/"><u>New 2024 Approved The Ultimate Yosemite Video Editing Guide Tips, Tricks, and Tutorials</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/proven-strategies-for-building-an-insightful-and-interactive-instagram-puzzle-feed/"><u>Proven Strategies for Building an Insightful and Interactive Instagram Puzzle Feed</u></a></li>
-<li><a href="https://discover-awesome.techidaily.com/tailoring-your-pcs-sound-configuration-using-windows-features-tips-from-yl-software-experts/"><u>Tailoring Your PC's Sound Configuration Using Windows Features - Tips From YL Software Experts</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-an-ode-to-open-source-audio-selecting-tunes-for-captivating-montage-videos/"><u>Updated 2024 Approved An Ode to Open Source Audio Selecting Tunes for Captivating Montage Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-easy-transition-integrating-snapchat-with-macos/"><u>[New] In 2024, Easy Transition Integrating Snapchat with macOS</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-top-cricket-ultimate-guide-to-live-streaming-selection-for-2024/"><u>[New] Top Cricket Ultimate Guide to Live Streaming Selection for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-direct-compare-obs-and-twitch-studio-benefits-for-2024/"><u>[Updated] Direct Compare OBS and Twitch Studio Benefits for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-future-in-flight-djis-mavic-pro-breakdown/"><u>[Updated] In 2024, The Future in Flight DJI's Mavic Pro Breakdown</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-seamless-media-magic-turning-xml-ssa-into-dynamic-srts-for-2024/"><u>[Updated] The Seamless Media Magic Turning XML, SSA Into Dynamic SRTs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-on-ig-live-cut-the-clutter/"><u>Broadcasting On IG Live: Cut the Clutter</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-vivo-x100-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Vivo X100 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-share-instagram-reels-to-facebook/"><u>How to Share Instagram Reels to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-strategies-no-cost-top-10-free-social-management-apps/"><u>Smart Strategies, No Cost - Top 10 Free Social Management Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-three-step-roadmap-to-efficiently-tag-friends-on-facebook/"><u>The Three-Step Roadmap to Efficiently Tag Friends on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-metaais-distinctive-features-against-bots/"><u>Unveiling MetaAI's Distinctive Features Against Bots</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering FaceBook: Solutions for Its Most Frequent Glitches"
-date: 2024-12-25T17:08:39.096Z
-updated: 2024-12-27T16:47:29.597Z
+date: 2024-12-30T05:46:03.559Z
+updated: 2025-01-05T17:27:10.000Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/63775cec08bea1f18045b716f908366237290c85d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Require Reviews for Tags
@@ -39,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/63775cec08bea1f18045b716f908366237290c85d
  Here, change the**Who can see posts you're tagged in on your profile?** to**Only me** , if you don't want tags to appear at all. You can also change the options under**Reviewing** to require your approval before tags appear to your friends.
 
 ![Facebook Profile and Tagging settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-profile-and-tagging-2023.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### If Facebook Tagging Isn't Working
 
@@ -63,6 +59,10 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
  For a short-term solution, you can also click the three-dot**Menu** button on any post, then choose**Snooze \[Name\] for 30 days** . This will hide their posts for a month, so you can take a break from that person.
@@ -80,10 +80,6 @@ We all know someone who posts all the time on Facebook:
  To see who's on your Favorites list, visit the same**Feed** panel as above and choose**Favorites** . This will show all your friends; click**All** at the top-right and change the box to**Favorites Only** to see who's on the list and easily remove people if needed.
 
 ![Facebook Manage Favorites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Manage-Favorites.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Opt Out of Targeted Ads on Facebook
 
@@ -118,7 +114,7 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Change Audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Change-Audience.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To keep someone from seeing your posts all the time, you can[add them to your**Restricted** list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) . People on this list won't see anything you post unless it's set to**Public** or you tag them in it. To add someone to this list, visit their page, select the**Friends** button, and then click**Edit Friend List** . Scroll down and click the**Restricted** list.
@@ -127,10 +123,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Restricted List Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Restricted-List-Friends.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Block Annoying Auto-Playing Videos
 
  Very few people like videos that play as soon as you scroll past them. They're loud and can catch you off-guard if you thought your volume was muted. Plus, if you're on a metered connection, they're a waste of data.
@@ -138,6 +130,10 @@ We all know someone who posts all the time on Facebook:
  To turn off auto-play for videos on Facebook, click your profile picture again and choose**Settings & privacy > Settings** . Click the**Videos** tab on the left, then set the**Auto-Play Videos** option to**Off** .
 
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Block Annoying App Invites
 
@@ -150,7 +146,7 @@ We all know someone who posts all the time on Facebook:
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Change the Facebook Interface to Your Liking
@@ -179,7 +175,7 @@ We all know someone who posts all the time on Facebook:
  To wrap up, let's go over some tips for common Facebook errors you might run into.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. You Forgot Your Facebook Password
@@ -187,7 +183,7 @@ We all know someone who posts all the time on Facebook:
  Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on[recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And[if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10\. You Can't Connect to Facebook
@@ -210,6 +206,10 @@ We all know someone who posts all the time on Facebook:
 
  When you get messages like this, make sure you've done basic Facebook troubleshooting too. Refresh the page, try logging out and back in, and make sure you don't have a network issue, as described above. If you're comfortable with it, try asking a mutual friend if they have the same problem. This can confirm your suspicions that you've been blocked or otherwise restricted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Fix Facebook Problems Easily
 
  We've shared fixes for some of the most common Facebook problems and errors. By flipping the right settings or using powerful extensions, you can make Facebook a more pleasant experience for yourself.
@@ -231,24 +231,20 @@ We all know someone who posts all the time on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlocking-full-potential-of-macs-preview-tool/"><u>[New] 2024 Approved Unlocking Full Potential of Mac's Preview Tool</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-instant-tune-livestreams-on-douyin-for-2024/"><u>[New] Instant Tune Livestreams on Douyin for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-the-artisans-selection-best-photo-frame-software-for-2024/"><u>[New] The Artisan's Selection Best Photo Frame Software for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-amp-up-your-sessions-with-essential-tips-from-zooms-changer-suite/"><u>[Updated] In 2024, Amp Up Your Sessions with Essential Tips From Zoom's Changer Suite</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-your-go-to-list-of-best-free-game-apps-on-android/"><u>[Updated] Your Go-To List of Best Free Game Apps on Android</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/4-keys-to-windows-program-harmony/"><u>4 Keys to Windows Program Harmony</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/1732517698227-yl/"><u>武则天留给后世的关键文书及其意义 - YL科技解析</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliminating-unwanted-facebook-advertisements-a-step-by-step-guide/"><u>Eliminating Unwanted Facebook Advertisements: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-watch-concept-with-potential-for-separate-cameras/"><u>Facebook Unveils Watch Concept with Potential for Separate Cameras</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-c210-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on C210</u></a></li>
-<li><a href="https://facebook.techidaily.com/insiders-guide-facebook-privacy-lines/"><u>Insider's Guide: Facebook Privacy Lines</u></a></li>
-<li><a href="https://facebook.techidaily.com/insight-deciphering-changes-in-facebook-page-labels/"><u>Insight: Deciphering Changes in Facebook Page Labels</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-fb-settings-for-personal-space-and-security/"><u>Optimizing Fb Settings for Personal Space and Security</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-nubia-red-magic-9-pro-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Nubia Red Magic 9 Pro? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/resolving-facebook-predicaments-with-ease-and-swiftness/"><u>Resolving FaceBook Predicaments with Ease and Swiftness</u></a></li>
-<li><a href="https://win-answers.techidaily.com/restoring-sounds-in-skyrim-fixes-for-muted-gameplay-experience/"><u>Restoring Sounds in Skyrim: Fixes for Muted Gameplay Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/text-room-success-starts-here-novice-guidance/"><u>Text Room Success Starts Here: Novice Guidance</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-social-media-cleanup-tips-and-tools/"><u>Top 8 Social Media Cleanup Tips & Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-virtual-audience-numbers/"><u>Unveiling Virtual Audience Numbers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-melodymentor-detailed-sound-review-for-2024/"><u>[New] MelodyMentor Detailed Sound Review for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-ranking-premium-free-excellence-the-finest-free-lut-selections/"><u>[Updated] 2024 Approved Ranking Premium-Free Excellence The Finest Free LUT Selections</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-revelations-from-the-facebook-papers/"><u>7 Key Revelations From The Facebook Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-strategically-managing-your-facebook-friend-network/"><u>Balancing Act: Strategically Managing Your Facebook Friend Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/dynamic-user-defined-avatars-hit-oculus-market/"><u>Dynamic, User-Defined Avatars Hit Oculus Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-john-doe-to-jane-smith-mastering-the-facebook-renaming-journey/"><u>From John Doe to Jane Smith: Mastering the Facebook Renaming Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-vpns-revolutionized-online-security/"><u>How VPNs Revolutionized Online Security</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-resounding-beats-audio-studio-mac/"><u>In 2024, Resounding Beats Audio Studio Mac</u></a></li>
+<li><a href="https://driver-error.techidaily.com/loss-of-hardware-support-on-win1011-os/"><u>Loss of Hardware Support on Win10/11 OS</u></a></li>
+<li><a href="https://win-able.techidaily.com/merge-multiple-mxf-video-files-into-a-single-file-without-cost/"><u>Merge Multiple MXF Video Files Into a Single File Without Cost</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/precision-and-artistry-the-ultimate-crossfade-playbook-with-audacity/"><u>Precision and Artistry The Ultimate Crossfade Playbook with Audacity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/repair-glitches-in-instagram-likescomments/"><u>Repair Glitches in Instagram Likes/Comments</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/split-pdf-3-methods-to-separate-pdf-pages-easily/"><u>Split PDF | 3 Methods to Separate PDF Pages Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/sunlit-surfaces-fb-operations-bathed-in-solar-energy/"><u>Sunlit Surfaces: FB Operations Bathed in Solar Energy</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-reschedules-introduction-of-revised-privacy-terms/"><u>WhatsApp Reschedules Introduction of Revised Privacy Terms</u></a></li>
 </ul></div>
 

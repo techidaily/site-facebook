@@ -1,7 +1,7 @@
 ---
 title: Eureka! Identifying the Start of My Online Social Life
-date: 2024-12-20T18:39:55.157Z
-updated: 2024-12-27T20:28:04.978Z
+date: 2025-01-01T08:34:33.675Z
+updated: 2025-01-06T06:12:38.660Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,14 @@ Follow these steps to find your Facebook account creation date:
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
 ![your facebook information page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/your-facebook-information-page.jpg)
 5. Several new options appear on the right pane. Next to**Access profile information** , select**View** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6. On the next screen, under the**Access your information** menu on the left, scroll down and select**Personal information** .  
 ![facebook profile information menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-profile-information-menu.jpg)
 7. On the right pane, look toward the**Your account creation date** section. This section displays the exact date you created your Facebook account.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![account creation date on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/account-creation-date-on-facebook.jpg)
 
@@ -54,19 +55,15 @@ Follow these steps to find your Facebook account creation date:
 
 ![facebook main menu on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-main-menu-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook app access your information option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-access-your-information-option.jpg)
 
 ![personal information option on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/personal-information-option-on-facebook-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![facebook account creation date on mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-account-creation-date-on-mobile-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -87,13 +84,13 @@ Close
 
 ![Use the welcome email to find your join date on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-welcome-email.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  When you find the Facebook email that either asks you to confirm your email address or offers instructions on getting started with Facebook, that email’s date should be your Facebook account creation date.
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Find How Old Your Facebook Account Is Using a Profile Picture
 
@@ -110,15 +107,15 @@ Close
 ![facebook photo albums page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-photo-albums-page-1.jpg)
 5. Click**Profile pictures** on the album screen to open your profile photos album.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. Find the oldest profile picture in this album. Unless you’ve uploaded loads of profile pictures, you shouldn’t have any issues getting to the oldest picture.
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
  That date should be the day you made your Facebook profile or very close to that date.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
@@ -136,12 +133,16 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Find Out When You Joined Facebook
@@ -165,19 +166,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevate-entertainment-a-thousand-gaming-channels/"><u>[New] 2024 Approved Elevate Entertainment A Thousand Gaming Channels</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-high-res-webcam-videos-in-minutes-a-step-guide/"><u>[New] In 2024, High-Res Webcam Videos in Minutes A Step Guide</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-leading-e-conference-headline-generator/"><u>[New] In 2024, Leading E-Conference Headline Generator</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-enhancing-social-media-presence-with-professional-slideshow-making/"><u>[Updated] 2024 Approved Enhancing Social Media Presence with Professional Slideshow Making</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-still-photos-to-dynamic-video-how-to-use-your-cellular-device/"><u>[Updated] 2024 Approved From Still Photos to Dynamic Video How To Use Your Cellular Device</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-androids-favorite-collage-crafting-software/"><u>[Updated] Android's Favorite Collage Crafting Software</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/comment-fabriquer-et-configurer-un-image-de-systeme-repaire-iso-pour-windows-7/"><u>Comment Fabriquer Et Configurer Un Image De Système Repaire ISO Pour Windows 7?</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-the-frequent-freezes-solving-tower-of-fantasy-pc-game-crashes/"><u>Fixing the Frequent Freezes: Solving Tower of Fantasy PC Game Crashes</u></a></li>
-<li><a href="https://facebook.techidaily.com/gaining-control-integrate-key-admins-into-your-pages/"><u>Gaining Control: Integrate Key Admins Into Your Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-mend-a-social-gap-on-facebook/"><u>How to Mend a Social Gap on Facebook</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/intel-nuc-mastery-expert-tips-on-rapid-and-straightforward-driver-installations/"><u>Intel NUC Mastery: Expert Tips on Rapid & Straightforward Driver Installations</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-fb-removing-memories-from-unwanted-contacts/"><u>Mastering FB: Removing Memories From Unwanted Contacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sites-shine-the-top-9-reasons-to-thrive-online/"><u>Social Sites Shine: The Top 9 Reasons to Thrive Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-explorers-map-to-your-online-identity-a-detailed-narrative-of-all-fb-exchanges/"><u>The Explorer's Map to Your Online Identity: A Detailed Narrative of All FB Exchanges</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-dynamic-interactions-key-to-enhancing-page-visibility/"><u>[New] 2024 Approved Dynamic Interactions Key to Enhancing Page Visibility</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-instagram-follower-dilemrancy-guide/"><u>[New] In 2024, The Instagram Follower Dilemrancy Guide</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-universal-dlna-receivers-supporting-media-playback-across-pcs-macs-tvs-and-smart-speakers/"><u>Best Universal DLNA Receivers Supporting Media Playback Across PCs, Macs, TVs, and Smart Speakers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diagnosing-and-repairing-your-streams-with-ease-overcoming-twitch-error-4000/"><u>Diagnosing and Repairing Your Streams with Ease: Overcoming Twitch Error 4000</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/fiscal-football-freedom-capturing-contests-without-cash-for-2024/"><u>Fiscal Football Freedom Capturing Contests Without Cash for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/youtube-streams-to-local-files-audio-guide-for-2024/"><u>From YouTube Streams to Local Files Audio Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-age-appropriate-network-websites/"><u>Greatest Age-Appropriate Network Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-abruptly-end-a-social-network-fellowship/"><u>How to Abruptly End a Social Network Fellowship</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-name/"><u>How to Change Your Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-securityfacebookmailcom-legitimate/"><u>Is the Facebook Protect Email From Security@facebookmail.com Legitimate?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/master-the-craft-with-these-top-5-ai-prompt-engineering-e-courses/"><u>Master the Craft with These Top 5 AI Prompt Engineering E-Courses</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-search-navigate-to-facebook-group-and-profile-links/"><u>Masterful Search: Navigate to Facebook Group & Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-social-media-experience-on-facebook/"><u>Optimizing Your Social Media Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-managing-fb-picture-sharing/"><u>Understanding & Managing Fb Picture Sharing</u></a></li>
+<li><a href="https://win-bits.techidaily.com/understanding-the-wmv-video-file-format-a-comprehensive-guide/"><u>Understanding the WMV Video File Format: A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unreliable-health-advice-from-digital-diagnosticians/"><u>Unreliable Health Advice From Digital Diagnosticians</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-ignites-dislike-towards-digital-societal-connections/"><u>What Ignites Dislike Towards Digital Societal Connections?</u></a></li>
 </ul></div>
 

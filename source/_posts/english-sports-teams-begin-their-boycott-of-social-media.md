@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-12-17T19:17:09.166Z
-updated: 2024-12-21T17:53:16.529Z
+date: 2025-01-01T07:01:18.974Z
+updated: 2025-01-06T03:56:20.172Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## England Sports' Social Media Blackout Has Begun
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -81,17 +81,16 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-top-10-capture-cards-for-youtube-you-should-know/"><u>[New] 2024 Approved The Top 10 Capture Cards for YouTube You Should Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-headlines-the-most-important-unspoken-tech-news/"><u>Beyond the Headlines: The Most Important Unspoken Tech News</u></a></li>
-<li><a href="https://facebook.techidaily.com/changing-personal-details-parental-guide-to-messenger-kids/"><u>Changing Personal Details: Parental Guide to Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-relationships-using-social-polls-on-whatsapp/"><u>Enhance Relationships Using Social Polls on WhatsApp</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/explore-the-best-graphic-design-programs-available-in-2eighteen-options-today/"><u>Explore the Best Graphic Design Programs Available in 2Eighteen Options Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-changing-landscape-four-key-loss-triggers/"><u>Facebook's Changing Landscape: Four Key Loss Triggers</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-infinix-note-30-vip-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Infinix Note 30 VIP? Fixed | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/reviving-the-spell-checker-a-guide-to-making-outlooks-suggestions-work-again/"><u>Reviving the Spell Checker: A Guide to Making Outlook's Suggestions Work Again</u></a></li>
-<li><a href="https://article-posts.techidaily.com/securing-your-anonymity-during-instagrams-live-feature/"><u>Securing Your Anonymity During Instagram's Live Feature</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/simplified-conversion-strategies-for-xml-ssa-and-ttml-into-srt-for-2024/"><u>Simplified Conversion Strategies for XML, SSA & TTML Into SRT for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/system-specs-to-elevate-your-big-sur-experience/"><u>System Specs to Elevate Your Big Sur Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-facebooks-oversight-board-and-what-does-it-do/"><u>What Is Facebook's Oversight Board and What Does It Do?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-laughlineart-memogallery/"><u>[New] 2024 Approved LaughLineArt MemoGallery</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-how-to-master-pip-in-google-chrome-a-comprehensive-guide/"><u>[Updated] In 2024, How to Master PIP in Google Chrome A Comprehensive Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-parallel-monitoring-system/"><u>[Updated] Parallel Monitoring System</u></a></li>
+<li><a href="https://win11.techidaily.com/decoding-the-code-uncovering-windows-program-hideouts/"><u>Decoding the Code: Uncovering Windows Program Hideouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-facebook-security-using-2fa-and-mtcg-together/"><u>Enhance Your Facebook Security: Using 2FA and MTCG Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-bulletin-boards-to-instagram-the-communication-evolution/"><u>From Bulletin Boards to Instagram: The Communication Evolution</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/gratuiti-online-trasforma-file-aif-in-mp4-con-convertitore-rapido-di-movavi/"><u>Gratuiti Online Trasforma File AIF in MP4 Con Convertitore Rapido Di Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-leaving-facebook-on-android/"><u>Master the Art of Leaving Facebook on Android</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/revolutionize-your-culinary-skills-with-these-7-handy-chatgpt-tricks-for-home-chefs/"><u>Revolutionize Your Culinary Skills with These 7 Handy ChatGPT Tricks for Home Chefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upsetting-effect-of-ios-145-on-facebook-ads/"><u>The Upsetting Effect of iOS 14.5 on Facebook Ads</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/transformar-tus-mp3-a-mp4-gratuitamente-el-mejor-software-online-para-cambiar-facilmente-el-formato/"><u>Transformar Tus MP3 a MP4 Gratuitamente: El Mejor Software Online Para Cambiar Fácilmente El Formato</u></a></li>
 </ul></div>
 

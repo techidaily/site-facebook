@@ -1,7 +1,7 @@
 ---
 title: Tech's Most Notorious Influencers Clashing Ideas
-date: 2024-08-08T11:25:54.520Z
-updated: 2024-08-09T11:25:54.520Z
+date: 2025-01-02T23:16:35.615Z
+updated: 2025-01-05T20:04:20.085Z
 tags:
   - facebook
 categories:
@@ -21,15 +21,13 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Jack Dorsey
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Co-founder and CEO of Twitter
 
@@ -41,12 +39,13 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## 2\. Elizabeth Holmes
 
 ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -62,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Best known for:** Founder of WikiLeaks
 
  Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
@@ -76,15 +79,13 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## 4\. Susan Wojcicki
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** CEO of YouTube
 
@@ -98,11 +99,12 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Bill Gates
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
@@ -119,9 +121,6 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
 ## 6\. Mark Zuckerberg
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
@@ -150,14 +149,11 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +162,20 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-path-to-success-integrating-past-recordings-in-real-time-on-social-media/"><u>[New] The Path to Success Integrating Past Recordings in Real Time on Social Media</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-essential-retro-effects-for-modern-video-creation/"><u>[Updated] Essential Retro Effects for Modern Video Creation</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-underwater-photographys-leading-seven-cams/"><u>[Updated] Underwater Photography's Leading Seven Cams</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-ideal-pixel-gatherings-unique-ringtone-repository/"><u>2024 Approved Ideal Pixel Gatherings Unique Ringtone Repository</u></a></li>
+<li><a href="https://windows11.techidaily.com/breakdown-utilizing-bluescreenview-for-professionals/"><u>Breakdown: Utilizing BlueScreenView for Professionals</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-install-creative-webcam-software-on-your-windows-pc-free-updates-included/"><u>Download and Install Creative Webcam Software on Your Windows PC - Free Updates Included</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exclusive-labor-day-offer-alert-discover-the-highly-recommended-samsung-tv-now-just-43-off-full-evaluation-available-on-zdnet/"><u>Exclusive Labor Day Offer Alert: Discover the Highly Recommended Samsung TV Now Just 43% Off - Full Evaluation Available on ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-different-messaging-services-not-fbs/"><u>Leveraging Different Messaging Services, Not FB's</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/radiant-faces-mastering-makeup-and-lighting-together-for-2024/"><u>Radiant Faces Mastering Makeup and Lighting Together for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-against-facebooks-intrusive-practices/"><u>Safeguard Against Facebook’s Intrusive Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-tuned-why-twitters-user-tracking-supports-uninterrupted-live-streams/"><u>Stay Tuned: Why Twitter’s User Tracking Supports Uninterrupted Live Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-image-mashups-on-instagram-and-facebook/"><u>The Art of Image Mashups on Instagram & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovered-secrets-possible-new-identity-for-fb/"><u>Uncovered Secrets: Possible New Identity for FB</u></a></li>
+</ul></div>
 

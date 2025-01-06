@@ -1,7 +1,7 @@
 ---
 title: The Importance of Selectivity in Facebook Friendships
-date: 2024-12-18T16:28:16.694Z
-updated: 2024-12-21T18:42:07.869Z
+date: 2025-01-02T04:34:02.527Z
+updated: 2025-01-06T02:44:29.567Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
 
@@ -43,10 +43,6 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 ## 2\. Impairment of the Privacy of Your Friends
 
 ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
 
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
  Unless the links you receive are from people you know, there is no point in clicking them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Personal Safety at Risk
@@ -73,6 +69,10 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
  Becoming friends with strangers allows them to see things like your office, home, shopping hauls, and vacations if you upload their images. If someone dangerous likes what they see, your possessions and finances can come at a risk.
 
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Become Habitual of Isolation From Family
 
@@ -84,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 
  Most people who become used to online chats lack the confidence to express themselves in front of others. Always take time to interact with people you know in real life to stop this risky contact with unknown people.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Lack of Common Things
 
  Adding your loved ones on Facebook means that you have mutual interests or relations. This creates a fun and engaging environment where everyone feels safe.
@@ -91,6 +95,10 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
  On the contrary, the strangers you add might not share the same interests as you. This lack of everyday stuff increases your friend list while reducing the engagement rate.
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Risk of Emotional Damage
 
@@ -108,10 +116,6 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 
  You never know when the other person will get rude or stop respecting you, so it's better to stay away from strangers on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. Chances of Addiction
 
 [Social media addiction is a real thing](https://www.makeuseof.com/what-is-social-media-addiction/) . It can be so distracting that you might waste a lot of time. Once you add strangers on Facebook, they try to chat and interact with you.
@@ -123,10 +127,6 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
  When you add unknown people, they might try to scam you for money and other personal belongings. This is also an emerging[Facebook marketplace scam](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) .
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
@@ -149,22 +149,21 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-beyond-google-other-ar-sticker-solutions/"><u>[New] Beyond Google Other AR Sticker Solutions</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-videographer-to-income-generator-on-youtube/"><u>[New] In 2024, From Videographer to Income Generator on YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-efficient-chromebook-screen-logger/"><u>[Updated] 2024 Approved Efficient Chromebook Screen Logger</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-secrets-of-sound-logging-ios-and-android-stealthy-tools-list/"><u>[Updated] Secrets of Sound Logging IOS & Android Stealthy Tools List</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-snapchat-savants-handbook-perfecting-every-boomerang-for-2024/"><u>[Updated] The Snapchat Savant's Handbook Perfecting Every Boomerang for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-v29-pro-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-discourse-decoded-learn-the-top-30-abbreviations-in-social-media/"><u>Digital Discourse Decoded: Learn the Top 30 Abbreviations in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-hidden-online-connections-on-fb/"><u>Discovering Hidden Online Connections on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-experience-strategies-for-a-personalized-fb-space/"><u>Elevate Your Experience: Strategies for a Personalized FB Space</u></a></li>
-<li><a href="https://win-forum.techidaily.com/expert-advice-secure-your-windows-pc-in-just-five-ways/"><u>Expert Advice: Secure Your Windows PC in Just Five Ways</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-as-a-corporate-communication-tool-explained/"><u>Facebook as a Corporate Communication Tool Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-claim-your-own-piece-from-facebooks-massive-settlement/"><u>How to Claim Your Own Piece From Facebook's Massive Settlement</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-smart-7-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix Smart 7 to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/pivotal-platform-policies-strategically-managing-your-online-collectives-on-facebook/"><u>Pivotal Platform Policies: Strategically Managing Your Online Collectives on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-duo-enhances-wnba-viewership/"><u>Social Network Duo Enhances WNBA Viewership</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unmasking-fake-chatgpt-platforms-securing-online-transactions/"><u>Unmasking Fake ChatGPT Platforms: Securing Online Transactions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/reating-content-with-confidence-free-youtube-training-for-2024/"><u>[New] Creating Content with Confidence Free YouTube Training for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-snap-to-stunning-photo-editing-secrets/"><u>[New] From Snap to Stunning Photo Editing Secrets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-maximizing-your-earnings-how-to-monetize-facebook-videos-successfully/"><u>[New] In 2024, Maximizing Your Earnings How to Monetize Facebook Videos Successfully</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prime-picks-the-finest-cardboard-compatible-virtual-reality-titles/"><u>2024 Approved Prime Picks The Finest Cardboard-Compatible Virtual Reality Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-blackout-facebook-whatsapp-in-a-daze/"><u>Digital Blackout: Facebook, WhatsApp in a Daze</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-user-loss-whats-the-real-tally/"><u>Facebook's User Loss: What's the Real Tally?</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/how-do-current-developments-influence-crypto-markets-insights-by-yl-computing-and-yl-software/"><u>How Do Current Developments Influence Crypto Markets? - Insights by YL Computing and YL Software</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-nubia-z50s-pro-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Nubia Z50S Pro Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-strategies-accelerating-facebook-user-shifts/"><u>Key Strategies: Accelerating Facebook User Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-professionalism-blocking-negative-profiles-from-fb/"><u>Maintaining Professionalism: Blocking Negative Profiles From FB</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/master-your-skills-with-the-groundbreaking-destiny-2s-broccoli-confrontation-fix/"><u>Master Your Skills with the Groundbreaking Destiny 2'S Broccoli Confrontation Fix</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photo-sharpening-mastery-with-1-10-online-editors/"><u>Photo Sharpening Mastery with #1-10 Online Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-unveiled-heres-how-you-can-protect-online-reputation/"><u>Secrets Unveiled? Here's How You Can Protect Online Reputation</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattering-illusions-decoding-key-findings-from-fb-papers/"><u>Shattering Illusions: Decoding Key Findings From FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-heartbeat-of-facebooks-infrastructure/"><u>Understanding the Heartbeat of Facebook's Infrastructure</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win-weather-app-companions-guide/"><u>Win Weather App Companions Guide</u></a></li>
 </ul></div>
 

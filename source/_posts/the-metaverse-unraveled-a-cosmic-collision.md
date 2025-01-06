@@ -1,7 +1,7 @@
 ---
 title: "The Metaverse Unraveled: A Cosmic Collision"
-date: 2024-08-08T11:28:08.212Z
-updated: 2024-08-09T11:28:08.212Z
+date: 2025-01-01T18:00:03.561Z
+updated: 2025-01-06T02:24:46.742Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/3de06be99a3225bd572539cfd46d39535123115f6
 So, what is the metaverse?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Etymology and Origin of the Term "Metaverse" and Its Concept
 
 ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
@@ -36,20 +37,13 @@ So, what is the metaverse?
 
  Nonetheless, after the arrival of the World Wide Web, people started to use the term cyberspace as a synonym of the internet in its present state. By the time Stephenson’s Snow Crash hit the shelves, the term “metaverse” caught on, and common use established it as the concept’s signifier.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## What Is the Metaverse?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
 
@@ -63,17 +57,13 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Internet vs. Metaverse
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -90,6 +80,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 ## How Far Off Are We From the Metaverse?
 
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
@@ -108,12 +102,13 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -121,14 +116,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  We made it to the moon already, the robotics industry grows by the day, and we already have the internet. With scientists working hard on improving VR technology and the advancements in telecommunications, what keeps us from building this shared persistent virtual universe?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +129,26 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-alchemy-of-animation-in-snapchat-videos/"><u>[New] The Alchemy of Animation in Snapchat Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-exploring-new-frontiers-with-vr-game-engines-for-2024/"><u>[Updated] Exploring New Frontiers with VR Game Engines for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortless-guide-to-postponing-software-improvements-on-your-windows-10-machine/"><u>Effortless Guide to Postponing Software Improvements on Your Windows 10 Machine</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-engagement-uploading-instagram-reels-to-facebook-profile/"><u>Enhancing Engagement: Uploading Instagram Reels to Facebook Profile</u></a></li>
+<li><a href="https://techtrends.techidaily.com/explore-the-upcoming-samsung-galaxy-z-fold-6-specs-expected-price-range-and-launch-window/"><u>Explore the Upcoming Samsung Galaxy Z Fold 6 - Specs, Expected Price Range & Launch Window</u></a></li>
+<li><a href="https://driver-download.techidaily.com/freshest-realtek-network-card-drivers-now-available-for-windows-users-7-and-10/"><u>Freshest Realtek Network Card Drivers Now Available for Windows Users (7 & 10)</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/how-to-add-images-on-flipbuilder-essential-guidelines-and-tips/"><u>How to Add Images on FlipBuilder: Essential Guidelines & Tips</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-tecno-phantom-v-fold-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Tecno Phantom V Fold Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broaden-your-messenger-network/"><u>How-To: Broaden Your Messenger Network</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/iphones-made-simple-how-to-save-and-savor-animated-images/"><u>IPhones Made Simple How to Save and Savor Animated Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-full-whatsapp-account-ability-post-privacy-policy-refusal/"><u>Maintaining Full WhatsApp Account Ability Post-Privacy Policy Refusal</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-digital-landscapes-smart-use-of-facebooks-timers/"><u>Navigating Digital Landscapes: Smart Use of Facebook’s Timers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-name-change-process-in-the-social-sphere-of-fb/"><u>Navigating the Name Change Process in the Social Sphere of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-user-specific-promotional-messages-online/"><u>Reduce User-Specific Promotional Messages Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-intrigue-is-your-device-secretly-curating-commerce/"><u>Tech's Intrigue: Is Your Device Secretly Curating Commerce?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/ultimate-fidelity-in-mac-screen-and-audio-recording-for-2024/"><u>Ultimate Fidelity in Mac Screen & Audio Recording for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-the-top-tier-games-in-apples-game-library/"><u>Unlocking the Top-Tier Games in Apple's Game Library</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-new-antitrust-legislation-targeting-giants/"><u>Unraveling New Antitrust Legislation Targeting Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-your-facebook-timeline/"><u>What Lies Beneath Your Facebook Timeline?</u></a></li>
+</ul></div>
 

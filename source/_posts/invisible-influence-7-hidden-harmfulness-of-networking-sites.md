@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2024-12-17T16:46:26.232Z
-updated: 2024-12-21T16:12:09.096Z
+date: 2025-01-05T06:14:20.381Z
+updated: 2025-01-05T19:17:36.227Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Depression and Anxiety
 
  Do you spend several hours per day browsing through social media? Spending too long on social networking sites could adversely affect your mood. In fact, chronic social users are more likely to report poor mental health, including symptoms of anxiety and depression.
@@ -40,16 +44,12 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
@@ -61,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  These online attacks often leave deep mental scars and even drive people to hurt themselves or take their own lives, in some cases. And as it turns out, cyberbullying doesn't just affect kids. Adults can become victims of online abuse, too. Since screens hide our faces, you can end up being a jerk on social media and other websites without even realizing it.
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. FOMO (Fear of Missing Out)
 
@@ -86,6 +90,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -98,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Unhealthy Sleep Patterns
 
  On top of increasing the cases of anxiety and depression, another bad thing about social media is that spending too much time on it can lead to poor sleep. Numerous studies have shown that increased use of social media has a negative effect on your sleep quality.
@@ -113,7 +117,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. General Addiction
@@ -127,10 +131,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -153,16 +153,16 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-guide-to-free-aesthetic-iphone-image-editing-software/"><u>[New] In 2024, The Ultimate Guide to FREE, Aesthetic iPhone Image Editing Software</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-efficient-file-transformation-in-vlc-from-mp4-to-various-formats/"><u>[Updated] In 2024, Efficient File Transformation in VLC From MP4 to Various Formats</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-gain-traction-in-the-digital-sphere-explore-the-quintessential-five-youtube-tactics/"><u>[Updated] In 2024, Gain Traction in the Digital Sphere - Explore the Quintessential Five YouTube Tactics</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-amplify-your-content-increase-your-subs-quickly/"><u>2024 Approved Amplify Your Content, Increase Your Subs Quickly</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-hotspots-for-gaining-freelance-assignments/"><u>5 Hotspots for Gaining Freelance Assignments</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-facebook-footsteps-an-analytical-journey-through-social-engagement/"><u>Behind the Scenes of Your Facebook Footsteps: An Analytical Journey Through Social Engagement</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-affordable-aethervault-substantial-file-safekeeping/"><u>In 2024, Affordable AetherVault Substantial File Safekeeping</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplified-process-to-eliminate-a-business-profile-from-fb/"><u>Simplified Process to Eliminate a Business Profile From FB</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/the-toms-system-guide-to-modern-electronic-tools-and-devices/"><u>The Tom's System Guide to Modern Electronic Tools and Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-text-to-3d-the-advent-of-ar-in-social-messaging/"><u>Transforming Text to 3D: The Advent of AR in Social Messaging</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-content-conundrum-youtubes-shorts-versus-tiktoks-the-decision/"><u>Video Content Conundrum YouTubes Shorts Versus TikToks – The Decision</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-stepwise-guide-to-convert-vimeo-media-to-mp3-for-2024/"><u>[Updated] Stepwise Guide to Convert Vimeo Media to MP3 for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-journey-through-time-a-comprehensive-guide-on-scanning-and-storing-old-prints/"><u>2024 Approved Journey Through Time A Comprehensive Guide on Scanning and Storing Old Prints</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-schedule-strategic-planning-of-limited-facebook-time/"><u>Creating a Schedule: Strategic Planning of Limited Facebook Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-social-medias-curated-advice-on-facebook/"><u>Dissecting Social Media’s Curated Advice on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-metaai-poised-to-become-a-conversational-technology-leader/"><u>Is MetaAI Poised to Become a Conversational Technology Leader?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138592254-9781463313678-quisqueya-un-pais-en-el-mundo/"><u>Quisqueya: Un País En El Mundo | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-transformation-navigating-the-meta-ai-terrain/"><u>Social Media Transformation: Navigating the Meta AI Terrain</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-gaining-access-through-trustedinstaller-on-windows-10/"><u>Step-by-Step Guide: Gaining Access Through TrustedInstaller on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-navigation-of-facebooks-transparency-for-users/"><u>Step-by-Step Navigation of Facebook's Transparency for Users</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/winning-strategies-to-fix-discords-setup-errors/"><u>Winning Strategies to Fix Discord's Setup Errors</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2024-12-23T20:54:17.847Z
-updated: 2024-12-27T20:01:51.815Z
+date: 2024-12-31T06:53:28.184Z
+updated: 2025-01-06T06:03:29.625Z
 tags:
   - facebook
 categories:
@@ -24,15 +24,19 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
-![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
@@ -49,16 +53,12 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -70,7 +70,7 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -82,7 +82,7 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -104,24 +104,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-seeking-authentic-ps2-play-check-out-the-5-best-android-simulators/"><u>[Updated] 2024 Approved Seeking Authentic PS2 Play? Check Out the 5 Best Android Simulators</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-in-2024-step-by-step-guide-sending-videos-in-discord/"><u>[Updated] In 2024, Step-by-Step Guide Sending Videos in Discord</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/adaptive-tech-past-meets-present-innovative-adapters-for-mounting-gtx-960-onto-outdated-agp-connections/"><u>Adaptive Tech Past Meets Present: Innovative Adapters for Mounting GTX 960 Onto Outdated AGP Connections</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/effortless-strategies-to-detect-duplicate-and-phony-likes/"><u>Effortless Strategies to Detect Duplicate and Phony Likes</u></a></li>
-<li><a href="https://facebook.techidaily.com/explaining-picture-content-on-social-media/"><u>Explaining Picture Content on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-safety-identifying-and-evading-scams/"><u>FB Safety: Identifying and Evading Scams</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/"><u>How to Create Amazing Facebook Cover Pictures for Your Timeline</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-poco-x6-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Poco X6 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-unrivaled-screenplays-reflective-of-diverse-themes/"><u>In 2024, Unrivaled Screenplays Reflective of Diverse Themes</u></a></li>
-<li><a href="https://techidaily.com/is-your-vivo-v27e-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Vivo V27e working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/rediscovering-real-connections-post-fb-exit/"><u>Rediscovering Real Connections Post FB Exit</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-sabbaticals-why-theyre-vital-for-well-being/"><u>Social Media Sabbaticals: Why They're Vital for Well-Being</u></a></li>
-<li><a href="https://facebook.techidaily.com/staying-out-of-whatsapps-updated-policy-no-consequences/"><u>Staying Out of WhatsApp's Updated Policy, No Consequences</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-to-downloading-the-best-free-windows-11-themes-top-15/"><u>The Ultimate Guide to Downloading the Best Free Windows 11 Themes (Top 15)</u></a></li>
-<li><a href="https://article-helps.techidaily.com/troubleshooting-stuttering-video-on-photo-booth-app-for-2024/"><u>Troubleshooting Stuttering Video on Photo Booth App for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-security-features-on-facebook-with-2fa-and-mcg/"><u>Unlocking Security Features on Facebook with 2FA and MCG</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-am-i-viewed-with-these-certain-facebook-promotions/"><u>Why Am I Viewed with These Certain Facebook Promotions?</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-digital-sanctuary-shun-these-3-privacy-breachers/"><u>Your Digital Sanctuary: Shun These 3 Privacy Breachers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-premier-video-breakdown-fifa-analysis-graphs/"><u>[New] In 2024, Premier Video Breakdown FIFA Analysis Graphs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unleashing-true-black-and-vivid-colors-on-asus-pa32u/"><u>[New] Unleashing True Black & Vivid Colors on ASUS PA32U</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-naming-excellence-the-top-10-ai-powered-title-makers-for-2024/"><u>[Updated] Naming Excellence The Top 10 AI-Powered Title Makers for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-essential-tips-for-film-saving-and-trimming-in-adobe-connect/"><u>2024 Approved Essential Tips for Film Saving and Trimming in Adobe Connect</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-applications-for-animating-3d-scenes/"><u>2024 Approved Premium Applications for Animating 3D Scenes</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-samsung-vs-lg-battle-of-360-degree-cameras/"><u>2024 Approved Samsung Vs LG Battle of 360-Degree Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/cleaning-up-clutter-removing-objectionable-pages-from-facebook/"><u>Cleaning Up Clutter: Removing Objectionable Pages From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/england-athletics-endorses-digital-detox-movement/"><u>England Athletics Endorses Digital Detox Movement</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-hands-on-the-official-epson-wf-2630-drivers-windows-7-81-and-10-compatible/"><u>Get Your Hands on the Official Epson WF 2630 Drivers: Windows 7, 8.1 & 10 Compatible</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oppo-a1-5g-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/modifying-facebook-group-regulations-efficiently/"><u>Modifying Facebook Group Regulations Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-perfection-designing-a-tailored-cover-photo-that-celebrates-you-and-your-avatar/"><u>Profile Perfection: Designing a Tailored Cover Photo that Celebrates You and Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/review-the-top-5-technology-flops/"><u>Review: The Top 5 Technology Flops</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-see-a-surge-in-crypto-commercials/"><u>Social Media to See a Surge in Crypto Commercials</u></a></li>
+<li><a href="https://common-error.techidaily.com/successfully-update-windows-11-despite-error-0xc1900208-guide/"><u>Successfully Update Windows 11 Despite Error 0Xc1900208 [GUIDE]</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-true-potential-of-fb-events-in-planning/"><u>Unveiling the True Potential of FB Events in Planning</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook’s Privacy Update: Essential Steps"
-date: 2024-12-24T17:53:22.916Z
-updated: 2024-12-27T19:33:28.406Z
+date: 2025-01-04T17:40:51.378Z
+updated: 2025-01-05T18:30:12.004Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -38,13 +42,17 @@ Here's how:
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
@@ -60,7 +68,7 @@ Here's how:
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Use Facebook's Privacy Center
@@ -69,10 +77,6 @@ Here's how:
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
@@ -80,7 +84,7 @@ Here's how:
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
@@ -103,10 +107,6 @@ Here's how:
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Protect Your Privacy
 
  Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
@@ -128,24 +128,18 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-amplify-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>[Updated] In 2024, Amplify Video Dynamics A Guide to Perfecting Jump Cutting</u></a></li>
-<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/elite-psd-fill-and-stroke-effects-for-2024/"><u>Elite PSD Fill & Stroke Effects for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensure-the-legitimacy-of-securityfacebookmailcom-as-a-security-email-service/"><u>Ensure the Legitimacy of @security@facebookmail.com as a Security Email Service</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-maintain-message-consistency-across-facebook-communities/"><u>How to Maintain Message Consistency Across Facebook Communities</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Realme V30? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagrams-economic-shift-how-creators-can-benefit-from-new-features/"><u>Instagram's Economic Shift: How Creators Can Benefit From New Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/intimate-listening-experience-spotify-miniplayer-in-fb/"><u>Intimate Listening Experience - Spotify Miniplayer in FB</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/master-basic-digital-tasks-the-ultimate-guide-to-hp-stream-11/"><u>Master Basic Digital Tasks: The Ultimate Guide to HP Stream 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-delays-offering-end-to-end-encryption-by-default-until-2023-heres-why/"><u>Meta Delays Offering End-to-End Encryption by Default Until 2023: Here's Why</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-settings-change-your-year-of-birth/"><u>Navigating Facebook Settings: Change Your Year of Birth</u></a></li>
-<li><a href="https://windows11.techidaily.com/optimized-development-space-unveiling-the-potential-of-devs-on-win11/"><u>Optimized Development Space: Unveiling the Potential of Devs on Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-your-secrets-top-7-steps-for-fb-privacy/"><u>Safeguard Your Secrets: Top 7 Steps for FB Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamlessly-integrate-friends-on-facebook-messenger/"><u>Seamlessly Integrate Friends on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-end-of-fbs-face-recognition-heres-why-meta-cut-ties/"><u>The End of FB's Face Recognition? Here’s Why Meta Cut Ties</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshoot-your-warzone-quick-solutions-for-directx-problems-in-4-steps/"><u>Troubleshoot Your Warzone: Quick Solutions for DirectX Problems in 4 Steps</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/unveiling-the-future-with-q500-typhoon-for-2024/"><u>Unveiling the Future with Q500 Typhoon for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211239542-9781633413559-witches/"><u>Witches | Free Book</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leveraging-filmora-insights-for-every-content-creator/"><u>[New] Leveraging Filmora Insights for Every Content Creator</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crafting-a-compelling-video-story-with-b-roll-variety-for-2024/"><u>[Updated] Crafting a Compelling Video Story with B-Roll Variety for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-stitching-photographs-into-an-eye-catching-canvas/"><u>[Updated] In 2024, Stitching Photographs Into an Eye-Catching Canvas</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-unmatched-document-enhancements-for-2024/"><u>[Updated] Unmatched Document Enhancements for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-master-level-insights-into-crafting-unique-and-memorable-instagram-vids/"><u>2024 Approved Master Level Insights Into Crafting Unique and Memorable Instagram Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-podcasts-2022-our-critical-and-creative-reviews/"><u>Best Podcasts 2022 - Our Critical and Creative Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147892222-enhancing-sharing-experience-move-fb-content-to-top-3-apps-with-ease/"><u>Enhancing Sharing Experience: Move Fb Content to Top 3 Apps with Ease.</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-60-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Realme Narzo 60 5G Phone Without Password?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-art-of-digital-alterations-tips-for-text-in-pictures/"><u>In 2024, The Art of Digital Alterations Tips for Text in Pictures</u></a></li>
+<li><a href="https://some-tips.techidaily.com/navigate-the-cloud-wealth-mastering-tough-deals-in-todays-overflowing-market-zdnet/"><u>Navigate the Cloud Wealth: Mastering Tough Deals in Today's Overflowing Market | ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/peel-layers-of-personalities-with-messengers-quiz-mechanics/"><u>Peel Layers of Personalities with Messenger's Quiz Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-curating-content-for-a-refined-social-media-experience/"><u>The Ultimate Guide to Curating Content for a Refined Social Media Experience</u></a></li>
 </ul></div>
 

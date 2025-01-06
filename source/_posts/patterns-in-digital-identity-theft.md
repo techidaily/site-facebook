@@ -1,7 +1,7 @@
 ---
 title: Patterns in Digital Identity Theft
-date: 2024-08-08T11:27:14.858Z
-updated: 2024-08-09T11:27:14.858Z
+date: 2025-01-02T21:10:54.531Z
+updated: 2025-01-05T16:41:48.038Z
 tags:
   - facebook
 categories:
@@ -22,13 +22,11 @@ thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba7
  So how often are social network accounts actually hacked? How can you limit how susceptible your accounts are?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Common Are Social Media Hacks?
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
@@ -44,8 +42,9 @@ thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba7
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
@@ -61,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba7
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Risks Associated With a Social Media Hack?
 
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
@@ -77,11 +77,12 @@ thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba7
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Handle a Social Media Hack
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -93,24 +94,18 @@ thumbnail: https://thmb.techidaily.com/8d42a5be41c7b4a2ee5933ca8170ed38361404ba7
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## You Can Avoid a Social Media Hack
 
  Social media account hacks occur more often than people might think. Even so, you can take proactive steps to make them less likely to happen to you. Consider applying the tips mentioned here, plus sharing them with people you know.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +114,20 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-5-top-android-ps2-game-simulators-for-2024/"><u>[New] 5 Top Android PS2 Game Simulators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ehind-the-scenes-of-gamers-elite-setup-for-2024/"><u>[New] Behind the Scenes of Gamers' Elite Setup for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-innovate-how-you-connect-with-tech-best-text-interpretation-tools-on-mac/"><u>[Updated] In 2024, Innovate How You Connect with Tech Best Text Interpretation Tools on Mac</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-14-pro-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone 14 Pro to Use USB Accessories Without Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazons-legal-battles-with-facebook-groups-admins/"><u>In-Depth Look at Amazon’s Legal Battles With Facebook Groups Admins</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/leapfrog-content-management-from-youtube-to-dailymotion-effortlessly-for-2024/"><u>Leapfrog Content Management From YouTube to Dailymotion Effortlessly for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ocidll-not-detected-heres-how-you-can-resolve-this-problem/"><u>OCI.DLL Not Detected? Here's How You Can Resolve This Problem</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/online-gratuite-videa-to-mkv-konvertor-movavi/"><u>Online Gratuite VIDEA TO MKV Konvertor - MOVAVI</u></a></li>
+<li><a href="https://facebook.techidaily.com/pausing-connections-severing-a-facebook-relationship/"><u>Pausing Connections: Severing a Facebook Relationship</u></a></li>
+<li><a href="https://facebook.techidaily.com/sailing-into-uncertainty-bad-headlines-ahead/"><u>Sailing Into Uncertainty: Bad Headlines Ahead?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-renaissance-embracing-the-metamate-spirit-at-facebook/"><u>The Digital Renaissance: Embracing the Metamate Spirit at Facebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/vimeo-video-mp4-conversion-how-to-download-in-mp4-format/"><u>Vimeo Video MP4 Conversion - How to Download in MP4 Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/visualizing-conversations-facebook-avatars-in-whatsapp-use-ceiling-150-characters/"><u>Visualizing Conversations: Facebook Avatars in WhatsApp Use Ceiling: 150 Characters</u></a></li>
+</ul></div>
 

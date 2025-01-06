@@ -1,7 +1,7 @@
 ---
 title: The Do's and Don'ts of Following/Unfollowing on Facebook
-date: 2024-08-08T11:28:10.103Z
-updated: 2024-08-09T11:28:10.103Z
+date: 2024-12-29T21:53:30.387Z
+updated: 2025-01-05T19:37:24.734Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 
  Here's everything you need to know about Facebook followers, and following and unfollowing people on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What Does Following Mean on Facebook?
 
  The follow feature is one of Facebook's most underused tools. Many people don't realize that you can use it to communicate with almost anyone on the network, even if you're not friends.
@@ -35,6 +32,10 @@ Facebook's follow feature works in two ways:
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Is the Follow Feature Necessary?
 
 There are two reasons to use the follow feature.
@@ -45,9 +46,6 @@ There are two reasons to use the follow feature.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Follow and Unfollow on Facebook
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
@@ -66,18 +64,23 @@ There are two reasons to use the follow feature.
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -89,9 +92,6 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
@@ -102,16 +102,10 @@ This same page contains three other settings you need to be aware of:
 
  To make your likes and follows public, go to your profile then**More > Likes** . Next, click on the three dots icon and choose**Edit the Privacy of Your Likes** . For each category, you can set the desired visibility.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Who Follows You on Facebook
 
  Seeing who is following you is much the same as seeing who you're following.
@@ -119,6 +113,10 @@ This same page contains three other settings you need to be aware of:
  Again, make your way to your list of friends. You can access it from your profile page. This time, locate the tab labeled**Followers** . If you don't have any followers, or you haven't allowed followers in your Facebook settings, you won't see the option.
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Can You Remove Facebook Followers?
 
@@ -135,22 +133,20 @@ This same page contains three other settings you need to be aware of:
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Should You Use the Follow Feature on Facebook?
 
  Hopefully, this article has given you a better understanding of the Facebook follow feature. Whether you decide to use the follow feature should depend on how you use Facebook.
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +155,18 @@ This same page contains three other settings you need to be aware of:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/updated-premier-tiktok-editing-apps-for-windows-users/"><u>[Updated] Premier TikTok Editing Apps for Windows Users</u></a></li>
+<li><a href="https://common-error.techidaily.com/common-fixes-for-non-responsive-night-light-setting-in-microsofts-latest-os/"><u>Common Fixes for Non-Responsive 'Night Light' Setting in Microsoft's Latest OS</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-edge-computers-optimal-machines-for-media-creation-for-2024/"><u>Cutting-Edge Computers Optimal Machines for Media Creation for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-photodna-scans-and-verifies-image-authenticity/"><u>How PhotoDNA Scans and Verifies Image Authenticity</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Honor Magic 5? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-image-enlargers-making-photographs-larger-without-losing-quality/"><u>In 2024, Best Image Enlargers Making Photographs Larger Without Losing Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-decision-day-for-trump-on-social-media/"><u>January Decision Day for Trump on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/neutralizing-online-presence-by-scrubbing-beliefs-and-policies/"><u>Neutralizing Online Presence by Scrubbing Beliefs & Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-for-dissolving-a-facebook-circle/"><u>Quick Tips for Dissolving a Facebook Circle</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-photographers-guide-to-resolving-iphone-lens-faults-7-essential-fixes-revealed/"><u>The Photographer’s Guide to Resolving iPhone Lens Faults - 7 Essential Fixes Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-and-validity-empower-your-groups-with-facebooks-moderation-mastery/"><u>Virtual Vigilance & Validity: Empower Your Groups with Facebook's Moderation Mastery</u></a></li>
+</ul></div>
 

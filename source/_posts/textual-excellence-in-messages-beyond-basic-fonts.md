@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-12-21T17:43:21.967Z
-updated: 2024-12-27T20:02:18.727Z
+date: 2024-12-31T00:09:30.769Z
+updated: 2025-01-05T19:45:37.454Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Text Formatting Works in Messenger
 
  While[Messenger has many features you can try](https://www.makeuseof.com/tag/facebook-messenger-features/) , you can easily format text in Facebook Messenger with the right characters or symbols. Each type of emphasis has a symbol that you need to type before and after the text that you want to emphasize.
@@ -38,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
 ## How to Make Italic Text in Messenger
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
@@ -58,20 +58,20 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
 
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
@@ -80,13 +80,13 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -121,18 +121,17 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-exclusive.techidaily.com/how-to-locate-the-scanner-feature-within-your-computers-system-tools-a-guide-by-yl-software-solutions/"><u>How to Locate the Scanner Feature Within Your Computer's System Tools: A Guide by YL Software Solutions</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-vivo-y200e-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Vivo Y200e 5G to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-marketing-layers-deconstructing-strategys-packaging/"><u>In 2024, Marketing Layers Deconstructing Strategy's Packaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-online-content-deletion-with-these-8-steps/"><u>Master Online Content Deletion with These 8 Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-no-security-code-issues-with-facebook-accounts/"><u>Navigating No-Security-Code Issues with Facebook Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/outwit-fb-monitoring-with-the-help-of-off-facebook-activity/"><u>Outwit FB Monitoring with the Help of Off-Facebook Activity</u></a></li>
-<li><a href="https://facebook.techidaily.com/premier-league-players-pledge-no-more-social-networking-for-harassment-purposes/"><u>Premier League Players Pledge No More Social Networking for Harassment Purposes</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevention-tips-spotting-suspicious-online-activities/"><u>Prevention Tips: Spotting Suspicious Online Activities</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-how-to-get-windows-essentials-with-movie-maker-for-both-32-and-64-bit-systems/"><u>Step-by-Step Tutorial: How to Get Windows Essentials with Movie Maker for Both 32 and 64-Bit Systems</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-tech-review-comprehensive-hardware-analysis/"><u>Tom's Tech Review: Comprehensive Hardware Analysis</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/understanding-and-repairing-sleay32dll-is-not-found-issues/"><u>Understanding and Repairing 'sleay32.dll Is Not Found' Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/utilizing-channels-for-effective-group-links/"><u>Utilizing Channels for Effective Group Links</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-evaluating-the-superiority-of-splitcams-recording/"><u>[Updated] 2024 Approved Evaluating the Superiority of SplitCam's Recording</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-100-virtual-bicycle-escapades-to-experience/"><u>[Updated] 2024 Approved Top 100 Virtual Bicycle Escapades to Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-guide-modifying-fb-picture-sharing/"><u>Detailed Guide: Modifying FB Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-safety-account-verification-is-(securityfbcom)-reliable/"><u>Facebook Safety Account Verification: Is <security@fb.com> Reliable?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpt-4-open-to-all-yet-premium-users-reap-6-exclusive-advantages/"><u>GPT-4: Open to All; Yet, Premium Users Reap 6 Exclusive Advantages.</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-sony-xperia-5-v-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Sony Xperia 5 V to Roku | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-tecno-pop-7-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Tecno Pop 7 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-repair-of-code-39-errors-in-your-windows-setup/"><u>Mastering the Repair of Code 39 Errors in Your Windows Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-of-podcasting-in-22-reviews-and-reflections/"><u>The Best of Podcasting in '22 - Reviews and Reflections</u></a></li>
+<li><a href="https://win-tips.techidaily.com/understanding-vsphere-promiscuous-mode-a-comprehensive-guide/"><u>Understanding vSphere Promiscuous Mode: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-our-exclusive-package-of-free-youtube-adornments-for-2024/"><u>Unveiling Our Exclusive Package of Free YouTube Adornments for 2024</u></a></li>
 </ul></div>
 

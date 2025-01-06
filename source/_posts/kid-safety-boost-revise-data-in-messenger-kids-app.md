@@ -1,7 +1,7 @@
 ---
 title: "Kid Safety Boost: Revise Data in Messenger Kids App"
-date: 2024-08-08T11:26:06.431Z
-updated: 2024-08-09T11:26:06.431Z
+date: 2024-12-30T03:32:41.304Z
+updated: 2025-01-05T20:50:43.315Z
 tags:
   - facebook
 categories:
@@ -27,18 +27,12 @@ thumbnail: https://thmb.techidaily.com/603cef112c71acaaa3fdccdd6f7a956de3ad09701
 
 Here's a look at the different fields you can add...
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Adding Pronouns
 
  Messenger Kids gives your child a chance to show their pronouns. He/him, She/her, and They/them are the available pronouns in Messenger Kids.
 
  Parents can choose one from the list, which will be saved for future reference. This simple step encourages kids to embrace their identities and come out to the world with confidence.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Profile Picture
 
  Like most adults, kids also love to share their pictures on social media. Although Messenger Kids does not have a story feature like the standard version, there is an option to change the profile picture.
@@ -49,9 +43,6 @@ Here's a look at the different fields you can add...
 
  When you[start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## How to Add Your Child’s Information in Messenger Kids
 
  You can change your child's information in Messenger Kids from your own Facebook account connected to the app.
@@ -68,12 +59,13 @@ Here's how to change the information through a smartphone:
 
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook-1.jpg)
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -89,12 +81,13 @@ Close
 
 ### How to Change Your Kid's Profile Picture
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -105,13 +98,22 @@ To change your child's profile image:
 3. Tap on the**Checkmark** to update the profile picture.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Change Name and Date of Birth
 
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -122,13 +124,18 @@ Close
 3. Select**Save** after making the desired changes.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Change Pronouns
 
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -138,9 +145,6 @@ Follow these steps to change pronouns in the Messenger Kids app:
 2. Select your child's pronouns.
 3. Select**Save** . You can also clear pronouns if already listed.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Changing Personal Information on Messenger Kids Via Desktop
 
  Messenger Kids enables parents to change their kid's information through a desktop computer as well. You can use the same method when using a Chromebook or browser on your phone (like Safari for iPhone or Google Chrome for Android).
@@ -153,14 +157,8 @@ Follow these steps:
 3. Click**Messenger Kids** to open the accounts connected.
 4. Choose the account you wish to make changes to.
 5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
  7\. Bring your cursor to the name area and change it accordingly. Remember, it is mandatory to have a first and surname.
 7. Similarly, update the date of birth and gender of your child.
@@ -169,8 +167,9 @@ Follow these steps:
 ![Delete Messenger kids Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Delete-Messenger-kids-Account.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Changing Information on Messenger Kids Made Easy
 
  Messenger Kids integrates interesting features and safe technology to let kids socialize with their loved ones. Parents can change information on the Messenger Kids account to keep everyone updated and maintain security.
@@ -179,14 +178,11 @@ Follow these steps:
 
  It is possible to perform this activity by using the Facebook app on a smartphone or desktop browser. We hope this step-by-step guide will help you make relevant changes to your kid's Messenger account as desired.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -195,4 +191,19 @@ Follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-10-free-passport-photo-maker-for-desktop-and-online/"><u>[New] 10 Free Passport Photo Maker for Desktop and Online</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-innovation-unveiled-the-complete-moto-z2-review/"><u>[Updated] In 2024, Innovation Unveiled The Complete Moto Z2 Review</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-10-most-advanced-hashtag-monitors-on-social-media-sites-fbtweetinsta/"><u>2024 Approved 10 Most Advanced Hashtag Monitors on Social Media Sites (FB/Tweet/Insta)</u></a></li>
+<li><a href="https://location-fake.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-hp-universal-printer-drivers-for-windows-free/"><u>Download the HP Universal Printer Drivers for Windows - FREE</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/efficiently-install-updated-hp-officejet-pro-8720-drivers-on-your-windows-pc/"><u>Efficiently Install Updated HP OfficeJet Pro 8720 Drivers on Your Windows PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-text-with-pics-facebooks-role-in-whatsapp-talks/"><u>Enhancing Text with Pics: Facebook's Role in WhatsApp Talks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-htc-u23-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On HTC U23</u></a></li>
+<li><a href="https://facebook.techidaily.com/promoting-knowledge-in-social-media-facebooks-next-step/"><u>Promoting Knowledge in Social Media: Facebook's Next Step</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streaming-video-evaluation-report-for-2024/"><u>Streaming Video Evaluation Report for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-free-transformation-why-you-should-abandon-facebooks-online-world/"><u>Tech-Free Transformation: Why You Should Abandon Facebook's Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-in-on-social-media-planning-with-facebook/"><u>Weighing In on Social Media Planning with Facebook</u></a></li>
+</ul></div>
 

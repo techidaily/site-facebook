@@ -1,7 +1,7 @@
 ---
 title: "Revolutionize Your FB Experience: Add/Remove Links"
-date: 2024-08-08T11:28:01.494Z
-updated: 2024-08-09T11:28:01.494Z
+date: 2024-12-29T22:55:46.857Z
+updated: 2025-01-05T23:02:16.265Z
 tags:
   - facebook
 categories:
@@ -29,46 +29,43 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 
 ### Home
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
 
  The first shortcut to the left is Home (the homepage), represented by a house icon. This is where you'll access your Newsfeed and see a bunch of recommended pages. This shortcut can't be removed.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Friends
 
 ![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Friends shortcut is an icon with two people. This is where you can view all your Facebook friend requests and suggested friends to add. Facebook might also suggest importing your contacts. If you remove the tab, you'll get friend request notifications in the Notifications tab instead.
 
  There is a[difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Profile
 
 ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### Notifications
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Menu
 
 ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
@@ -86,41 +83,34 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 
  You can easily[leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ### Watch
 
 ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Gaming
 
 ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Feeds
 
 [In July 2022, Facebook introduced Feeds](https://www.makeuseof.com/facebook-new-home-and-feeds-tabs/) . This tab allows you to have better control over what you see; you can view posts from All, Favorites, Friends, Groups, or Pages. The shortcut looks like a newspaper icon with a clock and can be removed.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Quickly Remove Facebook Shortcuts
 
  Long-pressing an icon from the shortcuts bar is the simplest way to remove a shortcut in the Facebook app. But you can only hide or unpin shortcuts with this method, not add them.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![facebook-app-long-press-shortcut](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-long-press-shortcut.JPEG)
 
 To quickly hide Facebook shortcuts by long-pressing:
@@ -136,14 +126,16 @@ To quickly hide Facebook shortcuts by long-pressing:
 ![facebook-app-menu-options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu-options.JPEG)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![facebook-app-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-settings.JPEG)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -160,14 +152,15 @@ To add or hide Facebook shortcuts via the settings:
 * **Available:** Selecting the Auto setting on a shortcut will let Facebook add, remove, or rearrange them automatically based on how frequently you use them.
 * **Hidden:** When you Hide a shortcut from the navigation bar, it gets put in this category.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Quickly Turn Notification Dots On and Off
 
  If you'd prefer not to see notification dots on your shortcut icons, you can disable them by long-pressing. It works the same as removing a shortcut by long-pressing in the first section above.
 
 ![facebook-app-notification-dots-long-press](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-notification-dots-long-press.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To disable and enable Facebook notification dots by long-pressing:
 
@@ -175,16 +168,21 @@ To disable and enable Facebook notification dots by long-pressing:
 2. From the pop-up, select**Turn off notification dots** .
 3. To turn these dots back on, long press on the shortcut icon again, and select**Turn on notification dots** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Turn Notification Dots On and Off From the Settings
 
  You can also customize the notification dots from your Facebook settings.
 
 ![facebook-app-navigation-bar-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-navigation-bar-settings.JPEG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -200,14 +198,11 @@ To disable and enable Facebook notification dots from the settings:
 
  Shortcuts are there to make navigation quick and convenient. But let's be real, they can also clog up your screen. Follow the above guide to choose which shortcuts you want to display, get rid of, and whether or not you want to see their notification dots.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,4 +211,23 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-ableton-tricks-to-subtly-lower-track-amplitude-for-2024/"><u>[New] Ableton Tricks to Subtly Lower Track Amplitude for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-essential-skills-to-develop-for-thumbnail-designers/"><u>[Updated] 2024 Approved Essential Skills to Develop for Thumbnail Designers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-fresh-film-views-ranked-alternatives-1-7-for-2024/"><u>[Updated] Fresh Film Views Ranked Alternatives #1-7 for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-energy-kits-for-hero5-official-and-alternative-products/"><u>2024 Approved Ultimate Energy Kits for Hero5 - Official & Alternative Products</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/experience-the-marvels-like-never-before-dive-into-the-world-of-augmented-reality-with-apples-latest-innovation-vision-pro-announcement-date-may-30/"><u>Experience the Marvels Like Never Before: Dive Into the World of Augmented Reality with Apple's Latest Innovation, Vision Pro - Announcement Date: May 30</u></a></li>
+<li><a href="https://discover-great.techidaily.com/expert-tips-for-restoring-your-motherboards-functionality-with-yl-software-solutions/"><u>Expert Tips for Restoring Your Motherboard's Functionality with YL Software Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-2d-to-3d-a-tutorial-for-social-media-success/"><u>From 2D to 3D: A Tutorial for Social Media Success</u></a></li>
+<li><a href="https://win-info.techidaily.com/guia-completa-sobre-el-proceso-de-restauracion-del-respaldo-en-windows-server/"><u>Guía Completa Sobre El Proceso De Restauración Del Respaldo en Windows Server</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-social-media-platforms-can-stop-the-spread-of-covid-19-misinformation/"><u>How Social Media Platforms Can Stop the Spread of COVID-19 Misinformation</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-reno-11-pro-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Reno 11 Pro 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-2fa-for-safer-email-security-in-gmail-and-outlook/"><u>Mastering 2FA for Safer Email Security in Gmail & Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-reach-with-timely-posts/"><u>Maximizing Facebook's Reach with Timely Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-managing-your-facebook-friends-list/"><u>The Do's and Don'ts of Managing Your Facebook Friends List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-increase-in-crypto-advertising-on-facebook-and-instagram/"><u>The Increase in Crypto Advertising on Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-metaverse-top-6-facebook-revolutions/"><u>Unveiling the Metaverse: Top 6 Facebook Revolutions</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/1728484646586-windows-1011/"><u>Windows 10/11におけるデフォルトのダウンロードファイル消滅 - 解決策と復元手順</u></a></li>
+</ul></div>
 

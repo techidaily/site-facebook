@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-12-26T18:48:33.181Z
-updated: 2024-12-27T18:17:11.654Z
+date: 2024-12-30T00:14:15.008Z
+updated: 2025-01-06T09:12:28.444Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,20 +79,21 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unlock-the-power-of-any-video-with-these-free-online-editors/"><u>[Updated] 2024 Approved Unlock the Power of Any Video With These Free Online Editors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-unseen-virtues-of-vector-graphics-mastery/"><u>[Updated] The Unseen Virtues of Vector Graphics Mastery</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-your-online-anonymity-with-these-7-methods-fb/"><u>Enhance Your Online Anonymity with These 7 Methods (FB)</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-insider-info-on-facebooks-rebranding-plans/"><u>Exploring Insider Info on Facebook's Rebranding Plans</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exposing-fabrications-debunking-9-prevalent-myths-surrounding-ai-chat-technology/"><u>Exposing Fabrications: Debunking 9 Prevalent Myths Surrounding AI Chat Technology</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-oppo-a78-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Oppo A78 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-selection-prime-auto-tracking-tech-review/"><u>In 2024, Expert Selection Prime Auto Tracking Tech Review</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-your-apple-iphone-14-pro-passcode-4-easy-methods-with-or-without-itunes-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Your Apple iPhone 14 Pro Passcode 4 Easy Methods (With or Without iTunes) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-recovery-plan-tools-and-methods-for-deleting-images/"><u>Instagram Recovery Plan: Tools & Methods for Deleting Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/marketing-strategy-evolution-on-social-platforms-fb-and-insta/"><u>Marketing Strategy Evolution on Social Platforms – FB and Insta</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210761388-9780593579367-racial-wellness/"><u>Racial Wellness | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-amplifying-your-facebook-post-reach/"><u>Strategies for Amplifying Your Facebook Post Reach</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-resolving-the-dreaded-blackout-during-facetime-calls/"><u>Ultimate Guide: Resolving the Dreaded Blackout During FaceTime Calls</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-account-protection-effective-use-of-2fa-on-major-mail-services/"><u>Unlocking Account Protection: Effective Use of 2FA on Major Mail Services</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earnings-demystified-youtube-shorts-revenue-split-explained/"><u>[New] In 2024, Earnings Demystified YouTube Shorts Revenue Split Explained</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-quickly-snag-and-store-gifs-from-your-favorite-social-networks/"><u>[New] Quickly Snag and Store GIFs From Your Favorite Social Networks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-detailed-guide-to-advanced-usage-in-macs-preview-app/"><u>2024 Approved Detailed Guide to Advanced Usage in Mac's Preview App</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-tips-for-effective-hashtag-utilization-in-instagram-marketing/"><u>2024 Approved Essential Tips for Effective Hashtag Utilization in Instagram Marketing</u></a></li>
+<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-facebooks-surveillative-approach-via-off-fb-settings/"><u>Dismantling Facebook's Surveillative Approach via Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-and-gifpedia-face-possible-disentanglement-why-now/"><u>FB and Gifpedia Face Possible Disentanglement; Why Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-severing-spotify-facebook-ties-completely/"><u>Guide to Severing Spotify-Facebook Ties Completely</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-add-edit-and-optimize-youtube-tagstitledescription-for-more-views/"><u>How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/karaoke-cloud-pro-upgrade-alert-from-february-3rd-2017-a-fresh-batch-of-50-songs-weekly-for-your-subscription-service-delight/"><u>Karaoke Cloud Pro Upgrade Alert: From February 3Rd, 2017 - A Fresh Batch of 50 Songs Weekly for Your Subscription Service Delight!</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-landscapes-identifying-facebook-connections/"><u>Navigating Social Landscapes: Identifying Facebook Connections</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/screencast-strategies-unleashed-powerful-ideas-inside-for-2024/"><u>Screencast Strategies Unleashed Powerful Ideas Inside for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-virtual-networking-hub/"><u>Streamlining Your Virtual Networking Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebook-view-more-simplified-now/"><u>Tailoring Facebook View More Simplified Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pre-deletion-dilemma-balancing-connectivity-and-privacy/"><u>The Pre-Deletion Dilemma: Balancing Connectivity and Privacy</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-3d-animation-on-a-budget-free-and-affordable-software-options-you-need-to-know/"><u>Updated 2024 Approved 3D Animation on a Budget Free and Affordable Software Options You Need to Know</u></a></li>
 </ul></div>
 

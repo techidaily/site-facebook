@@ -1,7 +1,7 @@
 ---
 title: The Essential Dictionary of Facebook Symbolism
-date: 2024-08-08T11:25:43.073Z
-updated: 2024-08-09T11:25:43.073Z
+date: 2025-01-04T19:25:37.853Z
+updated: 2025-01-06T08:09:06.895Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
 
  In this article, we take a look at what all of these symbols mean, from the Like button to others you'll come across—such as icons on Facebook menus and symbols for your status update.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Social Facebook Symbols
 
  The following are some of the more common Facebook icons for social interactions. Most people who use Facebook regularly will recognize them fairly easily.
@@ -29,18 +33,18 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
 
  Facebook has expanded the**Like** button to include other symbols or reactions, including Love, Care, Haha, Wow, Sad, and Angry. These symbols express how the post makes you feel.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Reaction Icons on Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/reaction-icons-on-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Create Post Symbols
 
  Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
@@ -65,9 +69,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  The options in**Activities** are a bit more interesting as you can specify what you're doing. Clicking on any of these reveals more symbols for your post.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Activities Icons for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/activities-icons-for-facebook-post.jpg)
 
  While you can only choose one feeling or activity to sit alongside your name on the post, the range of options here is honestly impressive and can benefit more than your personal posts.
@@ -94,8 +95,9 @@ What do these Facebook symbols mean?
  All-in-all, creating a Facebook post comes with a great many symbols and tools, but the above are the most essential.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Icons When Managing Facebook Posts
 
  It's also important to consider the symbols that show up alongside posts when you click the**Ellipsis** button in the upper right corner of a post window.
@@ -118,42 +120,38 @@ What do these Facebook symbols mean?
 
  Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Navigation Symbols
 
  There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Facebook Menu Icons
 
  On the right side of this toolbar, you'll notice three buttons. The first pulls out a menu where you can find friends, search local events, create posts, stories, pages, or ads, and do a host of other things.
 
 ![Menu Icons on Facebook Web App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/menu-icons-on-facebook-web-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The second is a shortcut to Facebook Messenger, where you can get in touch with your friends via direct message and group chat. You can customize your Messenger settings here, too.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Chats Icon and Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/chats-icon-and-tools-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The**bell icon** is where you can view your Facebook notifications, broken into two filters:**All** and**Unread** . The**More** button contains icons for marking everything as read, adjusting settings, and opening a notifications window.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
 
  At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Facebook Navigation Icons
 
  These next Facebook symbols will be well-known to regular Facebook users. If you click on the**Home** tab, you'll see dozens of icons on the left side.
@@ -191,9 +189,6 @@ What do these Facebook symbols mean?
 
  Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Symbols on Facebook: Explained
 
  Once you know what all of these Facebook symbols mean, it's clear that this social network is good for much more than just scrolling mindlessly.
@@ -202,14 +197,11 @@ What do these Facebook symbols mean?
 
  This technique won't fail you, but read labels and descriptions carefully so you don't mess with anything important. The site is a rabbit hole, but all of these icons on Facebook make diving in all the more tempting.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -218,4 +210,20 @@ What do these Facebook symbols mean?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-visualizing-the-spectrum-of-curves-in-photoshop/"><u>[New] In 2024, Visualizing the Spectrum of Curves in Photoshop</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-economic-expressiveness-in-video-theming-tools/"><u>[Updated] In 2024, Economic Expressiveness in Video Theming Tools</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-uncovering-the-best-unnoticed-speech-to-text-on-mac/"><u>[Updated] In 2024, Uncovering the Best Unnoticed Speech to Text on Mac</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/comment-fonctionne-la-resolution-dun-dvd-explication-detaillee-pour-comprendre-les-formats-video/"><u>Comment Fonctionne La Résolution D'un DVD - Explication Détaillée Pour Comprendre Les Formats Vidéo</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-team-dynamics-with-facebooks-top-8-innovations/"><u>Elevating Team Dynamics with Facebook’s Top 8 Innovations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-elevate-everyday-narratives-gratuitous-facebook-enhancers/"><u>In 2024, Elevate Everyday Narratives Gratuitous Facebook Enhancers</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-facebooks-exit-route-via-android/"><u>Navigate Facebook's Exit Route via Android</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/secrets-unveiled-complete-guide-to-live-tv-recording-via-windows-pcs-for-2024/"><u>Secrets Unveiled Complete Guide to Live TV Recording via Windows PCs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-an-individualized-online-photo/"><u>Tailoring an Individualized Online Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-indirectness-the-rationale-behind-vague-blogging/"><u>Why Indirectness? The Rationale Behind Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-youll-thank-your-smartphone-for-these-9-advantages/"><u>Why You'll Thank Your Smartphone for These 9 Advantages</u></a></li>
+</ul></div>
 

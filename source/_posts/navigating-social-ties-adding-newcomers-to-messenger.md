@@ -1,7 +1,7 @@
 ---
 title: "Navigating Social Ties: Adding Newcomers to Messenger"
-date: 2024-08-08T11:30:05.306Z
-updated: 2024-08-09T11:30:05.306Z
+date: 2025-01-01T02:48:44.010Z
+updated: 2025-01-06T02:42:56.151Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
 
  But how can you actually add contacts to Facebook Messenger? Can you add them on Messenger but not on Facebook? And what if they don’t even have Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## How Do I Add New Contacts on Messenger?
 
  If you have the person you want to interact with already added as a Facebook friend, you can chat to them via Messenger really easily.
@@ -32,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
 
  Suggested contacts will appear, or you can type in a name in the “To:” field to filter that list. All applicable Facebook friends and groups will appear, so simply click on the one you want and start talking!
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Does Messenger Automatically Add Contacts?
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
@@ -51,25 +45,29 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
 
  You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can I Add Someone on Messenger but Not Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  You don’t need to add someone as a friend on Facebook in order to chat to them on Messenger.
 
  All you have to do is go on Facebook, search for their name, and click on the profile of the person you want to chat to. Underneath their profile picture and banner, you’ll see three icons. You don’t want to click on the ellipsis, or on “Add Friend”. Instead, click**Message** . This will open up the Messenger app and let you talk to them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can You Add Someone on Messenger Without a Facebook Profile?
 
@@ -81,10 +79,11 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -96,6 +95,10 @@ Close
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do I Delete Chats From Messenger?
 
  Let’s say you’ve got loads of chat threads open on Messenger now and want to close some. You have a few options to delete the conversations. In case you’re wondering, blocking someone won’t delete the chats on Messenger, but they won’t be able to send new messages from that account.
@@ -106,21 +109,15 @@ So how can you delete old messages on Messenger?
 
  You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Add Friends on Messenger With Ease
 
  You can now keep in touch with your family and friends easily through Facebook and its associated Messenger app. Of course, there are plenty of instant messaging alternatives, but if you’re intent on sticking with Meta, you can at least make sure your chats are secure by keeping them encrypted too.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +126,16 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-elite-srs-conversions-maximum-benefits-for-tech-enthusiasts/"><u>[Updated] In 2024, Elite SRS Conversions Maximum Benefits for Tech Enthusiasts</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/899-intelligent-multitasking-laptop-ace-magical-x1-equipped-with-dual-stunning-full-hd-screens/"><u>$899 Intelligent Multitasking Laptop – Ace Magical X1, Equipped With Dual Stunning Full HD Screens</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-overcome-constant-crashing-in-valheim-game/"><u>Fixes and Solutions: Overcome Constant Crashing in Valheim Game</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-seamless-tweet-integration-on-facebook-platform/"><u>In 2024, Seamless Tweet Integration on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-choices-at-the-click-of-a-button-for-fb-feeds/"><u>Making Choices at the Click of a Button for FB Feeds</u></a></li>
+<li><a href="https://techtrends.techidaily.com/overcome-your-apple-watch-step-tracking-challenges-with-these-fixes/"><u>Overcome Your Apple Watch Step Tracking Challenges with These Fixes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-during-outages-a-survival-guide/"><u>Social Networking During Outages: A Survival Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-location-services-on-facebook-messenger/"><u>Unlock Location Services on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up/"><u>What Is Big Tech and Why Is the Government Trying to Break It Up?</u></a></li>
+</ul></div>
 

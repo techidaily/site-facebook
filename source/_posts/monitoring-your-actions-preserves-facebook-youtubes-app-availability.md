@@ -1,7 +1,7 @@
 ---
 title: Monitoring Your Actions Preserves Facebook, YouTube's App Availability
-date: 2024-08-08T11:27:44.813Z
-updated: 2024-08-09T11:27:44.813Z
+date: 2025-01-05T01:32:52.185Z
+updated: 2025-01-05T22:18:48.437Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb
  Keeping this in mind, you start to see why Facebook remains in strong opposition of Apple's' new privacy options. Much of Facebook's earnings probably come from personalized ads, after all.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Tries to Convince You to Enable App Tracking
 
  In continued pushback against Apple's iOS 14 privacy updates, the iOS apps for Facebook and Instagram have added a new notice. The pop-ups are near identical on both platforms, saying that the company (Facebook owns Instagram) uses info on your activity to help keep the app(s) "free of charge."
@@ -33,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb
 > \[Apple's prompt\] discourages people from giving their permission, and provides little detail about what this decision means. (...) We will show an educational screen before presenting Apple’s prompt to help people make an informed decision about how their information is used.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why Does Facebook Oppose the Apple iOS 14 Update So Much?
 
  The iOS 14 update added**App Tracking Transparency** , which requires all your apps that track user behavior to ask you for explicit permission to do so before anything else. You can tweak this setting for each individual app, or apply the same setting to all apps via the**Settings** menu.
@@ -44,22 +46,20 @@ thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb
  Related: [Apple Releases iOS 14.5 With a Long List of New Features](https://www.makeuseof.com/apple-releases-ios-14-5-update-iphone-ipad-ipod-touch/)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Facebook Go Back on Its Word?
 
  The new pop-up designs were first noticed by technology researcher Ashkan Soltani, who also notes in his Twitter thread that Facebook's homepage once read "free and always will be." Oh, the sweet potential irony.
 
  That slogan was silently removed from the site in 2019, so clearly that isn't the case anymore. We may soon see Facebook and Instagram adding premium features or versions of their apps—especially now that Apple's latest updates just might significantly reduce how much income the company makes from advertisers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -68,4 +68,20 @@ thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-navigate-the-world-of-snapchat-communication-in-a-blink-for-2024/"><u>[Updated] Navigate the World of Snapchat Communication in a Blink for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-sound-excellence-for-podcasters-ultimate-audio-interface-guide-for-2024/"><u>[Updated] Sound Excellence for Podcasters Ultimate Audio Interface Guide for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/10-superior-approaches-to-live-cricket-broadcasting-for-2024/"><u>10 Superior Approaches to Live Cricket Broadcasting for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-techniques-to-deactivate-auto-played-podcast-suggestions-in-spotify/"><u>2024 Approved Techniques to Deactivate Auto-Played Podcast Suggestions in Spotify</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-apples-hidden-gem-an-unseen-superior-function-of-the-latest-iphone-revealed/"><u>Discover Apple's Hidden Gem: An Unseen Superior Function of the Latest iPhone - Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-what-facebooks-updated-page-labels-indicate/"><u>Exploring What Facebook's Updated Page Labels Indicate</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-protected-social-network-video-retrieval/"><u>Guide to Protected Social Network Video Retrieval</u></a></li>
+<li><a href="https://facebook.techidaily.com/journeying-into-jargon-free-messaging-a-newbies-primer/"><u>Journeying Into Jargon-Free Messaging: A Newbie's Primer</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-social-media-data-unravelled/"><u>Life Without Social Media: Data Unravelled</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-metaverse-awaits-gear-up-with-these-tools/"><u>The Metaverse Awaits Gear Up with These Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-stories-googles-pivotal-news-highlights/"><u>Top Stories: Google's Pivotal News Highlights</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unstick-your-iphone-from-continuous-data-recovery-phase-with-these-tips/"><u>Unstick Your iPhone From Continuous 'Data Recovery' Phase with These Tips</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-90-lite-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor 90 Lite? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

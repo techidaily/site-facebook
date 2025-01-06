@@ -1,7 +1,7 @@
 ---
 title: "Leadership and Division: The Top 6 in Tech World"
-date: 2024-08-08T11:28:52.919Z
-updated: 2024-08-09T11:28:52.919Z
+date: 2024-12-30T06:30:53.151Z
+updated: 2025-01-05T18:54:32.546Z
 tags:
   - facebook
 categories:
@@ -21,12 +21,13 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Jack Dorsey
 
 ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Co-founder and CEO of Twitter
 
@@ -38,12 +39,13 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Elizabeth Holmes
 
 ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -55,12 +57,13 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Julian Assange
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Founder of WikiLeaks
 
@@ -76,11 +79,12 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Susan Wojcicki
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
@@ -97,10 +101,11 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
 ## 5\. Bill Gates
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -116,9 +121,6 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
 ## 6\. Mark Zuckerberg
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
@@ -139,9 +141,6 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Least Polarizing Tech Figure?
 
  It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
@@ -150,14 +149,11 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +162,20 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-transform-slideshow-into-video/"><u>[New] 2024 Approved Transform Slideshow Into Video</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-exploring-the-nocturnal-world-through-your-iphone-lens/"><u>[New] Exploring the Nocturnal World Through Your iPhone Lens</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-how-to-record-a-movie-on-pc-mac-and-smartphones/"><u>[New] In 2024, How to Record a Movie on PC, Mac, and Smartphones?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-harnessing-viral-power-your-pathway-to-youtube-fame/"><u>[Updated] In 2024, Harnessing Viral Power Your Pathway to YouTube Fame</u></a></li>
+<li><a href="https://solve-news.techidaily.com/1725288774935-dvd/"><u>高品質、長持ち型: DVD動画に最適な安全な保存テクニックを解明</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/boosting-your-instagrams-video-popularity-for-2024/"><u>Boosting Your Instagram's Video Popularity for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-assessment-of-affordable-bouncie-gps-car-locator-simplified-tracking-for-easy-use/"><u>Expert Assessment of Affordable Bouncie GPS Car Locator - Simplified Tracking for Easy Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-tools-for-seamless-team-project-execution/"><u>Leveraging Facebook's Tools for Seamless Team Project Execution</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-icons-understanding-fb-symbols/"><u>Mastering Social Media Icons - Understanding FB Symbols</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-steam-troubles-eliminate-black-screens-with-these-7-effective-solutions/"><u>Mastering Steam Troubles: Eliminate Black Screens with These 7 Effective Solutions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solution-how-to-restore-audio-during-your-twitch-broadcasts/"><u>Solution: How to Restore Audio During Your Twitch Broadcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-virtual-self-in-the-facebook-world/"><u>Tailoring Your Virtual Self in the Facebook World</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-metas-endorsed-content-on-brand-value/"><u>The Impact of Meta's Endorsed Content on Brand Value</u></a></li>
+</ul></div>
 

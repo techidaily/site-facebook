@@ -1,7 +1,7 @@
 ---
 title: Pictorial Prompting Leads to Stylistic Textual Transformation - Facebook AI
-date: 2024-08-08T11:25:56.387Z
-updated: 2024-08-09T11:25:56.387Z
+date: 2024-12-31T20:05:27.515Z
+updated: 2025-01-05T17:11:24.054Z
 tags:
   - facebook
 categories:
@@ -20,19 +20,20 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
  From identity theft to fake news, we've seen all the bad side of this tech. But Facebook's one company that wants to use it for future innovations instead.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is TextStyleBrush?
 
  Researchers over at Facebook have introduced their new self-supervised AI model, "TextStyleBrush" on[Newsroom](https://about.fb.com/news/2021/06/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word/) . Using just one image of a single word, it can edit and replace the text while copying the font or visual style that it was written in.
 
  The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
 
@@ -47,8 +48,9 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -57,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 
  If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,4 +72,24 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-a-streamers-companion-roku-plus-facebook-live-explained/"><u>[New] A Streamer's Companion ROKU + Facebook Live Explained</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-downloading-standardized-youtube-images-with-ease-and-precision/"><u>[New] In 2024, Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2023s-scarcity-pioneering-vr-content-shortcomings/"><u>[Updated] 2023’S Scarcity Pioneering VR Content Shortcomings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-converting-zip-to-subrip-srt-format-a-step-by-step-guide/"><u>[Updated] 2024 Approved Converting ZIP to SubRip (SRT) Format A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-top-25-mentors-in-modern-social-media-mastery-on-instagram/"><u>[Updated] Top 25 Mentors in Modern Social Media Mastery on Instagram</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-basic-editing-skills-to-advanced-chapter-integration-your-ultimate-guide/"><u>2024 Approved From Basic Editing Skills to Advanced Chapter Integration Your Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-ways-to-stay-clear-of-online-scams/"><u>Five Ways to Stay Clear of Online Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/hearing-through-conversations-facebooks-sound-features/"><u>Hearing Through Conversations: Facebook's Sound Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-dark-patterns-mislead-you-into-making-bad-privacy-choices/"><u>How Dark Patterns Mislead You Into Making Bad Privacy Choices</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-multitask-media-magic-employing-netflix-picture-in-picture/"><u>In 2024, Multitask Media Magic Employing Netflix Picture-in-Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/looking-past-hype-examining-the-impact-of-facebook-leaks/"><u>Looking Past Hype: Examining The Impact of Facebook Leaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-go-receives-a-boost-from-facebook-with-root-access-unlocked/"><u>Oculus Go Receives a Boost From Facebook with Root Access Unlocked</u></a></li>
+<li><a href="https://facebook.techidaily.com/preemptive-actions-for-recovering-a-breached-social-media-account/"><u>Preemptive Actions for Recovering a Breached Social Media Account</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-fixing-fall-guys-freezes-and-lag-issues-in-pc-version/"><u>Solved: Fixing 'Fall Guys' Freezes and Lag Issues in PC Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-struggle-amazon-vs-the-ruling-factions-in-thousands-of-fb-groups/"><u>The Struggle: Amazon Vs. The Ruling Factions in Thousands of FB Groups</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-ultimate-guide-to-windows-key-filter-settings/"><u>The Ultimate Guide to Windows Key Filter Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-photodnas-image-matching/"><u>Unlocking the Secrets of PhotoDNA's Image Matching</u></a></li>
+</ul></div>
 

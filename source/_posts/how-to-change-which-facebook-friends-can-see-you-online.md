@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-12-25T16:02:18.523Z
-updated: 2024-12-27T20:55:11.769Z
+date: 2025-01-01T02:30:29.172Z
+updated: 2025-01-06T05:38:43.831Z
 tags:
   - facebook
 categories:
@@ -50,10 +50,6 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -71,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
@@ -87,13 +83,13 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -108,10 +104,6 @@ Close
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -133,11 +125,19 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -160,24 +160,22 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-guide-to-progressive-audio-diminishment-via-lumafusion-for-2024/"><u>[New] Guide to Progressive Audio Diminishment via Lumafusion for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-expert-tips-reversed-color-effects-in-pictures/"><u>[Updated] Expert Tips Reversed Color Effects in Pictures</u></a></li>
-<li><a href="https://facebook.techidaily.com/ending-general-user-tagging-effect/"><u>Ending General User Tagging Effect</u></a></li>
-<li><a href="https://facebook.techidaily.com/go-towards-innovation-facebooks-portable-portal-launched/"><u>Go Towards Innovation: Facebook’s Portable Portal Launched</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-gionee-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Gionee</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-quickly-and-discreetly-delete-a-facebook-story/"><u>How to Quickly and Discreetly Delete a Facebook Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-poll-games-on-messenger-to-learn-more-about-your-friends/"><u>How to Use Poll Games on Messenger to Learn More About Your Friends</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-iphone-15-without-passcode-now-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock iPhone 15 Without Passcode Now</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-proven-marketing-spells-20-must-use-terms/"><u>In 2024, Proven Marketing Spells 20 Must-Use Terms</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-ultimate-list-top-10-subtitle-editors-web/"><u>In 2024, Ultimate List Top 10 Subtitle Editors Web</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/independence-day-deal-alert-score-apples-top-rated-airpods-at-a-steal-with-40-off-insights/"><u>Independence Day Deal Alert: Score Apple's Top-Rated AirPods at a Steal with $40 Off | Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/leading-innovative-smart-spectacles-2024-edition/"><u>Leading Innovative Smart Spectacles - 2024 Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/reels-and-rooms-on-the-rise-for-facebook-stories-panels/"><u>Reels and Rooms on the Rise for Facebook Stories Panels?</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailor-a-smaller-spotlight-for-social-media-marketing/"><u>Tailor a Smaller Spotlight for Social Media Marketing</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-and-economy-of-videos-how-metrics-and-meta-fuel-creative-finance/"><u>The Art & Economy of Videos: How Metrics and Meta Fuel Creative Finance</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-battle-for-balance-understanding-new-us-antitrust-laws-effects/"><u>The Battle for Balance: Understanding New US Antitrust Laws' Effects</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-gentle-approach-to-online-jokes-and-banter/"><u>The Gentle Approach to Online Jokes & Banter</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-7-imessage-fun-the-best-games/"><u>Top 7 iMessage Fun: The Best Games</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-audio-recording-made-easy-free-x-recorder-for-pc/"><u>[New] In 2024, Audio Recording Made Easy Free X-Recorder for PC</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-master-video-capture-using-adobe-presenter/"><u>[Updated] How to Master Video Capture Using Adobe Presenter</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-high-quality-fb-videos-for-ff-browser-users/"><u>[Updated] In 2024, High-Quality FB Videos for FF Browser Users</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-simplified-video-posts-on-twitter-and-tumblr/"><u>[Updated] Simplified Video Posts on Twitter and Tumblr</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-apples-reluctance-to-enter-metaverse-arena/"><u>Analyzing Apple's Reluctance to Enter Metaverse Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-theft-a-statistical-view/"><u>Digital Identity Theft: A Statistical View</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faux-pas-navigating-identity-fraud/"><u>Facebook Faux Pas: Navigating Identity Fraud</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-redmi-12-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Redmi 12 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/illusion-of-empowerment-interfaces-and-your-choices/"><u>Illusion of Empowerment: Interfaces and Your Choices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-google-pixel-8-pro-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Google Pixel 8 Pro Location by Number | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-secrets-of-zoom-success/"><u>In 2024, Unveiling the Secrets of Zoom Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-facebook-customizations-for-an-optimal-mobile-experience/"><u>Key Facebook Customizations for an Optimal Mobile Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-social-engagement-using-ripl/"><u>Navigating the World of Social Engagement Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-allowing-unnamed-comments-on-your-fb-group/"><u>Tips for Allowing Unnamed Comments on Your FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/triple-blackout-in-social-media-world/"><u>Triple Blackout in Social Media World</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nary-voices-top-10-most-engaged-internet-creators-for-2024/"><u>Visionary Voices Top 10 Most Engaged Internet Creators for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Social Media Routine - Best Fb Configs
-date: 2024-12-25T17:27:21.438Z
-updated: 2024-12-27T20:32:02.659Z
+date: 2024-12-29T18:39:43.438Z
+updated: 2025-01-06T05:18:15.355Z
 tags:
   - facebook
 categories:
@@ -28,16 +28,12 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 
 ![Settings Highlighted Under Settings and Privacy in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Settings-Highlighted-Under-Settings-and-Privacy-in-the-Facebook-App.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Shortcut Settings Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Settings-Highlighted-in-the-Facebook-App.jpg)
 
 ![Shortcut Bar and Notification Dots Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Bar-and-Notification-Dots-Settings-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -45,6 +41,10 @@ Close
  When you open your Facebook app, youwill see a shortcut bar at the top with links to Home, Watch, Marketplace, and others. You can[customize this Facebook shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) according to your preferences.
 
  Whether you want to remove the red notification dots from the bar or the Marketplace shortcut, you can do so from the settings. Go to**Settings & Privacy > Settings > Shortcuts,** and here you can customize both the**Shortcut Bar** and**Notifications Dots** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Adjust the Video Quality and Autoplay Options
 
@@ -77,7 +77,7 @@ Close
  To access the screen time report, go to **Settings & Privacy > Settings > Preferences > Your Time on Facebook > See Your Time** . Here you’ll see an app usage graph, and you can toggle on the**Weekly Update** option to receive automated weekly updates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Turn On the Quiet Mode and Daily Time Reminders
@@ -98,19 +98,19 @@ Close
 
  In the same menu, you can also choose the amount of time you want to spend on Facebook through Daily Time Reminder. As the name suggests, this feature sends you a reminder once you have used the app for the specified duration.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Toggle Dark Mode On or Off
 
 ![Dark Mode Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Dark Mode Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Settings-in-the-Facebook-App.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -121,10 +121,6 @@ Close
 ## 6\. Toggle Continuous Contact Upload
 
 ![Upload Contacts Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Upload-Contacts-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Continuous Contacts Upload Setting in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Continuous-Contacts-Upload-Setting-in-the-Facebook-App.jpeg)
 
@@ -140,15 +136,7 @@ Close
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Data Saver Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Data-Saver-Setting-Highlighted-in-the-Facebook-App.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -160,6 +148,10 @@ Close
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Links Open Externally Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Links-Open-Externally-Setting-Highlighted-in-the-Facebook-App.jpg)
 
 Close
@@ -169,7 +161,7 @@ Close
  To enable this feature, go to **Settings & Privacy > Settings > Preferences > Media** . Scroll to the bottom and check the**Links Open Externally** option. Now every time you open a link, it will redirect you to your default phone browser.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. View Your Wi-Fi and Cellular Performance
@@ -180,6 +172,10 @@ Close
 
 ![Cellular Network Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Cellular-Network-Information-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  If you go to **Settings & Privacy > Wi-Fi & Cellular Performance** , you’ll find some useful information about your internet connection and the available public Wi-Fi connections.
@@ -188,15 +184,19 @@ Close
 
  Furthermore, you can manage the network-related notifications and location settings by tapping on the**cog icon** in the top-right corner.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Adjust Your Facebook Reels Settings
 
 ![Reels Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Reels Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Settings-in-the-Facebook-App.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -223,22 +223,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/nlocking-youtube-potential-editing-after-the-upload-process-for-2024/"><u>[New] Unlocking YouTube Potential Editing After the Upload Process for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-capture-dynamic-movements-ipad-timelapse-tips/"><u>[Updated] 2024 Approved Capture Dynamic Movements IPad Timelapse Tips</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-how-to-make-every-minute-count-for-view-growth-with-youtube-shorts-for-2024/"><u>[Updated] How to Make Every Minute Count for View Growth with YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/digital-doppelganger-drawing-crafting-caricatured-emblems-for-2024/"><u>Digital Doppelganger Drawing Crafting Caricatured Emblems for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/erasing-a-profile-a-guide-to-page-blocking-on-facebook/"><u>Erasing a Profile: A Guide to Page Blocking on Facebook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-htc-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on HTC ?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-12t-pro-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 12T Pro Phone with Broken Screen</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-unlocking-apple-watch-or-iphone-6s-from-icloud-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Unlocking Apple Watch Or iPhone 6s from iCloud</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-virtual-voyages-unveiled-the-ultimate-gaming-odyssey-top-10/"><u>In 2024, Virtual Voyages Unveiled The Ultimate Gaming Odyssey (Top 10)</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-pulse-drive-interest-in-your-fb-congregation/"><u>Social Pulse: Drive Interest in Your Fb Congregation</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-dispatching-work-openings-on-social-media/"><u>The Art of Dispatching Work Openings on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-real-security-behind-fbs-secret-chats/"><u>The Real Security Behind FB's Secret Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/thread-closure-coming-this-december-on-instagram/"><u>Thread Closure Coming This December on Instagram</u></a></li>
-<li><a href="https://techidaily.com/u23-pro-video-recovery-recover-deleted-videos-from-u23-pro-by-fonelab-android-recover-video/"><u>U23 Pro Video Recovery - Recover Deleted Videos from U23 Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-erased-photos-from-your-social-network-account/"><u>Uncovering Erased Photos From Your Social Network Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-linkedin-and-facebook-potential-for-job-advancement/"><u>Unlocking LinkedIn & Facebook Potential for Job Advancement</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-the-figures-of-lost-facebook-users/"><u>Unmasking the Figures of Lost Facebook Users</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-5-high-quality-online-meeting-capture-devices/"><u>[New] Top 5 High-Quality Online Meeting Capture Devices</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-unlocking-the-secrets-of-profitability-on-vimeo-platform-for-2024/"><u>[New] Unlocking the Secrets of Profitability on Vimeo Platform for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-visual-impact-editing-videos-for-instagram/"><u>[Updated] Enhancing Visual Impact Editing Videos for Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-begins-six-transformative-aspects-of-fbs-metaverse/"><u>A New Era Begins: Six Transformative Aspects of FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-lift-rebuilding-old-social-ties/"><u>Ban Lift: Rebuilding Old Social Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/clandestine-continuity-delving-into-facebooks-stealthy-wrist-tech/"><u>Clandestine Continuity: Delving Into Facebook’s Stealthy Wrist Tech</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/deciphering-ai-slang-your-comprehensive-guide-to-29-important-ai-concepts/"><u>Deciphering AI Slang: Your Comprehensive Guide to 29 Important AI Concepts</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-football-giants-disavow-online-platforms-for-mental-wellness/"><u>England's Football Giants Disavow Online Platforms for Mental Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-obtain-the-latest-drivers-for-your-canon-mf4800-printer/"><u>How to Obtain the Latest Drivers for Your Canon MF4800 Printer</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-novatech-series-unified-4k-all-in-one-workstations/"><u>In 2024, NovaTech Series Unified 4K, All-in-One Workstations</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/landing-your-dream-it-job-at-microsoft-expert-tips-and-advice-featured-on-zdnet/"><u>Landing Your Dream IT Job at Microsoft: Expert Tips and Advice Featured on ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
+<li><a href="https://facebook.techidaily.com/restricting-access-to-in-app-internet-via-facebook/"><u>Restricting Access to In-App Internet via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaking-up-tech-monopolies-why-governments-step-in/"><u>Shaking Up Tech Monopolies: Why Governments Step In</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-complete-guide-to-captivating-your-audience-on-snapchat-for-2024/"><u>The Complete Guide to Captivating Your Audience on Snapchat for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-craft-share-worthy-content-the-facebook-way/"><u>Tips to Craft Share-Worthy Content: The Facebook Way</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/king-youtube-success-elite-video-tagging-secrets/"><u>Unlocking YouTube Success Elite Video Tagging Secrets</u></a></li>
 </ul></div>
 

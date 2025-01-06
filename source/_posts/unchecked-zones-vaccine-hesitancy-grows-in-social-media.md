@@ -1,7 +1,7 @@
 ---
 title: "Unchecked Zones: Vaccine Hesitancy Grows in Social Media"
-date: 2024-08-08T11:28:32.958Z
-updated: 2024-08-09T11:28:32.958Z
+date: 2025-01-04T20:28:47.219Z
+updated: 2025-01-05T18:59:32.572Z
 tags:
   - facebook
 categories:
@@ -20,25 +20,18 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
  There's a heated debate online as to whether that's the result of the platform's negligence or just an overwhelming volume of policy-violating posts. Whatever you think the truth is, it's clear that Facebook is far from done with dealing with the problem.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Removes One Anti-Vax Profile Frame, but Leaves the Rest Up
 
 [CNBC News](https://www.cnbc.com/2021/05/14/facebook-races-to-remove-anti-vaccine-profile-picture-frames.html) has noticed something peculiar on Mark Zuckerberg's big blue social network: even though Facebook has banned COVID-19 and vaccine misinformation, there are a number of profile picture borders with anti-vax messages available to use.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Anti-vax frames on Facebook as spotted by CNBC News](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-anti-vax-frames.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The news network reportedly reached out to Facebook about one frame that said, in all capital letters, "My immune system is better than the \[image of a syringe\]."
 
@@ -48,16 +41,18 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
  When asked whether the use of emojis could enable a rule-violating frame to evade the platform's detection system, Facebook did not respond. It shouldn't, considering[Facebook has been training its AI to understand videos](https://www.makeuseof.com/facebook-ai-to-understand-videos/) . Photos should be easier to decode.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![Facebook app in App Store on iPad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/facebook-on-ipad.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company also did not detail how long the frame had been active, nor how many users viewed/used it. So, it's very possible that hundreds—maybe even thousands—of users have been exposed to the potentially harmful message it promotes.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook vs. Pandemic Misinformation
 
  It's become pretty normal to see the words "Facebook" and "misinformation" in the same headline. Surely that's something that the team behind the platform wants to change, but their approach needs to either get smarter or get more aggressive for that to happen.
@@ -66,14 +61,11 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
  It wasn't too long ago that[Facebook released profile frames in support of getting vaccinated](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) . Perhaps the company should've checked for the anti-vax frames when adding those.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,4 +74,21 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-live-action-sims-perfecting-your-videos/"><u>[New] Live-Action Sims Perfecting Your Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-the-simple-path-to-iphone-screen-shots/"><u>2024 Approved The Simple Path to IPhone Screen Shots</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-watch-reveals-two-cameras-option-in-question/"><u>Facebook Watch Reveals, Two Cameras Option in Question</u></a></li>
+<li><a href="https://techidaily.com/1723262377629-get-the-edge-this-memorial-day-snag-your-new-gaming-pc-at-ibuypower-discount-sale/"><u>Get the Edge This Memorial Day - Snag Your New Gaming PC at iBUYPOWER Discount Sale!</u></a></li>
+<li><a href="https://facebook.techidaily.com/groups-on-fb-or-linkedin-finding-your-preference/"><u>Groups on FB or LinkedIn: Finding Your Preference</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-amplify-sound-on-iphone-calls-easy-fixes-and-advice/"><u>How to Amplify Sound on iPhone Calls – Easy Fixes and Advice</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-access-regaining-control-of-a-missing-facebook-code/"><u>Mastering Access: Regaining Control of a Missing Facebook Code</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-srt-a-thorough-exploration-of-its-essence-for-2024/"><u>Mastering SRT A Thorough Exploration of Its Essence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-sentiment-on-sns-detriments-outweigh-advantages/"><u>National Sentiment on SNS: Detriments Outweigh Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-online-presence-with-ripl-strategies/"><u>Optimize Your Online Presence With Ripl Strategies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-for-keyboards-that-arent-responding-to-inputs-in-windows-10-and-11/"><u>Step-by-Step Solution for Keyboards That Aren't Responding to Inputs in Windows 10 and 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-silence-what-does-it-mean/"><u>Understanding the Silence: What Does It Mean?</u></a></li>
+</ul></div>
 

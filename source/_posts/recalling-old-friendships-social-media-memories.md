@@ -1,7 +1,7 @@
 ---
 title: "Recalling Old Friendships: Social Media Memories"
-date: 2024-08-08T11:29:42.746Z
-updated: 2024-08-09T11:29:42.746Z
+date: 2025-01-01T06:28:19.418Z
+updated: 2025-01-06T00:14:41.453Z
 tags:
   - facebook
 categories:
@@ -33,26 +33,28 @@ thumbnail: https://thmb.techidaily.com/368a70a14b371c8e08eacb0b3d4a99240a39fbb09
 
 ![Search Results for My Post Rumi on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Results-for-My-Post-Rumi-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  However, this is just a basic search with many irrelevant posts included. To refine it more, you have to tinker with some filters.
 
  First, you might want the search results to show only the posts published by you, and to do that, go to**Posts** under**Filters** . Then click on**Posts From** and select**You** in the dropdown menu. Now, all the posts it shows have been posted by you.
 
 ![Selecting the You filter to refine Facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Selecting-the-You-filter-to-refine-Facebook-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you still can't find the post you are looking for, you can further refine the search results by year. Again, go to**Posts** under**Filters** , and click on**Date Posted** . Here, you can choose the year of that post, and it will show results from that particular year only.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook posts search result by year](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-posts-search-result-by-year.jpg)
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
  If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
@@ -62,35 +64,31 @@ thumbnail: https://thmb.techidaily.com/368a70a14b371c8e08eacb0b3d4a99240a39fbb09
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Using the Search Option on the Facebook Timeline
 
  If you're finding it hard to filter the search results with the first method, you also have a search option that is somewhat hidden within your or someone else's timeline. To access it, go to the Facebook profile page where you want to find a post, click on the**three-dot** icon just below the**Edit Profile** button, and select**Search** .
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Search Option On the Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/the-search-option-on-the-facebook-timeline.jpg)
 
  All the results that appear through this search are related to that specific timeline alone, offering a more focused approach. Note that you can directly search for the keyword with this method without typing "My Posts" or "John Doe Posts". The filters you get to refine the search are pretty much the same as you get in the first method.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Using Filters on the Timeline
 
  Sometimes, you won't know what to search for to find a particular post. In such cases, the above two search methods might not help, and you'd be better off using the**Filters** on the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
 
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
  On someone else's timeline, though, you only get to filter the posts by year, making this method not as useful for searching others' posts.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Using the Activity Log on Your Timeline
 
  On your timeline, you have an additional option to find old posts—your Activity Log. If you don't know the exact keyword to search for or it was something you just interacted with, finding it through the Activity Log is your best bet. You can access the**Activity Log** by clicking on the**three-dot** icon just below the**Edit Profile** button on your timeline.
@@ -99,10 +97,11 @@ thumbnail: https://thmb.techidaily.com/368a70a14b371c8e08eacb0b3d4a99240a39fbb09
 
  Once on the Activity Log page, you'll find many options to pinpoint the lost post. On its home page, you can view things like**Videos You've Searched for** ,**Videos You've Watched** , and more. These posts can be pretty challenging to find through search, so using the Activity Log in such cases is better.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Different options to find old posts through Facebook Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/different-options-to-find-old-posts-through-facebook-activity-log.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As you can see, a sidebar menu on the left lets you filter the log with**Your Activity Across Facebook** ,**Personal Information** ,**Connections** , and more. Each of these options has a bunch of sub-menus to refine the Activity Log further, but your posts are mostly under**Your Activity Across Facebook** . You can even search through your Activity Log if you still can't find the post you need.
 
@@ -116,14 +115,11 @@ thumbnail: https://thmb.techidaily.com/368a70a14b371c8e08eacb0b3d4a99240a39fbb09
 
  As discussed above, writing captions or descriptions for posts is always a good idea. This helps you find posts easily in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +128,18 @@ thumbnail: https://thmb.techidaily.com/368a70a14b371c8e08eacb0b3d4a99240a39fbb09
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-top-8-metaverse-headsets-and-glasses-to-dive-into-metaverse/"><u>[New] Top 8 Metaverse Headsets and Glasses to Dive Into Metaverse</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-essential-list-7-leading-generators-for-nft-artworks/"><u>[Updated] 2024 Approved The Essential List 7 Leading Generators for NFT Artworks</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-macs-best-in-show-top-10-screenshot-utilities-unveiled/"><u>2024 Approved Mac's Best in Show Top 10 Screenshot Utilities Unveiled</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/demystifying-the-power-of-luts-in-visual-artistry-for-2024/"><u>Demystifying the Power of LUTs in Visual Artistry for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-listen-to-spotifys-mini-player-on-facebook/"><u>Engage with Ease: Listen to Spotify’s Mini Player on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-invests-5m-in-challenging-substacks-reach-for-writers/"><u>Facebook Invests $5M in Challenging Substack's Reach for Writers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-digital-footprint-under-wraps/"><u>Keeping Your Digital Footprint Under Wraps</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-a-comparative-analysis/"><u>Social Media Security: A Comparative Analysis</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-xiaomi-13t-pro-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/world-class-uk-teams-banish-instagram-and-youtube-over-hate-speech/"><u>World-Class UK Teams Banish Instagram and YouTube over Hate Speech</u></a></li>
+</ul></div>
 

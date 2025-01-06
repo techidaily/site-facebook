@@ -1,7 +1,7 @@
 ---
 title: Step-Inside Guide to Stunning Social Media Background Art
-date: 2024-12-17T19:15:51.282Z
-updated: 2024-12-22T02:23:11.554Z
+date: 2025-01-03T18:20:07.347Z
+updated: 2025-01-05T20:33:21.897Z
 tags:
   - facebook
 categories:
@@ -54,9 +54,17 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
  Creating images like the ones above isn't hard. You can use a[free image editor](https://www.makeuseof.com/free-photo-editing-software/) such as[Paint.NET](https://www.getpaint.net/) or[IrfanView](https://www.irfanview.com/) . Keep in mind the measurements we shared above, so that any text or logo you add remains in-frame. You can also try to playfully integrate your profile photo, by working its minimal overlay into your cover image. Remember that the white frame is added by Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tools to Create a Cover Photo
 
  If that sounds too complicated, try one of the many Facebook cover photo tools. They can help you crop your favorite photo to the perfect size, add filters, combine several pictures into a collage, or add your pictures to a fun template. With those helpers, it becomes easy to create a custom and amazing Facebook cover photo.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Canva
 
@@ -66,29 +74,21 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
 ![Canva Drag and Drop Elements Into Template](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Canva-Drag-and-Drop-Elements-Into-Template.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you'd like to use your own photos, head to**Uploads** and click**Upload files** to add them. You can simply drag and drop images from your**Uploads** or Canva's collection of**Elements** into your template to replace the placeholder stock photo. When you're done, go to**File > Download** to download your creation.
 
  You'll inevitably come across a pro template or watermarked images you'd like to use. If you haven't done so before, you can try Canva Pro for free for 30 days. Anything you download is yours to keep when the trial ends.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. Fotor
 
 ![Fotor Facebook Cover Photo Maker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Fotor-Facebook-Cover-Photo-Maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Fotor's Facebook cover photo maker bears a stunning resemblance to Canva, but it's not identical. For one, Fotor uses Facebook's recommended 851 x 315 pixels for the cover image, rather than a much larger size, like Canva does. You'll also find different templates, stock photos, and elements. While Fotor's basic functionality is quite similar to Canva, it does use layers, much like Photoshop.
 
  Like Canva, Fotor offers a free trial, but it's only three days, and you have to provide payment details in advance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Add a Cover Photo to Facebook
 
@@ -103,28 +103,24 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
 ![Facebook Page With Edit Cover Photo Menu Expanded](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Edit-Cover-Photo-Menu-Expanded.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you don't have a cover photo yet, click**Add a Cover** in the bottom right and from the menu, pick either**Select Photo** or**Upload photo** .
 
 ![Facebook Page With Empty Cover Photo Section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Empty-Cover-Photo-Section.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When you choose**Select Photo** , you'll be able to browse through all your**Recent photos** or**Photo Albums** saved on Facebook.
 
 ![Facebook Cover Select Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Cover-Select-Photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Once you have uploaded or selected a photo, you'll see a**Drag to Reposition** tooltip in the center of your cover photo. Facebook will automatically adjust the photo to the maximum width. If it's taller than the available space, you can drag it into place until you are happy with the result.
 
 ![Facebook Page With Drag to Reposition Cover Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Drag-to-Reposition-Cover-Photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Before you choose to**Save Changes** , note that your cover photo will automatically be visible to the public, regardless of previous[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) ! If you would like to try another photo, click**Cancel** in the top right.
@@ -132,6 +128,10 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
  Facebook will also update your Timeline to let your friends and followers know that you changed your cover photo. While you can no longer stop this from happening, you can hide it right away. Reload your Timeline until you see the post, then click on the three-dot button in its top right and select**Hide from profile** from the menu.
 
 ![Facebook Hide Post From Profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Hide-Post-From-Profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Screenshot by Tina Sieber, no attribution required.
 
@@ -154,24 +154,24 @@ thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ea
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-divide-and-conquer-adding-chapters-to-vimeo/"><u>[Updated] 2024 Approved Divide and Conquer Adding Chapters to Vimeo</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-clipcomposer-critique-thorough-examination/"><u>[Updated] ClipComposer Critique – Thorough Examination</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-elevating-your-linkedin-presence/"><u>[Updated] Elevating Your LinkedIn Presence</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-ultimate-screen-logger-az-audits-and-diversions/"><u>[Updated] In 2024, Ultimate Screen Logger - AZ Audits & Diversions</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-best-practices-in-planning-social-media-dispatches/"><u>10 Best Practices in Planning Social Media Dispatches</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-roadmap-to-safer-facebook-practices-for-your-teens/"><u>A Roadmap to Safer Facebook Practices for Your Teens</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-facebooks-secrets-a-roadmap-to-transparency-center-use/"><u>Accessing Facebook's Secrets: A Roadmap to Transparency Center Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/altering-your-accounts-protection-password-on-facebook/"><u>Altering Your Account's Protection Password on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-facebook-quizzes-a-cybersecurity-risk/"><u>Are Facebook Quizzes a Cybersecurity Risk?</u></a></li>
-<li><a href="https://facebook.techidaily.com/blending-personal-and-professional-networks-on-whatsapp/"><u>Blending Personal and Professional Networks on WhatsApp</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-a-course-the-rise-of-metamates-at-facebook/"><u>Charting a Course: The Rise of 'Metamates' At Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-smarter-social-networking-route-via-fb-shortcuts/"><u>Crafting a Smarter Social Networking Route via FB Shortcuts</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-safety-guide-for-social-networks/"><u>Cyber Safety Guide for Social Networks</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Nokia 130 Music? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/master-mac-gif-archiver/"><u>Master Mac GIF Archiver</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/master-the-art-of-freezing-out-the-backdrop-in-your-design-for-2024/"><u>Master the Art of Freezing Out the Backdrop in Your Design for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-fixing-battlefield-4-wont-start-issue-on-pc/"><u>Troubleshooting Guide: Fixing 'Battlefield 4 Won't Start' Issue on PC</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-premium-touch-screen-notebooks-comprehensive-analysis-by-tech-experts-cioreview/"><u>Ultimate Guide to Premium Touch Screen Notebooks: Comprehensive Analysis by Tech Experts - CIOReview</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-youtube-experience-tips-on-channel-art-and-sizes/"><u>[New] 2024 Approved Elevating Your YouTube Experience Tips on Channel Art and Sizes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-explore-unexpectedly-great-meme-pages-on-facebook-for-2024/"><u>[New] Explore Unexpectedly Great Meme Pages on Facebook for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-decoding-whatsapps-vocal-messaging-innovation/"><u>[Updated] In 2024, Decoding WhatsApp's Vocal Messaging Innovation</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-discover-hidden-audio-makers-6-stealthy-iosandroid-tools/"><u>[Updated] In 2024, Discover Hidden Audio Makers 6 Stealthy iOS/Android Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elite-editing-selection-quality-software-for-youtubers/"><u>2024 Approved Elite Editing Selection Quality Software for YouTubers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-icicle-illusions-winter-games-showcase/"><u>2024 Approved Icicle Illusions Winter Games Showcase</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-unsolicited-general-member-postings/"><u>Block Unsolicited General Member Postings</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-a-facebook-intrusion-signs-and-remedies/"><u>Detecting a Facebook Intrusion: Signs and Remedies</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanded-social-footprint-distribute-instagram-reels-to-facebook-network/"><u>Expanded Social Footprint: Distribute Instagram Reels to Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-collection-at-risk-due-to-ios-145-update/"><u>Facebook's Data Collection at Risk Due to iOS 14.5 Update</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-photo-collage-on-maciphone-using-iphoto/"><u>How to Make a Photo Collage on Mac/iPhone Using iPhoto?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mark-yourself-as-safe-on-facebook/"><u>How to Mark Yourself as Safe on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/intentionally-efficient-reducing-unwanted-social-networking/"><u>Intentionally Efficient: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-motorola-moto-e13-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Motorola Moto E13 Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-cyberspace-for-socializing/"><u>Secure Cyberspace for Socializing</u></a></li>
+<li><a href="https://article-helps.techidaily.com/srt-production-via-xml-ssa-and-ttml-conversions-for-2024/"><u>SRT Production via XML, SSA & TTML Conversions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-hosting-events-via-facebook-platform/"><u>The Art of Hosting Events via Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-behind-facebooks-suggested-posts/"><u>The Science Behind Facebook's Suggested Posts</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/unable-to-access-printer-driver-in-windows/"><u>Unable to Access Printer Driver in Windows</u></a></li>
 </ul></div>
 

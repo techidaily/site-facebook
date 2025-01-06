@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2024-12-15T00:03:08.763Z
-updated: 2024-12-21T20:08:44.864Z
+date: 2025-01-02T01:47:41.063Z
+updated: 2025-01-05T20:09:16.210Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Spotify Team up on Project Boombox
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -67,14 +67,20 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-tips.techidaily.com/updated-unlock-spark-ars-full-potential-with-personalized-lut-implementations/"><u>[Updated] Unlock Spark AR's Full Potential with Personalized LUT Implementations</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-live-tv-streaming-guide-the-best-ten-and-their-comparison/"><u>2024 Approved Live TV Streaming Guide The Best Ten and Their Comparison</u></a></li>
-<li><a href="https://facebook.techidaily.com/altering-facebook-pages-avatar-and-title/"><u>Altering Facebook Page's Avatar & Title</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-surface-scandals-evaluating-facebook-papers-objectively/"><u>Beyond Surface Scandals: Evaluating Facebook Papers Objectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/brisk-business-lite-android-productivity-picks/"><u>Brisk Business: Lite Android Productivity Picks</u></a></li>
-<li><a href="https://win-blog.techidaily.com/diagnosing-and-repairing-undetected-astro-a5-grove-a50-in-the-astro-control-panel/"><u>Diagnosing and Repairing Undetected Astro A5 Grove A50 in the Astro Control Panel</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/fine-tune-your-videos-mood-with-custom-sound-design/"><u>Fine-Tune Your Video's Mood with Custom Sound Design</u></a></li>
-<li><a href="https://win-superb.techidaily.com/transcodage-gratuit-de-fichier-voc-vers-mp4-sur-internet-moovavi/"><u>Transcodage Gratuit De Fichier VOC Vers MP4 Sur Internet - Moovavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150163224-upcoming-verdict-from-facebooks-governance-board-on-trump-ban/"><u>Upcoming Verdict From Facebook's Governance Board on Trump Ban.</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transform-your-images-basic-tips-with-lunapic/"><u>[Updated] Transform Your Images Basic Tips with LunaPic</u></a></li>
+<li><a href="https://win-answers.techidaily.com/assessing-the-return-of-apple-tv/"><u>Assessing the Return of Apple TV</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-the-depth-of-computing-with-toms-gear-insights/"><u>Exploring the Depth of Computing with Tom's Gear Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-leverage-symbolic-meanings-in-social-media-conversations/"><u>How to Leverage Symbolic Meanings in Social Media Conversations</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-recover-invisible-airpods-using-the-find-my-feature-a-step-by-step-guide/"><u>How to Recover Invisible AirPods Using the 'Find My' Feature: A Step-by-Step Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-infinix-note-30-pro-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Infinix Note 30 Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-time-loop-video-recovery-explained/"><u>In 2024, YouTube's Time Loop Video Recovery Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagramfacebook-support-a-short-lived-meta-drops-trip/"><u>Instagram/Facebook Support: A Short-Lived Meta Drops Trip</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-password-alteration-on-your-favorite-social-platform/"><u>Mastering Password Alteration on Your Favorite Social Platform</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-combine-edit-and-share-best-video-collage-apps-for-iphone-and-ipad/"><u>New 2024 Approved Combine, Edit, and Share Best Video Collage Apps for iPhone and iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-interpretations-what-does-facebooks-pages-labeling-change-imply/"><u>New Interpretations: What Does Facebook's Pages Labeling Change Imply?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-future-tracing-a-possible-rebrand/"><u>Social Network's Future: Tracing a Possible Rebrand</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-shift-new-title-for-facebook-employees/"><u>Social Sphere Shift: New Title for Facebook Employees</u></a></li>
+<li><a href="https://driver-install.techidaily.com/taming-the-beast-resolving-winxps-network-woes/"><u>Taming the Beast: Resolving WinXP's Network Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-reason-why-apple-forgoes-metaverse-quest/"><u>Unveiling the Reason: Why Apple Forgoes Metaverse Quest</u></a></li>
 </ul></div>
 

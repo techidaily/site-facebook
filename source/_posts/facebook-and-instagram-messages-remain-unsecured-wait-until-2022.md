@@ -1,7 +1,7 @@
 ---
 title: Facebook & Instagram Messages Remain Unsecured - Wait Until 2022
-date: 2024-12-17T16:42:34.544Z
-updated: 2024-12-21T16:53:21.512Z
+date: 2025-01-05T03:01:25.428Z
+updated: 2025-01-05T18:08:21.020Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Has Been Slow in Adding Default Chat Encryption
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
  Related: [What Is End-to-End Encryption?](https://www.makeuseof.com/what-is-end-to-end-encryption/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Messaging Apps With End-to-End Encryption Have Soared in Popularity
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/messenger-on-a-phone.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Messaging services with end-to-end encryption have surged in popularity in recent times. WhatsApp, iMessage, and Signal are among the major messaging platforms with end-to-end encryption support.
@@ -79,19 +79,15 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-vsg-screen-snapshots-review-thorough-examination/"><u>[New] 2024 Approved VSG Screen Snapshots Review Thorough Examination</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-effortless-film-logging-how-to-use-devices-like-pros-for-2024/"><u>[New] Effortless Film Logging How to Use Devices Like Pros for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-redefining-visual-storytelling-with-vidas-advanced-tools/"><u>[New] Redefining Visual Storytelling with Vida's Advanced Tools</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-vivo-y78t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-meta-concepts-and-tools-for-growth/"><u>Essential META Concepts & Tools for Growth</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/guias-seguras-para-configurar-un-pc-con-windows-tienes-en-una-estacion-de-trabajo-nas-synology/"><u>Guías Seguras Para Configurar Un PC Con Windows Tienes en Una Estación De Trabajo NAS Synology</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-separate-your-spotify-from-facebook-connection/"><u>How to Separate Your Spotify From Facebook Connection</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-your-location-visible-on-fb-chat/"><u>Making Your Location Visible on FB Chat</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-through-unwanted-personalized-promos-in-social-networks/"><u>Navigate Through Unwanted Personalized Promos in Social Networks</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/navigating-risk-factors-of-cryptocurrency-investments-expert-advice-by-yl-technology-experts/"><u>Navigating Risk Factors of Cryptocurrency Investments - Expert Advice by YL Technology Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-strata-showdown-the-climbing-paths-to-status-gold-and-blue/"><u>Social Strata Showdown: The Climbing Paths to Status Gold & Blue</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-future-of-youtube-branding-top-titles-for-video-content-creators-limited-to-156-characters-for-2024/"><u>The Future of Youtube Branding Top Titles for Video Content Creators (Limited to 156 Characters) for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-barnes-and-noble-nook-glowlight-cuhrtine-edition-review-why-it-shines-at-night/"><u>The Ultimate Barnes & Noble Nook GlowLight Cuhrtine Edition Review - Why It Shines at Night!</u></a></li>
-<li><a href="https://win-web.techidaily.com/1728472474387-windows-server-2008-r2/"><u>Windows Server 2008 (R2)のシステムイメージ復元に必要な手順とヒント</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-a-quick-fix-for-quirky-content-mastering-meme-creation-at-9gag/"><u>[New] 2024 Approved A Quick Fix for Quirky Content Mastering Meme Creation at 9GAG</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-bridging-gaps-video-platforms-brands-and-collaborative-success/"><u>[New] In 2024, Bridging Gaps Video Platforms, Brands & Collaborative Success</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-digital-repository-open-source-game-tunes/"><u>[New] In 2024, Digital Repository Open Source Game Tunes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-meerkat-experts-live-at-snapchat-spotlight-for-2024/"><u>[New] Meerkat Experts Live at Snapchat Spotlight for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-facebooks-policy-framework-at-launch/"><u>Diving Deep Into Facebook's Policy Framework at Launch</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-top-rated-free-wmv-video-cutters-2023-review/"><u>New Top-Rated Free WMV Video Cutters 2023 Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150243390-securing-communications-in-the-digital-age-facebook-introduces-advanced-end-to-end-encryption-on-direct-messaging-and-calls/"><u>Securing Communications in the Digital Age: Facebook Introduces Advanced End-to-End Encryption on Direct Messaging & Calls.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-compre-cookie-guide-to-captivating-covers-on-fb/"><u>The Compre Cookie Guide to Captivating Covers on FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-new-era-of-capturing-life-with-updated-lg-360-cameras/"><u>The New Era of Capturing Life with Updated LG 360 Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-safety-on-social-selling-platforms-key-steps-to-take/"><u>Your Safety on Social Selling Platforms: Key Steps to Take</u></a></li>
 </ul></div>
 

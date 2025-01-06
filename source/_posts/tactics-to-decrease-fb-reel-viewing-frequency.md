@@ -1,7 +1,7 @@
 ---
 title: Tactics to Decrease Fb Reel Viewing Frequency
-date: 2024-12-20T05:43:52.532Z
-updated: 2024-12-22T06:48:24.006Z
+date: 2024-12-31T00:24:27.736Z
+updated: 2025-01-05T21:48:09.546Z
 tags:
   - facebook
 categories:
@@ -22,10 +22,6 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Hide and Reduce Reels On Facebook
 
  Unfortunately, there's no easy way to disable the Reels feature on Facebook. While Facebook has reduced the rate at which Reels show up on your feed, it still doesn't support disabling the feature completely.
@@ -37,20 +33,20 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -63,6 +59,10 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -80,11 +80,11 @@ Close
 
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -102,23 +102,23 @@ Close
 
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
-![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
+
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## These Are Your Only Good Options
 
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Working Around Facebook Reels
 
@@ -139,19 +139,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-detailed-synopsis-googles-podcast-platform-explored-for-2024/"><u>[New] Detailed Synopsis Google's Podcast Platform Explored for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-illustrating-brilliance-the-most-trusted-vector-tools-reviewed/"><u>2024 Approved Illustrating Brilliance The Most Trusted Vector Tools Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-stylish-steps-to-a-photo-that-gains-followers-and-likes/"><u>6 Stylish Steps to a Photo that Gains Followers and Likes</u></a></li>
-<li><a href="https://facebook.techidaily.com/9-signs-your-social-media-accounts-have-been-hacked/"><u>9 Signs Your Social Media Accounts Have Been Hacked</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-closed-social-scenes-facebook-archiving-tactics/"><u>Behind Closed Social Scenes: Facebook Archiving Tactics</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/bridging-chatgpt-and-ubuntus-terminal-advanced-tips-for-shell-integration/"><u>Bridging ChatGPT and Ubuntu's Terminal: Advanced Tips for Shell Integration</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/captivating-clips-transforming-footage-vertically-in-final-cut-x-for-2024/"><u>Captivating Clips Transforming Footage Vertically in Final Cut X for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719148923934-cross-platform-connectivity-share-your-fb-memories-anywhere/"><u>Cross-Platform Connectivity: Share Your Fb Memories Anywhere</u></a></li>
-<li><a href="https://facebook.techidaily.com/customizing-child-data-settings-in-facebook-powered-messengers/"><u>Customizing Child Data Settings in Facebook-Powered Messengers</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/fuhren-sie-ihre-unternehmensdaten-sicher-mit-der-kostenfreien-backuplosung-von-aomei-bei-cyber-sicherheit/"><u>Führen Sie Ihre Unternehmensdaten Sicher Mit Der Kostenfreien Backuplösung Von AOMEI Bei | Cyber-Sicherheit</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/grabacion-de-archivos-iso-en-cddvd-con-windows-10-8-o-7-un-guia-completa/"><u>Grabación De Archivos ISO en CD/DVD Con Windows 10, 8 O 7: Un Guía Completa</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/intova-edge-x-action-camera-review/"><u>Intova Edge X Action Camera Review</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/maximize-fun-efficiently-setting-up-games-on-xbox-app/"><u>Maximize Fun: Efficiently Setting Up Games on Xbox App</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-shrink-your-videos-the-best-free-compression-tools-for-windows-10-for-2024/"><u>New Shrink Your Videos The Best Free Compression Tools for Windows 10 for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-affordable-mcb-theme-images-for-channels-for-2024/"><u>[New] Affordable MCB Theme Images for Channels for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-quick-cinematic-creations-your-ultimate-guide-to-at-home-filmmaking-hacks-for-2024/"><u>[New] Quick Cinematic Creations Your Ultimate Guide to At-Home Filmmaking Hacks for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bluetooth-audio-lag-quickly-and-easily/"><u>✅ Bluetooth Audio Lag | Quickly & Easily</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comparing-scales-public-vs-private-ai-systems/"><u>Comparing Scales: Public Vs. Private AI Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-prototype-sparks-interest-could-support-two-cameras/"><u>Facebook Prototype Sparks Interest: Could Support Two Cameras?</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/free-video-editing-software-with-split-screen-capability-online-and-offline-for-2024/"><u>Free Video Editing Software with Split Screen Capability Online & Offline for 2024</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/how-to-adjust-network-and-internet-preferences-via-control-panel-comprehensive-guide-by-yl-computing/"><u>How to Adjust Network & Internet Preferences via Control Panel - Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/humor-in-the-age-of-fact-vs-fiction/"><u>Humor in the Age of Fact vs Fiction</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unveiling-the-secrets-of-facebook-video-content-success/"><u>In 2024, Unveiling the Secrets of Facebook Video Content Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-locating-facebook-profile-and-group-connections/"><u>Mastering Social: Locating Facebook Profile & Group Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-inside-the-new-era-of-privacy-control-with-facebooks-updated-settings-hub/"><u>Step Inside the New Era of Privacy Control With Facebook’s Updated Settings Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-10-affordable-360-degree-cameras-for-2024/"><u>Top 10 Affordable 360 Degree Cameras for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-with-8-must-try-crowdfire-innovations/"><u>Unlocking Potential with 8 Must-Try Crowdfire Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-us-legislation-on-tech-monopolies-unpacked/"><u>Upcoming US Legislation on Tech Monopolies Unpacked</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Safe Sharing Strategy: Social Media Tips for Privacy Protection"
-date: 2024-08-08T11:26:19.721Z
-updated: 2024-08-09T11:26:19.721Z
+date: 2025-01-02T17:59:45.561Z
+updated: 2025-01-05T23:35:18.120Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,11 @@ thumbnail: https://thmb.techidaily.com/1d7a3c5b577ddb7940a6a2457c0bee5c40f1807e2
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Travel Plans
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
@@ -40,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/1d7a3c5b577ddb7940a6a2457c0bee5c40f1807e2
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Location Data
 
  Social apps use geolocation (from your IP address or phone's GPS function) to let you tag your posts with where you're at. Before you post, check to see if the site adds your location data automatically and disable that before posting. Most of the time, there's no reason to share your location with everyone who can see the post.
@@ -79,8 +78,9 @@ thumbnail: https://thmb.techidaily.com/1d7a3c5b577ddb7940a6a2457c0bee5c40f1807e2
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -91,9 +91,6 @@ thumbnail: https://thmb.techidaily.com/1d7a3c5b577ddb7940a6a2457c0bee5c40f1807e2
 
 ## 7\. Personal Advice
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
@@ -102,13 +99,13 @@ thumbnail: https://thmb.techidaily.com/1d7a3c5b577ddb7940a6a2457c0bee5c40f1807e2
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -122,6 +119,10 @@ The ultimate burning program for all your needs!</a>
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -130,32 +131,17 @@ The ultimate burning program for all your needs!</a>
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What You Shouldn't Share Online
 
  While social media can be a fun way to share with friends you don't see in person, sharing online has many downsides compared to talking in person. It's easy to overshare, not realize the audience that could see your posts, or make other mistakes.
 
  Sharing information online voluntarily lessens your privacy and can open you up to attacks on your security, too. It's wise to be intentional about what you share.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +150,24 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-from-airwaves-to-your-iphone-mastery-of-podcast-downloads/"><u>[Updated] In 2024, From Airwaves to Your iPhone Mastery of Podcast Downloads</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-premier-options-to-play-sonys-ps1-games-on-pc/"><u>[Updated] In 2024, Premier Options to Play Sony's PS1 Games on PC</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-list-of-engaging-history-content-on-youtube/"><u>[Updated] In 2024, The Ultimate List of Engaging History Content on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-kid-approved-wet-weather-cams-for-beginning-filmmakers/"><u>2024 Approved Top Kid-Approved Wet Weather Cams for Beginning Filmmakers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-tecno-spark-20-proplus-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Tecno Spark 20 Pro+ FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-texting-tech-boost-for-instagram-and-messenger-a-new-era-begins/"><u>Facebook's Texting Tech Boost for Instagram and Messenger: A New Era Begins</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/hit-the-town-non-gta-games-that-offer-similar-joy/"><u>Hit the Town Non-GTA Games That Offer Similar Joy</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-a-network-locked-infinix-note-30-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Infinix Note 30 5G Phone?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-the-art-of-followingunfollowing-on-facebook/"><u>Navigating Social Media: The Art of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-times-for-online-presence-growth/"><u>Peak Times for Online Presence Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-control-tackling-fb-upsets/"><u>Regaining Control: Tackling FB Upsets</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-a-virtual-gem-could-llife-shine-in-the-metaverse-era/"><u>Reviving a Virtual Gem: Could LLife Shine in the Metaverse Era?</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/sauvegarde-et-reinitialisation-de-windows-7-sans-perte-de-donnees-avec-aomei-backupper/"><u>Sauvegarde Et Réinitialisation De Windows 7 Sans Perte De Données Avec AOMEI Backupper</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-vigilance-justified-trump-suspension-not-permanent/"><u>Social Media Vigilance: Justified Trump Suspension, Not Permanent</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-appointing-fb-page-admins/"><u>The Ultimate Guide for Appointing FB Page Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-features-to-supercharge-your-campaign-strategy/"><u>Top 8 Features to Supercharge Your Campaign Strategy</u></a></li>
+</ul></div>
 

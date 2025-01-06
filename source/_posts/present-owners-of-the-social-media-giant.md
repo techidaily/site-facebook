@@ -1,7 +1,7 @@
 ---
 title: Present Owners of the Social Media Giant
-date: 2024-08-08T11:28:15.437Z
-updated: 2024-08-09T11:28:15.437Z
+date: 2025-01-05T04:13:31.014Z
+updated: 2025-01-05T16:59:31.875Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  The rebranding raises a number of intriguing questions, such as who now owns Facebook? We'll answer that question in this article, while taking a quick trip down memory lane to figure out how we got here.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From The Facebook To Meta
 
  In 2004, Mark Zuckerberg, Eduardo Saverin, Dustin Moskovitz, and Chris Hughes, all Harvard students, founded Facebook. Facebook's popularity grew quickly, and by the end of 2004, it had surpassed one million active users.
@@ -33,14 +34,16 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Owns Facebook Now?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -53,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -64,22 +68,20 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Zuckerberg Still (Largely) Owns Meta
 
  The governing structure of Facebook, or Meta as it is now called, remains unchanged despite the rebranding. Zuckerberg, with his Class B share majority, still maintains his iron grip on Facebook.
 
  Zuckerberg will remain in charge of Facebook until he sells his shares or the shares' power gets diluted. The Meta rebrand is a change in name but not much else.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,4 +90,26 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-best-free-online-tools-for-precise-srt-translation/"><u>[New] Best FREE Online Tools for Precise SRT Translation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-permanent-ousting-technique-for-the-quick-video-feature/"><u>[New] In 2024, Permanent Ousting Technique for the Quick Video Feature</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-brand-consistency-in-action-inserting-logoswatermarks-into-videos/"><u>[Updated] 2024 Approved Brand Consistency in Action Inserting Logos/Watermarks Into Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-crafting-effective-teacher-videos-on-youtube-top-10-strategies/"><u>[Updated] Crafting Effective Teacher Videos on YouTube – Top 10 Strategies</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-to-snapchat-video-opposites-for-2024/"><u>[Updated] The Ultimate Guide to Snapchat Video Opposites for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/a-closer-look-at-videopad-video-editor-review-pricing-and-alternatives/"><u>A Closer Look at Videopad Video Editor Review, Pricing, and Alternatives</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/clearing-up-the-confusion-strategies-to-combat-your-pcs-persistent-pitch-black-problem-on-windows-11/"><u>Clearing Up the Confusion: Strategies to Combat Your PC's Persistent Pitch-Black Problem on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-mechanism-behind-facebook-whitelist/"><u>Exploring the Mechanism Behind Facebook Whitelist</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-digital-presence-practical-steps-to-add-2fa-to-gmail-and-outlook-accounts/"><u>Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-ethernet-driver-install-pack-for-support-on-windows-versions-windows-7-to-windows-11/"><u>HP Ethernet Driver Install Pack for Support on Windows Versions - Windows 7 to Windows 11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-itel-a70-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Itel A70 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-tecno-camon-20-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Tecno Camon 20 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-whispers-insights-on-fb-investigations/"><u>Rethinking Whispers: Insights on FB Investigations</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-meta-on-stopping-online-sensitive-pics/"><u>Steering Clear: Meta on Stopping Online Sensitive Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/sync-up-sports-facebook-twitter-unite-for-the-league/"><u>Sync-Up Sports: Facebook, Twitter Unite for the League</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-historical-facebook-bonds/"><u>Uncovering Historical Facebook Bonds</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Navigating Teenager's Facebook Settings for Privacy Control
-date: 2024-08-08T11:25:19.741Z
-updated: 2024-08-09T11:25:19.741Z
+date: 2025-01-05T02:39:59.397Z
+updated: 2025-01-06T03:24:13.088Z
 tags:
   - facebook
 categories:
@@ -19,33 +19,31 @@ thumbnail: https://thmb.techidaily.com/39b1aa90cbe15af25eeef086af2b40b5abbe4ea0e
 
  You can show them how to perform a privacy check on Facebook by going through it with them, or by doing it for them. Let's take a look at what you should be checking.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -53,9 +51,6 @@ Close
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Privacy Setting Basics
 
  There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
@@ -82,17 +77,19 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -108,14 +105,11 @@ Close
 
  By doing this, you will be able to make sure that when your teen posts something, it is only being seen by their close circle. You will also make sure that spammers have a limited chance of reaching them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +118,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-seven-superior-cameras-defy-the-elements-waterproof/"><u>[New] 2024 Approved Seven Superior Cameras Defy the Elements (Waterproof)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-turning-still-memories-into-moments-in-motion/"><u>[New] 2024 Approved Turning Still Memories Into Moments in Motion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-your-visual-impact-journey-begins-with-our-50-free-banners/"><u>[Updated] 2024 Approved Your Visual Impact Journey Begins with Our 50 FREE Banners</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prime-chrome-drawing-programs-the-ultimate-list/"><u>2024 Approved Prime Chrome Drawing Programs The Ultimate List</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/1728491784896-windows-11-dism-2/"><u>無需連線修復 Windows 11: DISM 工具使用的 2 款有效方法</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/audio-and-video-in-harmony-syncing-in-final-cut-pro-x-2024/"><u>Audio and Video in Harmony Syncing in Final Cut Pro X 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ners-guide-how-to-create-a-youtube-channel-and-make-money-for-2024/"><u>Beginners’ Guide How To Create a YouTube Channel and Make Money for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-vivo-y200-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Vivo Y200 FRP Locks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sea-of-connections-detailed-analysis-of-your-fb-interactions/"><u>Navigating the Sea of Connections: Detailed Analysis of Your FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/pre-deletion-checklist-what-to-weigh-in-on-social-media-departure/"><u>Pre-Deletion Checklist: What to Weigh in on Social Media Departure</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/pro-screencast-strategies-secrets-for-video-creators/"><u>Pro Screencast Strategies Secrets for Video Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-media-expedition-on-facebook/"><u>Tailoring Your Social Media Expedition on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-benefits-from-your-uploaded-pictures/"><u>Who Benefits From Your Uploaded Pictures?</u></a></li>
+</ul></div>
 

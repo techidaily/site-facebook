@@ -1,7 +1,7 @@
 ---
 title: "JOE JUST WAITS: Bringing FB, Snap, and Tweet to the Vax Scene"
-date: 2024-08-08T11:27:11.929Z
-updated: 2024-08-09T11:27:11.929Z
+date: 2025-01-05T02:32:22.245Z
+updated: 2025-01-06T04:35:10.226Z
 tags:
   - facebook
 categories:
@@ -20,16 +20,18 @@ thumbnail: https://thmb.techidaily.com/de25cad762d1b1da1023e95cc7ce6ed0cc716ab65
  To do this, his administration is making use of just about every form of digital communication to encourage people to get vaccinated.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The White House Will Use Social Media to Push Vaccine Eligibility
 
  According to an[Axios](https://www.axios.com/biden-vaccine-eligibility-push-e438587b-9b34-4b75-9132-7395c2768ed7.html) report, the White House is launching a "targeted media blitz" to promote the Biden administration's promotional campaign for vaccine eligibility. Facebook, Twitter, and Snapchat are some of the companies that'll help spread the word.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/biden-and-us-flag.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: The White House/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:President%5Fof%5Fthe%5FUnited%5FStates%5FJoe%5FBiden%5F%282021%29.jpg)
 
@@ -44,16 +46,18 @@ thumbnail: https://thmb.techidaily.com/de25cad762d1b1da1023e95cc7ce6ed0cc716ab65
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform[launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even[froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -61,14 +65,11 @@ thumbnail: https://thmb.techidaily.com/de25cad762d1b1da1023e95cc7ce6ed0cc716ab65
 
  Admittedly, it did take some time for major platforms to step up like this. When the pandemic first began, COVID-19 misinformation was spreading like wildfire. But now, some of the social media giants are now trying to turn things around for the sake of everyone's safety, which is wonderful to see.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +78,18 @@ thumbnail: https://thmb.techidaily.com/de25cad762d1b1da1023e95cc7ce6ed0cc716ab65
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-make-money-fast-on-reddit-top-13-easy-strategies-for-beginners/"><u>2024 Approved Make Money Fast on Reddit Top 13 Easy Strategies for Beginners</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-youtube-profits-ajeys-guidebook/"><u>2024 Approved Mastering YouTube Profits Ajey's Guidebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-asus-rog-phone-8-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Asus ROG Phone 8 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/from-clouds-to-storage-keeping-snapshots-on-your-phone/"><u>From Clouds to Storage Keeping Snapshots on Your Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-old-posts-on-your-facebook-timeline/"><u>How to Find Old Posts on Your Facebook Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approaches-for-striking-fb-cover-pics/"><u>Innovative Approaches for Striking FB Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/receive-instagram-2fa-codes-directly-on-whatsapp/"><u>Receive Instagram 2FA Codes Directly on WhatsApp</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-and-downloading-the-latest-version-of-the-intel-hd-graphics-5500-drivers/"><u>Step-by-Step Guide: Updating and Downloading the Latest Version of the Intel HD Graphics 5500 Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-experts-guide-unveiling-hidden-online-communities/"><u>The Expert's Guide: Unveiling Hidden Online Communities</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-recommended-free-films-available-on-youtube-july-2024-collection/"><u>Top Recommended Free Films Available on YouTube - July 2024 Collection</u></a></li>
+</ul></div>
 

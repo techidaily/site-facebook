@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Flip: How to Optimize Your Social Media Friendships"
-date: 2024-08-08T11:25:05.866Z
-updated: 2024-08-09T11:25:05.866Z
+date: 2024-12-30T09:26:24.698Z
+updated: 2025-01-06T04:38:42.034Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
 
  Here's everything you need to know about Facebook followers, and following and unfollowing people on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Does Following Mean on Facebook?
 
  The follow feature is one of Facebook's most underused tools. Many people don't realize that you can use it to communicate with almost anyone on the network, even if you're not friends.
@@ -32,9 +36,6 @@ Facebook's follow feature works in two ways:
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Why Is the Follow Feature Necessary?
 
 There are two reasons to use the follow feature.
@@ -45,16 +46,13 @@ There are two reasons to use the follow feature.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## How to Follow and Unfollow on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
@@ -66,16 +64,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  To unfollow a person, navigate to their profile page and locate the**Friends** button (again, below the bottom-right corner of the person's cover photo).
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
@@ -83,8 +75,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
@@ -101,9 +94,6 @@ This same page contains three other settings you need to be aware of:
 
 ## What Do Your Facebook Followers See?
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
@@ -114,7 +104,15 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to See Who Follows You on Facebook
 
@@ -144,14 +142,11 @@ This same page contains three other settings you need to be aware of:
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +155,20 @@ This same page contains three other settings you need to be aware of:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-superior-green-tech-in-video-production/"><u>[New] Superior Green Tech in Video Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-ensure-flawless-playback-how-to-set-youtube-video-size-right/"><u>[Updated] 2024 Approved Ensure Flawless Playback How to Set YouTube Video Size Right</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-analytics-with-8-crowdfire-innovative-functions/"><u>Enhancing Analytics with 8 Crowdfire Innovative Functions</u></a></li>
+<li><a href="https://facebook.techidaily.com/expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly.</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-a-broken-or-damaged-windows-store-cache-a-comprehensive-guide/"><u>How to Fix a Broken or Damaged Windows Store Cache: A Comprehensive Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-iphone-8-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/ignite-your-gaming-experience-with-a-comprehensive-4k-configuration-on-xbox-sx/"><u>Ignite Your Gaming Experience with a Comprehensive 4K Configuration on Xbox SX</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-samsung-galaxy-a25-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Samsung Galaxy A25 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713964810457-new-templates-increase-the-editing-possibilities-for-beginners-and-professionals-read-this-article-to-learn-about-some-customizable-slow-motion-capcut-templ/"><u>New Templates Increase the Editing Possibilities for Beginners and Professionals. Read This Article to Learn About some Customizable Slow-Motion CapCut Templates for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprehensive-beginners-manual-to-social-media-dating/"><u>The Comprehensive Beginner’s Manual to Social Media Dating</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-8-software-linux-friendly-editing-tools-for-2024/"><u>Top 8 Software Linux-Friendly Editing Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-saying-goodbye-to-facebook-could-mean-a-better-you-a-top-10-list/"><u>Why Saying Goodbye to Facebook Could Mean a Better You - A Top 10 List</u></a></li>
+</ul></div>
 

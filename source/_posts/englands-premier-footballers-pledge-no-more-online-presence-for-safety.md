@@ -1,7 +1,7 @@
 ---
 title: England's Premier Footballers Pledge No More Online Presence for Safety
-date: 2024-08-08T11:25:07.801Z
-updated: 2024-08-09T11:25:07.801Z
+date: 2024-12-30T22:26:22.295Z
+updated: 2025-01-05T17:22:19.581Z
 tags:
   - facebook
 categories:
@@ -20,9 +20,9 @@ thumbnail: https://thmb.techidaily.com/0e3820d1cc459c1675907e5894236de62a8218335
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Top English Soccer Teams Take a Social Media Stand
 
  The social media blackout will commence from Friday, 30 April, through to Monday, 3 May, taking place over a busy weekend for English soccer.
@@ -48,8 +48,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -68,14 +69,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -84,4 +82,22 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-boosting-dj-game-free-easy-online-beat-detectors-revealed/"><u>[Updated] 2024 Approved Boosting DJ Game Free, Easy Online Beat Detectors Revealed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fix-facebook-media-failure-on-devices/"><u>[Updated] Fix Facebook Media Failure on Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-streamlined-strategies-for-ad-copy-formulation-on-social-platforms/"><u>2024 Approved Streamlined Strategies for Ad Copy Formulation on Social Platforms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/behind-the-curtains-a-guide-to-youtubes-hidden-videos-for-2024/"><u>Behind the Curtains A Guide to YouTube’s Hidden Videos for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-your-companys-efficiency-with-these-5-key-ai-solutions-for-business-professionals/"><u>Boost Your Company's Efficiency with These 5 Key AI Solutions for Business Professionals</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/flipping-video-content-easily-in-android-applications-for-2024/"><u>Flipping Video Content Easily in Android Applications for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-android-11-unlock-the-power-of-temporary-app-access-using-revouninstaller/"><u>Navigating Android 11: Unlock the Power of Temporary App Access Using RevoUninstaller</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalized-protection-feature-fb-guide/"><u>Personalized Protection Feature: FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-the-path-to-success-with-top-business-networks/"><u>Pioneering the Path to Success with Top Business Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-facebook-post-phone-disappearance/"><u>Reclaiming Facebook Post-Phone Disappearance</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-connectivity-the-new-normal-in-the-workplace/"><u>Social Connectivity: The New Normal in the Workplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-tide-shift-4-groundbreaking-modifications-in-online-networks/"><u>The Digital Tide Shift: 4 Groundbreaking Modifications in Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/traverse-social-journey-viewing-facebook-friends-histories/"><u>Traverse Social Journey: Viewing Facebook Friends' Histories</u></a></li>
+<li><a href="https://facebook.techidaily.com/urgent-steps-for-regaining-control-after-fb-breach/"><u>Urgent: Steps for Regaining Control After FB Breach</u></a></li>
+<li><a href="https://win-news.techidaily.com/1728484133802-windows-11windows-10/"><u>データ保護なしで、Windows 11をWindows 10にスムーズ変更方法</u></a></li>
+</ul></div>
 

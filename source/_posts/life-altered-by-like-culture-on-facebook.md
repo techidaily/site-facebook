@@ -1,7 +1,7 @@
 ---
 title: Life Altered by 'Like' Culture on Facebook
-date: 2024-08-08T11:26:34.407Z
-updated: 2024-08-09T11:26:34.408Z
+date: 2024-12-30T17:13:23.933Z
+updated: 2025-01-05T23:27:11.778Z
 tags:
   - facebook
 categories:
@@ -19,19 +19,17 @@ thumbnail: https://thmb.techidaily.com/1ccd2dbf2e6000433c361586dbc867e80efe1088f
 
  So, here's the good and the bad of how Facebook changed our lives.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Ways Facebook Has Improved Our Lives
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although Facebook wasn't the first social media platform to bring people together, it is, by far, the most successful. With Facebook, many people can keep their circles updated with the events in their lives, no matter how near or far they are.
 
@@ -41,12 +39,13 @@ thumbnail: https://thmb.techidaily.com/1ccd2dbf2e6000433c361586dbc867e80efe1088f
 
 [Social media brings us closer to each other](https://www.makeuseof.com/ways-social-media-brings-people-together/) —and Facebook is the best example of this phenomenon.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Connecting Our Past and Present
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
@@ -56,11 +55,19 @@ thumbnail: https://thmb.techidaily.com/1ccd2dbf2e6000433c361586dbc867e80efe1088f
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
  Some of these tools are free, like Facebook Pages and Groups, while others are paid, like Facebook Ads. But even with just the free tools, many entrepreneurs found success through the social media platform.
 
  Again, this tool was crucial during the pandemic, when many who've lost their jobs turned to online entrepreneurship to get them through the global lockdowns.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ways Facebook Has Worsened Our Lives
 
@@ -68,34 +75,26 @@ thumbnail: https://thmb.techidaily.com/1ccd2dbf2e6000433c361586dbc867e80efe1088f
 
 So, what are some of the biggest things that affected us negatively?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Misinformation on Facebook Deceived the Masses
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
 
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
@@ -112,14 +111,11 @@ So, what are some of the biggest things that affected us negatively?
 
  And although Facebook, now Meta, is hounded by several issues, we still can't deny that it has also brought a positive change to humanity. But no matter how big a company grows, there's still no telling what the future will hold. Only time will tell if Facebook will go on to have an influence on us in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +124,24 @@ So, what are some of the biggest things that affected us negatively?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-reversing-silent-trends-adding-voice-to-twitters-media/"><u>[New] 2024 Approved Reversing Silent Trends Adding Voice to Twitter's Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-banner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners-for-2024/"><u>[New] Banner Bliss Get a Peek at Our Library of 50 Free YouTube Banners for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-mr-beast-net-worth-overview/"><u>[Updated] 2024 Approved Mr. Beast Net Worth Overview</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-the-quick-step-to-cutting-edge-gif-creation-from-vimeo/"><u>[Updated] In 2024, The Quick-Step to Cutting Edge GIF Creation From Vimeo</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/crafting-musical-instagram-narratives-without-for-2024/"><u>Crafting Musical Instagram Narratives (Without) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-global-mention-on-social-platform/"><u>End Global Mention on Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/fencing-leagues-withdraw-online-presence/"><u>Fencing Leagues Withdraw Online Presence</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-to-solving-video-playback-sounds-addressing-microsofts-soundrenderer-fault-on-windows-10-youtube-fixes/"><u>Guide to Solving Video Playback Sounds: Addressing Microsoft's SoundRenderer Fault on Windows 10 - YouTube Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-labyrinth-of-meta-social-control-center/"><u>Navigating the Labyrinth of Meta Social Control Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-your-entire-facebook-experience/"><u>Navigating Through Your Entire Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-introduces-tailored-innovative-characters/"><u>Oculus Introduces Tailored, Innovative Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-trust-violations-how-tech-platforms-must-respond/"><u>Online Trust Violations: How Tech Platforms Must Respond</u></a></li>
+<li><a href="https://win-blog.techidaily.com/quick-fixes-how-to-resolve-mortal-kombat-11-crashes-instantly/"><u>Quick Fixes: How to Resolve Mortal Kombat 11 Crashes Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/restore-past-connections-after-facebook-ban/"><u>Restore Past Connections After Facebook Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-mode-for-social-media-users-like-privacy/"><u>Stealth Mode for Social Media Users: Like Privacy</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-to-correcting-execution-fault-messages-in-windows-11/"><u>Step-by-Step Guide to Correcting Execution Fault Messages in Windows 11</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-guide-selecting-top-ranked-free-srt-translation-tools/"><u>Ultimate Guide Selecting Top-Ranked FREE SRT Translation Tools</u></a></li>
+</ul></div>
 

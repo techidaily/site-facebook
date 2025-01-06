@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Leaked Insights: A Public Discussion"
-date: 2024-08-08T11:30:08.122Z
-updated: 2024-08-09T11:30:08.122Z
+date: 2025-01-01T02:11:49.840Z
+updated: 2025-01-06T07:31:27.750Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,9 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
  The documents provide unparalleled insight into Facebook's inner workings, detailing internal policies, arguments, complaints, worries about the direction of the platform, its involvement with spreading hatred and political violence, and much, much more.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  In late September 2021, The Wall Street Journal began publishing a series of articles containing information from a series of internal Facebook documents.
@@ -40,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
  The video below is Haugen's interview on 60 Minutes, where she details many of the revelations found in the Facebook Papers.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Zuckerberg Believes It's an Attack on the Company
 
  Despite the damning nature of the documents, Facebook CEO Mark Zuckerberg[described](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q3/FB-Q3-2021-Earnings-Call-Transcript.pdf) the leaked documents as a coordinated effort to attack the company.
@@ -51,8 +52,9 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
  He goes on to talk about how the polarization of US politics and indeed, society at large, began long before he was born, and that Facebook will never solve these issues on its own.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is This the End for Facebook?
 
  Despite claims that Facebook ignores user safety, puts profits over everything else, contributes to political violence and civil unrest, and much more, there are very few indications that this is the end of Facebook.
@@ -61,14 +63,11 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
 
  The wider backdrop might see even more users leave the platform, with Facebook already struggling to attract the younger audience who view the platform as outdated and full of misinformation. Despite Facebook's enormous clout, massive revelations like this will hurt its image in the long run, especially with a younger audience growing up in a socially aware world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +76,21 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-financial-forecasts-in-focus-select-stock-youtube-channels/"><u>[Updated] Financial Forecasts in Focus Select Stock YouTube Channels</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-insider-guide-to-gopro-wizardry/"><u>[Updated] In 2024, Insider Guide to GoPro Wizardry</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-online-presence-building-events-on-facebook/"><u>Elevating Your Online Presence: Building Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-recommended-posts-an-explanatory-look/"><u>Facebook's Recommended Posts: An Explanatory Look</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-exclusive-look-the-10-best-countdown-clock-apps-for-your-big-event-androidios/"><u>In 2024, Exclusive Look The 10 Best Countdown Clock Apps for Your Big Event (Android/iOS)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-oppo-a2-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Oppo A2 Phone Hassle-Free</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-clearcut-technique-for-backdrop-free-imagery/"><u>In 2024, The Ultimate Clearcut Technique for Backdrop-Free Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-and-facebook-freedom-shutting-down-algorithms/"><u>Instagram & Facebook Freedom: Shutting Down Algorithms</u></a></li>
+<li><a href="https://facebook.techidaily.com/misguided-pandemic-truths-by-12-noteworthy-personalities/"><u>Misguided Pandemic Truths by 12 Noteworthy Personalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserving-page-harmony-the-art-of-excluding-profiles/"><u>Preserving Page Harmony: The Art of Excluding Profiles</u></a></li>
+<li><a href="https://app-tips.techidaily.com/taming-the-chaos-organizing-linux-and-open-source-manuals-a-comprehensive-guide/"><u>Taming the Chaos: Organizing Linux & Open Source Manuals - A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/the-best-text-voice-generators-for-all-platforms-for-2024/"><u>The Best Text Voice Generators for All Platforms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-russian-connection-exploring-vk-as-a-virtual-community/"><u>The Russian Connection: Exploring VK as a Virtual Community</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-the-secrets-of-toms-tech-review/"><u>Unveiling the Secrets of Tom's Tech Review</u></a></li>
+</ul></div>
 

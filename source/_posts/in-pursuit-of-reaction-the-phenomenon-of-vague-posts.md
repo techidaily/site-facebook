@@ -1,7 +1,7 @@
 ---
 title: "In Pursuit of Reaction: The Phenomenon of Vague Posts"
-date: 2024-08-08T11:27:49.088Z
-updated: 2024-08-09T11:27:49.088Z
+date: 2025-01-05T05:41:42.488Z
+updated: 2025-01-06T05:39:51.722Z
 tags:
   - facebook
 categories:
@@ -31,43 +31,45 @@ But what is vaguebooking?
 
  And that's the point of vaguebooking. While the majority of us will only post on social media when we have something specific to say, vaguebookers take great delight in beating around the metaphorical bush. Seeking attention while giving away very little in terms of detail.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## Examples of Vaguebooking
 
  The easiest way to answer the question, "what is vaguebooking?" is to give examples. So here are some examples of vaguebooking which will help you recognize it when you see it. And ultimately avoid doing it yourself.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### 1\. Expressing an Emotion Without Providing Context
 
  This is an expression of emotion in its most basic form. On this occasion it's anger, but other emotions can replace anger quite easily. Instead of, "I'm so angry right now. Arrggh!," it could be, "I'm so confused right now. Waagh!" or "I'm so miserable right now. Boohoo!"
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Why Me? This Could Only Happen to Me
 
  This is a classic, and one of the most annoying forms of vaguebooking. It's about as vague as it gets while still using words. With "Why? Only me..." you're imparting the fact that something (likely bad) has happened that you need someone to ask you about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Question Marks: The Purest Form of Vaguebooking
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. When a GIF Is Meant to Sum Everything Up
 
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Who Is Responsible for Vaguebooking?
 
@@ -79,9 +81,6 @@ But what is vaguebooking?
 
  Related:[Tips to Avoid (Spreading) Fake News During a Crisis](https://www.makeuseof.com/tag/quickly-avoid-fake-news-unfolding-crisis/)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is Vaguebooking Harmless or Something More?
 
  Vaguebooking is definitely annoying. Of that there can be no argument. But is it merely annoying or a sign of something more worrying?
@@ -95,8 +94,9 @@ But what is vaguebooking?
  Related:[The Best Therapy and Counseling Apps for Mental Health](https://www.makeuseof.com/tag/mental-health-apps-people-cant-see-therapist/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Avoid Vaguebooking
 
  It's actually very simple to avoid vaguebooking. Just don't post anything vague on social media. That's it. That's the golden rule.
@@ -107,21 +107,15 @@ But what is vaguebooking?
 
  And if you're struggling mentally, maybe avoid social media altogether and talk to someone offline. Having a one-to-one conversation with someone who can actually offer practical help and/or advice is a much better idea than vaguebooking in the hopes someone will notice you.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Fight the Scourge of Vaguebooking
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +124,16 @@ But what is vaguebooking?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-essential-tips-for-game-recording-on-windows-10/"><u>[New] Essential Tips for Game Recording on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-tv-viewing-with-android-devices/"><u>Enhancing TV Viewing with Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-model-disrupts-tech-norm-surpassing-apples-app-store/"><u>Facebook’s Subscription Model Disrupts Tech Norm, Surpassing Apple's App Store</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-oppo-reno-8t-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Oppo Reno 8T to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-doubts-large-firms-worries-stem-from-facebook/"><u>Majority Doubts Large Firms, Worries Stem From Facebook</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-a14-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy A14 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-10-lecture-recorders-for-teachers/"><u>Top 10 Lecture Recorders for Teachers</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-doom-eternal-game-crashes-and-stability-problems/"><u>Ultimate Guide: Resolving DOOM Eternal Game Crashes & Stability Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-insights-of-facebooks-local-communities/"><u>Unveiling the Insights of Facebook's Local Communities</u></a></li>
+</ul></div>
 

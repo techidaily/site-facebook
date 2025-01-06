@@ -1,7 +1,7 @@
 ---
 title: Silence Embrace on Instagram Live
-date: 2024-08-08T11:28:30.074Z
-updated: 2024-08-09T11:28:30.074Z
+date: 2024-12-29T19:17:13.932Z
+updated: 2025-01-05T21:39:00.801Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/3fc14c15f73df5f4c8b19f8291c51668294576df8
  Instagram owner Facebook is clearly feeling threatened by Clubhouse, because you can now disable both your video and audio feeds when you broadcast on Instagram Live.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Instagram Introduces Camera and Mic Disabling Option
 
  For those of you who use Instagram Live, it may please you to know that you no longer have to run video or audio feeds in order to broadcast. So, if you want, you're able to broadcast a blank screen now, or just show your video feed if you don't want environmental sounds bleeding into your stream.
@@ -27,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/3fc14c15f73df5f4c8b19f8291c51668294576df8
  Instagram has yet to announce the extra features officially beyond a tweet, but[TechCrunch](https://techcrunch.com/2021/04/29/instagram-live-takes-on-clubhouse-with-options-to-mute-and-turn-off-the-video/) broke the news, explaining the features in more detail.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Would You Disable Your Camera and Mic on Instagram Live?
 
  There are countless reasons you might need to disable video and/or audio feeds in Instagram Live.
@@ -44,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/3fc14c15f73df5f4c8b19f8291c51668294576df8
  Same goes if you hate your voice but think you look a million dollars. Just switch audio off and let everyone look at your amazing face instead. Bingo, Instagram Live done.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Has Instagram Added These New Features?
 
  Instagram has got these additional features because owner Facebook fears big bad Clubhouse stealing all of its accumulated ice cream. This is a feature Clubhouse rolled out ages ago, and it has been popular with the Clubhouse community. Instagram doesn't want to lose subscribers because it lacks features.
@@ -55,20 +58,18 @@ thumbnail: https://thmb.techidaily.com/3fc14c15f73df5f4c8b19f8291c51668294576df8
  People seem to have a lot to complain about regarding Instagram, so adding Clubhouse style features should be lower down the priority list, or Instagram could start losing out to Clubhouse, anyway.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Do You Live Broadcast on Instagram?
 
  If so, what do you make of these extra features? Too little, too late? Is Facebook focusing on the wrong things with Instagram? It may be a powerful and popular social media tool, but if it doesn't work properly, it will struggle to retain a user base.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +78,21 @@ thumbnail: https://thmb.techidaily.com/3fc14c15f73df5f4c8b19f8291c51668294576df8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unraveling-the-mystery-of-where-to-find-top-ranked-instagram-ringtones-and-craft-perfect-alarms/"><u>[Updated] In 2024, Unraveling the Mystery of Where to Find Top-Ranked Instagram Ringtones & Craft Perfect Alarms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-making-a-splash-how-to-improve-your-videos-with-instagram-edits/"><u>2024 Approved Making a Splash How to Improve Your Videos with Instagram Edits</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-slovak-language-instant-proficiency/"><u>Daily Dose of Slovak Language, Instant Proficiency!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erment-in-entertainment-top-10-inspirational-women/"><u>Empowerment in Entertainment Top 10 Inspirational Women</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-swipe-and-tap-worth-investing-in/"><u>Facebook's Swipe and Tap: Worth Investing In?</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fix-red-eyes-quickly-in-photos-on-ios-without-cost/"><u>In 2024, Fix Red Eyes Quickly in Photos on iOS Without Cost</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ios-12-update-how-to-delete-music-from-your-iphone-without-using-itunes/"><u>IOS 12 Update: How to Delete Music From Your iPhone Without Using iTunes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/launching-hitman-3-successfully-on-your-desktop-fixes-and-insights/"><u>Launching Hitman 3 Successfully on Your Desktop - Fixes and Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-channels-for-swift-social-group-ties/"><u>Leveraging Channels for Swift Social Group Ties</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-excel-data-visualization-with-easy-trendline-insertion-techniques/"><u>Mastering Excel Data Visualization with Easy Trendline Insertion Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-unsettling-trends-in-facebook-metaverse/"><u>Navigating Through Unsettling Trends in Facebook Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-monitoring-the-key-to-reducing-deceptive-advertising/"><u>Social Media Monitoring: The Key to Reducing Deceptive Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-must-know-considerations-for-eliminating-social-platforms/"><u>The Must-Know Considerations for Eliminating Social Platforms</u></a></li>
+</ul></div>
 

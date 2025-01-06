@@ -1,7 +1,7 @@
 ---
 title: Maximizing Security with Two-Factor Authentication on Major Mail Providers
-date: 2024-08-08T11:26:29.673Z
-updated: 2024-08-09T11:26:29.673Z
+date: 2024-12-30T01:37:39.560Z
+updated: 2025-01-06T06:00:57.776Z
 tags:
   - facebook
 categories:
@@ -20,9 +20,9 @@ thumbnail: https://thmb.techidaily.com/f386bcd1cdef2e7eae82e10cf44eeb6665615e5a1
  2FA works differently depending on the online account you are using. 2FA also carries slightly different names in some places, too. So, here is your short guide to enabling 2FA, in its various guises, on a host of online accounts.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Does 2FA Work?
 
  Two-factor authentication works by locking your account with two separate "factors." In this case, a factor is "something you know" (e.g., password), "something you have" (e.g., phone), or "something you are" (e.g., fingerprint). You have the best protection by combing two of these factors.
@@ -35,23 +35,8 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Google Prompt
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
@@ -61,6 +46,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Authenticator App
 
@@ -78,9 +67,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Microsoft Outlook
 
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
@@ -95,20 +81,18 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
 **Note:** There are[other excellent 2FA authentication apps](https://www.makeuseof.com/tag/5-best-alternatives-google-authenticator/) out there.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Apple and iCloud
 
  Apple's 2FA is very Apple-centric. In that, you won't be using the Google Authenticator app or any other app for that matter. That said, the Apple 2FA process works very well and only takes a moment or two to set up.
 
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf[guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
 Locking your Facebook account is as important as your email address.
@@ -118,13 +102,11 @@ Locking your Facebook account is as important as your email address.
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Twitter
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
@@ -133,9 +115,17 @@ Locking your Facebook account is as important as your email address.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Instagram
 
 ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
 
@@ -143,9 +133,6 @@ Locking your Facebook account is as important as your email address.
 
  If you select "Authentication App," the Instagram app will automatically detect your installed authentication app and send a login code. For instance, your Instagram account would automatically appear in the Google Authenticator app on your phone. However, by extension, the app authentication option cannot be turned on using the desktop version, which is disappointing.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Amazon
 
  Your Amazon account is another that requires serious security. If someone accesses your Amazon account, they can spend as if they were you. (Amazon does have additional security checks for new delivery addresses, but you shouldn't rely on that.)
@@ -156,14 +143,11 @@ Locking your Facebook account is as important as your email address.
 
  It takes a minute or two to set up 2FA security on all of your accounts. Of course, the accounts on this list aren't exhaustive. But you now understand how the 2FA process works, why 2FA is essential, and where you might find the settings in your other online accounts.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,4 +156,20 @@ Locking your Facebook account is as important as your email address.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-hdr-tvs-explored-is-aurora-at-the-forefront-in-2024/"><u>[New] HDR TVs Explored Is Aurora at the Forefront, In 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-gopro-mastery-top-15-dynamic-color-look-up-table-reviews/"><u>2024 Approved GoPro Mastery Top 15 Dynamic Color Look-Up Table Reviews</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-art-of-engagement-mastering-tiktoks-language-through-5-essential-caption-techniques/"><u>2024 Approved The Art of Engagement Mastering TikTok's Language Through 5 Essential Caption Techniques</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breakdown-average-monthly-earning-for-podcasters-for-2024/"><u>Breakdown Average Monthly Earning for Podcasters for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/conquering-the-puzzling-black-screen-challenge-on-a-windows-11-device-a-step-by-step-approach/"><u>Conquering the Puzzling Black Screen Challenge on a Windows 11 Device - A Step-by-Step Approach</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-advice-restoring-ethernet-network-functionality-in-windows-operating-systems-windows-107/"><u>Expert Advice: Restoring Ethernet Network Functionality in Windows Operating Systems (Windows 10/7)</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-locations-efficiently-on-fbmessenger/"><u>Expose Locations Efficiently on FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-move-integrating-reels-and-rooms-into-stories/"><u>Facebook's Next Move: Integrating Reels & Rooms Into Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-separate-your-social-media-from-music-streaming/"><u>Guide to Separate Your Social Media From Music Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-horizon-decoding-the-future-of-facebooks-smart-device/"><u>Hidden Horizon: Decoding the Future of Facebook’s Smart Device</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a14-4g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A14 4G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-premier-screen-capture-apps-for-windows-free-1-5-listing/"><u>In 2024, Premier Screen Capture Apps for Windows Free #1-5 Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-driven-plans-top-5-social-media-monetization-ideas/"><u>Profit-Driven Plans: Top 5 Social Media Monetization Ideas</u></a></li>
+</ul></div>
 

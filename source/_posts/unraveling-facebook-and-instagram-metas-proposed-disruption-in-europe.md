@@ -1,7 +1,7 @@
 ---
 title: "Unraveling Facebook & Instagram: Meta's Proposed Disruption in Europe"
-date: 2024-08-08T11:30:03.293Z
-updated: 2024-08-09T11:30:03.293Z
+date: 2025-01-03T20:03:46.140Z
+updated: 2025-01-05T18:13:30.623Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,9 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
 So, is Meta about to pull Facebook and Instagram out of Europe?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Meta Threatening to Pull Facebook and Instagram From Europe?
 
  In the full[SEC filing](https://d18rn0p25nwr6d.cloudfront.net/CIK-0001326801/14039b47-2e2f-4054-9dc5-71bcc7cf01ce.pdf) , Meta explains that the recent changes to Privacy Shield will fundamentally alter their business model, making it impossible to offer existing "products and services" to its European users.
@@ -34,8 +34,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is the Privacy Shield No Longer Legal?
 
  So, back in 2011, Austrian lawyer Maximillian Schrems analyzed 1,222 pages of information Facebook held about him after requesting the data from the company. He found that Facebook held onto information he believed he had deleted from the service along with other information that had been shared without his permission. Schrems lodged a complaint with the Irish data protection commissioner, where Facebook was registered for tax purposes.
@@ -47,8 +48,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta Pull Facebook and Instagram?
 
  Most industry experts believe Meta's statement is an empty threat. European Union regulators have been working with their US counterparts in an attempt to shape a new deal for months. It's just that it hasn't yet crossed the line and as Meta's stock price and company value takes a beating elsewhere, shifting the focus is a useful distraction for the social media giant.
@@ -61,14 +63,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  European Facebook and Instagram users have very little to worry about until then.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +76,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-beat-the-wait-efficient-iphone-time-lapse-tricks/"><u>[New] 2024 Approved Beat the Wait Efficient iPhone Time-Lapse Tricks</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-asmr-tactics-your-path-to-nocturnal-serenity/"><u>[New] ASMR Tactics Your Path to Nocturnal Serenity</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/bold-leap-how-8k-southwest-flyers-embraced-risk-and-adventure-with-every-ticket/"><u>Bold Leap: How 8K Southwest Flyers Embraced Risk and Adventure with Every Ticket</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/enhanced-imagery-at-your-fingertits-iphone-and-androids-sticker-boost-apps/"><u>Enhanced Imagery at Your Fingertits – iPhone and Android's Sticker-Boost Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-tecno-spark-10-pro-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Tecno Spark 10 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-name-change-from-news-feed-to-just-feed/"><u>Facebook's Name Change - From News Feed to Just Feed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-an-eye-detect-vanished-screenshot-photos/"><u>Keep an Eye: Detect Vanished Screenshot Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-fb-configuration-key-settings-for-maximum-engagement/"><u>Masterful FB Configuration: Key Settings for Maximum Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-mobile-code-creation/"><u>Navigating Facebook's Mobile Code Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-sensitive-information-dodge-these-3-apps/"><u>Safeguard Sensitive Information: Dodge These 3 Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/societys-growth-catalyst-the-top-7-of-social-media-impacts/"><u>Society's Growth Catalyst: The Top 7 of Social Media Impacts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-laptops-for-graphic-artists-comprehensive-testing-and-reviews-by-professionals-gizmodo/"><u>Top-Rated Laptops for Graphic Artists: Comprehensive Testing & Reviews by Professionals | Gizmodo</u></a></li>
+</ul></div>
 

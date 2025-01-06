@@ -1,7 +1,7 @@
 ---
 title: Facebook's New Feature for Enhanced Informed Sharing
-date: 2024-12-19T17:32:58.879Z
-updated: 2024-12-21T17:55:12.938Z
+date: 2025-01-02T06:52:00.183Z
+updated: 2025-01-05T20:30:27.316Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Prods Users to Read Before Sharing
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -73,20 +73,24 @@ thumbnail: https://thmb.techidaily.com/d28e7047daab181b2a6cda74108f4cb993066496e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-driving-revenue-with-well-crafted-youtube-channel-trailers/"><u>[Updated] 2024 Approved Driving Revenue with Well-Crafted YouTube Channel Trailers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-how-to-change-screenshot-file-formats-on-a-mac-for-2024/"><u>[Updated] How to Change Screenshot File Formats on a Mac for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-complete-look-at-youtube-tvs-content-library/"><u>[Updated] In 2024, The Complete Look at YouTube TV's Content Library</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-the-ultimate-list-of-outstanding-storytelling-youtubers-this-year-for-2024/"><u>[Updated] The Ultimate List of Outstanding Storytelling YouTubers This Year for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/2024windows114/"><u>2024年におすすめの、Windows11での画面録画テクニックトップ4選び方</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-ensure-your-online-safety-on-social-platforms-like-fb/"><u>Alert! Ensure Your Online Safety on Social Platforms Like FB</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-compelling-visual-stories-with-ps-distortion-tools-for-2024/"><u>Crafting Compelling Visual Stories with PS Distortion Tools for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-ears-of-phones-spying-for-marketing-reality/"><u>Digital Ears of Phones: Spying for Marketing Reality?</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-friendship-layers-on-social-media/"><u>Dissecting Friendship Layers on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/founding-a-connected-group-in-the-facebook-realm/"><u>Founding a Connected Group in the Facebook Realm</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/guide-to-adjusting-high-speed-footage-from-120-fps-down-to-standard-24-fps-without-introducing-slow-motion-distortions/"><u>Guide to Adjusting High-Speed Footage From 120 FPS Down to Standard 24 FPS Without Introducing Slow Motion Distortions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/modern-warfare-pc-troubleshooting-guide-ensuring-smooth-gameplay/"><u>Modern Warfare PC Troubleshooting Guide: Ensuring Smooth Gameplay</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essence-and-usage-limits-of-facebooks-local-networks/"><u>The Essence and Usage Limits of Facebook's Local Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-playlist-partnership-fb-and-spotify-project-boombox/"><u>The Ultimate Playlist Partnership: FB & SPOTIFY Project Boombox</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-relationship-evolutions-in-fb/"><u>Understanding Relationship Evolutions in FB</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-elevating-your-tiktok-pics-with-simple-edits/"><u>[New] Elevating Your TikTok Pics with Simple Edits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-fortune-on-screen-achieving-youtube-earnings-unlinked-from-ads/"><u>[Updated] In 2024, Fortune on Screen Achieving YouTube Earnings Unlinked From Ads</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-instagram-snapshot-of-an-enlightening-episode/"><u>2024 Approved Instagram Snapshot of an Enlightening Episode</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-conversations-through-visuals-in-whatsapp/"><u>Boosting Conversations Through Visuals in WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzz-in-online-sphere-deciphering-vague-publicity/"><u>Buzz in Online Sphere: Deciphering Vague Publicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/echoes-of-anonymity-permanently-retiring-from-facebook/"><u>Echoes of Anonymity: Permanently Retiring From Facebook</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-to-other-iphone-14-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE to other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-talking-technology-appraisal/"><u>In 2024, Talking Technology Appraisal</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-metas-authenticated-us-community/"><u>Join Meta's Authenticated US Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-mastery-fastest-android-compact-apps/"><u>Mobile Mastery: Fastest Android Compact Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/next-gen-clarity-in-depth-review-of-best-8k-monitors-for-2024/"><u>Next-Gen Clarity In-Depth Review of Best 8K Monitors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/pause-in-process-facebooks-governing-body-on-trump/"><u>Pause in Process: Facebook's Governing Body on Trump</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Infinix Hot 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/pro-tips-selecting-superior-windows-11-drawers/"><u>Pro Tips: Selecting Superior Windows 11 Drawers</u></a></li>
+<li><a href="https://facebook.techidaily.com/tenfold-techniques-for-transforming-text-spaces/"><u>Tenfold Techniques for Transforming Text Spaces</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-itel-s23plus-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Itel S23+ Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transforming-in-game-audio-identity-for-a-unique-competitive-advantage-no-charge/"><u>Transforming In-Game Audio Identity for a Unique Competitive Advantage (No Charge!)</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-suspension-from-facebook-tested-in-jan/"><u>Trump's Suspension From Facebook Tested in Jan</u></a></li>
 </ul></div>
 

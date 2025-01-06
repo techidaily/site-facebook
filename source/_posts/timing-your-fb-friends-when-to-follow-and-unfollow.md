@@ -1,7 +1,7 @@
 ---
 title: "Timing Your FB Friends: When to Follow & Unfollow?"
-date: 2024-12-21T17:17:25.833Z
-updated: 2024-12-27T19:02:26.300Z
+date: 2025-01-02T20:49:13.715Z
+updated: 2025-01-05T19:14:26.746Z
 tags:
   - facebook
 categories:
@@ -23,10 +23,6 @@ thumbnail: https://thmb.techidaily.com/c2bd6ba622504fadfbcb07e0ff1b2943eed89d4f1
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Does Following Mean on Facebook?
 
@@ -52,7 +48,7 @@ There are two reasons to use the follow feature.
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Follow and Unfollow on Facebook
@@ -60,7 +56,7 @@ There are two reasons to use the follow feature.
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
@@ -77,11 +73,19 @@ There are two reasons to use the follow feature.
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You Let People Follow You?
 
@@ -97,10 +101,6 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
@@ -114,6 +114,10 @@ This same page contains three other settings you need to be aware of:
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to See Who Follows You on Facebook
 
@@ -137,10 +141,6 @@ This same page contains three other settings you need to be aware of:
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Should You Use the Follow Feature on Facebook?
 
  Hopefully, this article has given you a better understanding of the Facebook follow feature. Whether you decide to use the follow feature should depend on how you use Facebook.
@@ -162,21 +162,17 @@ This same page contains three other settings you need to be aware of:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-unlocking-the-full-potential-of-youtubes-adsense-features/"><u>[New] Unlocking the Full Potential of YouTube's AdSense Features</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-aspects-of-sound-and-sight-in-asmr-recording-for-2024/"><u>[Updated] Elevate Your Aspects of Sound and Sight in ASMR Recording for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-unlocked-design-potential-100-free-pp-templates-for-2024/"><u>[Updated] Unlocked Design Potential 100% Free PP Templates for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/handling-soundtracks-opening-srt-on-pcmac-for-2024/"><u>Handling Soundtracks Opening SRT on PC/Mac for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-embrace-facebooks-latest-dating-service/"><u>How to Embrace Facebook's Latest Dating Service</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-manage-your-facebook-friend-list-wisely/"><u>How To Manage Your Facebook Friend List Wisely</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-capture-the-thrill-choosing-superior-cam-accessories/"><u>In 2024, Capture the Thrill Choosing Superior Cam Accessories</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrating-digital-platforms-into-company-culture/"><u>Integrating Digital Platforms Into Company Culture</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-art-of-facebook-timing-with-these-five-budget-friendly-techniques/"><u>Master the Art of Facebook Timing with These Five Budget-Friendly Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-your-social-media-account-without-old-credentials/"><u>Reviving Your Social Media Account without Old Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/timely-tips-discover-5-free-methods-to-improve-fb-update-schedules/"><u>Timely Tips: Discover 5 Free Methods to Improve FB Update Schedules</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/ultrafine-in-action-an-extended-review-of-lgs-4k-display/"><u>UltraFine in Action An Extended Review of LG’s 4K Display</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-your-business-cant-afford-to-ignore-these-6-benefits-from-facebook/"><u>Why Your Business Can’t Afford to Ignore These 6 Benefits From Facebook</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/yl-software-explores-the-best-practices-for-protecting-your-crypto-holdings-from-threats-and-thefts/"><u>YL Software Explores the Best Practices for Protecting Your Crypto Holdings From Threats and Thefts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-preventing-sudden-deletion-of-personal-videos-from-fb/"><u>[New] 2024 Approved Preventing Sudden Deletion of Personal Videos From FB</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-explore-the-spectrum-of-light-with-windows-hdr-video-capabilities/"><u>[Updated] Explore the Spectrum of Light with Windows' HDR Video Capabilities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-as-your-partner-crafting-successful-health-targets-for-lifelong-vitality/"><u>ChatGPT as Your Partner: Crafting Successful Health Targets for Lifelong Vitality</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/from-pocket-sized-to-prolific-cleaner-discover-the-zdnets-ultra-compact-vacuum-revolution/"><u>From Pocket-Sized to Prolific Cleaner: Discover the ZDNET's Ultra-Compact Vacuum Revolution</u></a></li>
+<li><a href="https://media-tips.techidaily.com/hassle-free-guide-producing-stunning-4k-content-with-your-4k-video-recorder/"><u>Hassle-Free Guide: Producing Stunning 4K Content with Your 4K Video Recorder</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/how-to-fix-the-system-reserved-partition-is-missing-error-code-0xc0000185-on-windows-10-systems/"><u>How to Fix 'The System Reserved Partition Is Missing' Error Code 0Xc0000185 on Windows 10 Systems</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210701282-9780876129753-meditaties-voor-de-ziel/"><u>Meditaties voor de ziel | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/reboot-your-facebook-friends-list-after-block/"><u>Reboot Your Facebook Friends List After Block</u></a></li>
+<li><a href="https://facebook.techidaily.com/revising-profile-rules-forward-no-backward-to-faith-or-politics/"><u>Revising Profile Rules: Forward, No Backward to Faith or Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-ranked-by-security-first/"><u>Social Platforms Ranked by Security First</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-art-of-negotiating-a-refund-via-fb/"><u>Unlocking the Art of Negotiating a Refund via FB</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Hockey Groups Reject Online Communication
-date: 2024-08-08T11:27:06.248Z
-updated: 2024-08-09T11:27:06.248Z
+date: 2025-01-01T17:39:00.293Z
+updated: 2025-01-06T04:15:45.936Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
  Stamping out racism in any respect is, quite rightly, very much on many people's agendas. One example being England's athletes and sports stars who, along with their teams, are taking a social media stand against online racism.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## England Sports' Social Media Blackout Has Begun
 
  We reported previously that[English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
@@ -29,8 +30,9 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Will the Social Media Blackout Involve?
 
  As with any blackout, it involves sports players and teams steering clear of social media. So there will be no posts about football, cricket, or rugby, from the teams and players involved in each respective sport. That is because they have boycotted all the platforms mentioned above.
@@ -38,8 +40,9 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Are Sports Teams Boycotting Social Media?
 
  One word. Racism. It is unacceptable to racially abuse anyone, on or offline. Sporting personalities want you to know this. The Premier League announcement says:
@@ -51,20 +54,18 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Taking a Stand Against Racism
 
  Perhaps if more people followed suit and abandoned social media on the grounds of stamping out racism, then platform owners might stop and pay attention. While it isn't going to end racism overnight, unfortunately, it is a great place for everyone who uses social media to start.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,4 +74,20 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-experts-choice-optimal-vehicle-monitoring-tech-for-2024/"><u>[New] Expert's Choice Optimal Vehicle Monitoring Tech for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-guard-your-camera-top-10-shields-reviewed-for-2024/"><u>[New] Guard Your Camera - Top 10 Shields Reviewed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/functionality-on-hold-not-for-whatsapp-without-privacy-agreement/"><u>Functionality on Hold? Not for WhatsApp Without Privacy Agreement</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ignite-a-sensation-how-to-have-your-video-go-viral/"><u>Ignite a Sensation How to Have Your Video Go Viral</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-close-up-confidence-navigating-google-meets-zoom-feature/"><u>In 2024, Close-Up Confidence Navigating Google Meet's Zoom Feature</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-htc-u23-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to HTC U23 Phones? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-users-preference-towards-privacy/"><u>IPhone Users' Preference Towards Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-privacy-settings-in-your-childs-facebook-messenger/"><u>Optimizing Privacy Settings in Your Child's Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/pairing-smartphones-with-home-entertainment/"><u>Pairing Smartphones with Home Entertainment</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-xiaomi-redmi-a2plus-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Xiaomi Redmi A2+ Black and White | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-strategy-expedite-your-online-purchase-reimbursement-via-fb/"><u>Stepwise Strategy: Expedite Your Online Purchase Reimbursement via FB</u></a></li>
+</ul></div>
 

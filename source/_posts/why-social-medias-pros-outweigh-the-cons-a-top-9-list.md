@@ -1,7 +1,7 @@
 ---
 title: "Why Social Media's Pros Outweigh the Cons: A Top 9 List"
-date: 2024-08-08T11:28:18.403Z
-updated: 2024-08-09T11:28:18.403Z
+date: 2024-12-30T02:23:19.233Z
+updated: 2025-01-05T22:54:59.325Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
  Social media may have negatives, but it is actually good for you for various reasons. Here, we'll list some great examples to show how beneficial social media is today.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Social Media Allows Instant Online Discussion
 
 ![Cartoon image of people passing each other things through laptop screens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/instant-online-discussion.jpg)
@@ -30,15 +31,16 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  It's not realistic for you and your friends to have the same interests. In these cases, joining an online community can ensure that you still get the discussion you're seeking.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Social Media Promotes Knowledge Sharing
 
  You can share your knowledge with others or learn from them. Social media is a constantly evolving place amongst dozens of popular platforms, so you can guarantee that a lot of the information you get is relevant and recent. Just be sure to validate the knowledge you've learned wherever you can with multiple sources; you obviously shouldn't believe everything you read on the Internet.
 
  Social media facilitates sharing of knowledge on a global scale. This creates opportunities for everybody, no matter where you are in the world, to be educated on the topics you truly care about.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Keep In Touch With Old Friends on Social Media
 
  Life happens, and you may find that more and more of your friends move away from your town as you get older. Maybe it's you who has moved. In either case, social media makes it possible to keep in touch with your friends despite the physical distance. This is a[positive effect of social media on people](http://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , as it allows you to retain friendships you care about.
@@ -47,30 +49,22 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 ## 4\. Social Media Reduces Stigma
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Cartoon image of someone struggling with mental health.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/reduces-mental-health-stigma.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Many topics such as mental health, race, sexuality, identity, just to name a few, often contain stigma. Social media can help reduce this stigma by offering real-time viewpoints of people from different backgrounds and situations.
 
  Open dialogue is the best way to learn and accept each other. Social media can often help if the users' attitude reflects open-mindedness and respect when engaging with others' content.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## 5\. Social Media Helps Socially Anxious People Communicate
 
  Socially anxious people can have a hard time socializing in real life, finding a lot of group situations overwhelming. If you struggle with this or know somebody that does, you may find that social media can often take away the pressure and make socializing much easier.
 
  There is protection because of the lack of physicality that many people find safe, and anonymity is even easier to achieve if you're very anxious about putting yourself out there. Just be careful not to form a[toxic social media addiction](https://www.makeuseof.com/warning-signs-social-media-addiction/) . Look to be boosted by it rather than reliant.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Keep Up With News Instantly on Social Media
 
  You likely have lots of interests and keep up with many different things. In which case, you'll know that not keeping up with the relevant news for your interests can quickly result in feeling out of the loop.
@@ -78,8 +72,9 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Social media allows you to keep up with news instantly, which is especially true in the case of Twitter or Reddit—they provide users with the most up-to-date information just as much as communicating with other users on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Social Media Promotes Free Learning
 
 ![Cartoon image of man sitting on books reading and learning.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/learning-from-books.jpg)
@@ -93,6 +88,10 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
  Feeling part of a tribe or group of people is something you likely have experienced at various points in your life. Humans are social animals, and you will benefit from feeling part of a community that understands and relates to you.
 
  Social media can be a great way to find a community with a shared experience. You may find that real-life friends that don't share your experience may not be able to relate to you in the way that you'd like. This is especially true if you are in the minority or suffer from a disability. In many cases, online communities can be great for providing you with that camaraderie.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Social Media Helps Establish Your Personal Brand
 
@@ -108,14 +107,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  If you're looking to give social media a more conscious try, you should have a look at the top social media platforms around and pick the ones that seem the most appealing to you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +120,20 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-digital-identity-building-crafting-perfect-channel-images/"><u>[Updated] 2024 Approved Digital Identity Building Crafting Perfect Channel Images</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-quickly-create-a-youtube-animation-for-your-subscribe-button-with-filmora/"><u>[Updated] 2024 Approved Quickly Create a YouTube Animation for Your Subscribe Button with Filmora</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-twitch-time-reversal-17-methods-to-master-your-live-stream/"><u>2024 Approved Twitch Time Reversal 17 Methods to Master Your Live Stream</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/an-easy-way-to-amplify-your-instagram-presence-by-sharing-youtube-links-in-stories-for-2024/"><u>An Easy Way to Amplify Your Instagram Presence by Sharing YouTube Links in Stories for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crucial-6-platforms-propelling-corporate-engagement-strategies/"><u>Crucial 6 Platforms Propelling Corporate Engagement Strategies</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-installation-iphone-device-drivers-on-windows-11-computers/"><u>Easy Installation: IPhone Device Drivers on Windows 11 Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-meta-ai-on-social-platforms-pros-and-cons/"><u>Embracing Meta AI on Social Platforms: Pros & Cons?</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-techniques-for-efficient-fb-link-management/"><u>Essential Techniques for Efficient FB Link Management</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/flawless-conversion-needed-try-these-top-8-sub-and-srt-tools-for-2024/"><u>Flawless Conversion Needed? Try These Top 8 Sub & Srt Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/invoke-immediate-quiet-ban-on-facebook-notifications/"><u>Invoke Immediate Quiet: Ban on Facebook Notifications</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-addingremoving-facebook-shortcuts/"><u>Quick Guide to Adding/Removing Facebook Shortcuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-unleashed-facebook-meets-instagram/"><u>Social Synergy Unleashed: Facebook Meets Instagram</u></a></li>
+</ul></div>
 

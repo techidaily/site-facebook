@@ -1,7 +1,7 @@
 ---
 title: "Potential Policy Shift: Facebook and Honest Marketing Link"
-date: 2024-08-08T11:27:19.734Z
-updated: 2024-08-09T11:27:19.734Z
+date: 2024-12-30T04:32:08.315Z
+updated: 2025-01-06T03:44:07.304Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/c23fd39a2d5eab7804c8c0b256c287da5a7d97c2d
  The ad account of the encrypted messaging app Signal has been banned from Facebook for running what Signal calls the most honest ad campaign on the social network.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Signal Sees Its Facebook Ad Account Disabled
 
  Signal is taking an issue with tremendous data collection happening behind the scenes on Facebook, Instagram, and WhatsApp designed to "sell visibility into people and their lives."
@@ -31,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/c23fd39a2d5eab7804c8c0b256c287da5a7d97c2d
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Responds to Signal's Move
 
 Facebook responded with the following statement to the media:
@@ -46,8 +48,9 @@ Facebook responded with the following statement to the media:
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -57,17 +60,9 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
  Signal wrapped it up nicely with the following passage in its blog post:
@@ -78,14 +73,11 @@ Facebook responded with the following statement to the media:
 
  Signal is a secure messaging app that uses end-to-end encryption, vanishing messages, and other features to prevent eavesdropping. While not as popular as WhatsApp or Viber, Signal saw a sudden surge in popularity following Facebook's controversial privacy policy update on WhatsApp which drove some WhatsApp users away from that platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,4 +86,22 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-identifying-power-users-in-niche-specific-instagram/"><u>[New] Identifying Power Users in Niche-Specific Instagram</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unbeatable-range-ultimate-4k-camera-rig-selection/"><u>[Updated] In 2024, Unbeatable Range Ultimate 4K Camera Rig Selection</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-sharpfocusx7-size-your-photography-right/"><u>[Updated] SharpFocusX7 Size Your Photography Right</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-change-methodically-updating-your-facebook-handle/"><u>Embracing Change: Methodically Updating Your Facebook Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-friends-use-polls-to-deepen-relationships-in-messaging/"><u>Engage Friends: Use Polls to Deepen Relationships in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/envisioning-interconnected-realities-metaverse-insights/"><u>Envisioning Interconnected Realities: Metaverse Insights</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-strength-of-a-minuscule-beast-the-comprehensive-review-of-the-ipad-mini-5/"><u>Exploring the Strength of a Minuscule Beast: The Comprehensive Review of the iPad Mini 5</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-action-sequence-showdown-new-era-gopro-hero5-black-vs-old-guard-hero4-silver/"><u>In 2024, Action Sequence Showdown New Era GoPro Hero5 Black Vs Old Guard Hero4 Silver</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-channel-elevation-strategy-quickly-reach-your-10k-view-quota/"><u>In 2024, Channel Elevation Strategy – Quickly Reach Your 10K View Quota!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-hidden-landscape-of-digital-interactions/"><u>Navigating the Hidden Landscape of Digital Interactions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/roku-travel-hacks-turning-your-tv-into-a-wireless-lifeline-in-hotels-and-dorms/"><u>Roku Travel Hacks: Turning Your TV Into a Wireless Lifeline in Hotels and Dorms</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-fbs-watch-tech-double-cameras-on-the-horizon/"><u>Sneak Peek at FB's Watch Tech: Double Cameras on the Horizon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-integrating-meta-ai-into-instagramfacebook/"><u>The Implications of Integrating Meta AI Into Instagram/Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangle-issues-keeping-facebook-unavailable/"><u>Untangle Issues Keeping Facebook Unavailable</u></a></li>
+</ul></div>
 

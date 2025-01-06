@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2024-12-14T20:01:04.156Z
-updated: 2024-12-22T01:58:22.239Z
+date: 2025-01-01T21:55:48.018Z
+updated: 2025-01-06T03:37:16.335Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,21 +83,19 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-optimizing-your-netflix-stream-with-fasterslower-pace/"><u>[New] Optimizing Your Netflix Stream with Faster/Slower Pace</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-understanding-the-mechanics-behind-altering-gender-in-snapchatfacebook-images/"><u>[Updated] In 2024, Understanding the Mechanics Behind Altering Gender in Snapchat/Facebook Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-portions-from-facebooks-725m-settlement-windfall/"><u>Accessing Portions From Facebook’s 725M Settlement Windfall</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/asus-15-inch-laptop-at-unbeatable-walmart-price-only-250-with-comprehensive-connectivity-options-insider-report/"><u>Asus 15-Inch Laptop at Unbeatable Walmart Price: Only $250 with Comprehensive Connectivity Options - Insider Report</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-personal-preferences-and-group-presence/"><u>Balancing Personal Preferences and Group Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-volatility-gaps-with-cryptos-stablecoin-solutions/"><u>Bridging Volatility Gaps with Crypto's Stablecoin Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-brighter-future-with-facebook-rust-collaboration/"><u>Building a Brighter Future with Facebook-Rust Collaboration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-maisto-rc-rock-crawler-assessment-top-choice-for-families/"><u>Comprehensive Maisto RC Rock Crawler Assessment: Top Choice for Families</u></a></li>
-<li><a href="https://facebook.techidaily.com/cracking-open-the-mystery-of-vague-online-posts/"><u>Cracking Open the Mystery of Vague Online Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144966923-facebooks-unique-value-proposition-here-are-6-pivotal-points/"><u>Facebook's Unique Value Proposition – Here Are 6 Pivotal Points</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/get-the-inside-scoop-on-sonys-ps5-slim-when-it-drops-and-how-much-will-it-cost/"><u>Get the Inside Scoop on Sony's PS5 Slim – When It Drops and How Much Will It Cost?</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-6s-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 6s To Other iPhone devices? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149598351-interoperability-intensified-effortlessly-sync-facebook-items-with-top-apps/"><u>Interoperability Intensified: Effortlessly Sync Facebook Items with Top Apps</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-video-card-problems-in-the-sims-4-expert-solutions/"><u>Resolving Video Card Problems in The Sims 4 - Expert Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-e-reader-for-bibliophiles-unveiling-the-kobo-forma/"><u>The Ultimate E-Reader for Bibliophiles: Unveiling the Kobo Forma</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/tom-cruises-box-office-hits-ranking-his-top-ten-movie-masterpieces/"><u>Tom Cruise's Box Office Hits: Ranking His Top Ten Movie Masterpieces</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-propel-your-igtv-presence-techniques-to-skyrocket-subscriber-count/"><u>[New] In 2024, Propel Your IGTV Presence Techniques to Skyrocket Subscriber Count</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-pathway-to-proficient-league-of-legends-screen-recordings/"><u>[New] In 2024, The Pathway to Proficient League of Legends Screen Recordings</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-optimize-obs-encoding-quick-solutions-for-2024/"><u>[New] Optimize OBS Encoding Quick Solutions for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevate-brand-recognition-optimizing-facebook-with-keywords-and-links/"><u>[Updated] 2024 Approved Elevate Brand Recognition Optimizing Facebook with Keywords and Links</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-resolve-instagram-video-glitches-today/"><u>[Updated] 2024 Approved Resolve Instagram Video Glitches Today</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-comprehensive-list-of-high-quality-game-entrance-makers-online/"><u>[Updated] In 2024, Comprehensive List of High-Quality Game Entrance Makers Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-screen-better-or-worse-life/"><u>Beyond the Screen: Better or Worse Life?</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-job-openings-impact-with-fb-strategies/"><u>Boosting Your Job Opening's Impact with FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-the-fb-messenger-boundary/"><u>Breaking Free From the FB Messenger Boundary</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-communities-the-7-positive-power-of-social-sites/"><u>Bridging Communities: The 7 Positive Power of Social Sites</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigate-and-dominate-with-youtube-studios-advanced-editing-features/"><u>Navigate and Dominate with YouTube Studio's Advanced Editing Features</u></a></li>
+<li><a href="https://win-updates.techidaily.com/streamlining-development-and-maintenance-how-repackaging-optimizes-the-software-lifecycle-in-corporate-settings/"><u>Streamlining Development and Maintenance: How Repackaging Optimizes the Software Lifecycle in Corporate Settings</u></a></li>
+<li><a href="https://article-helps.techidaily.com/teleport-into-virtuality-top-10-mobile-vr-headsets-reviewed/"><u>Teleport Into Virtuality Top 10 Mobile VR Headsets Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-postponements-whats-behind-oculus-quest-iii-delay/"><u>Unveiling Postponements: What's Behind Oculus Quest III Delay?</u></a></li>
 </ul></div>
 

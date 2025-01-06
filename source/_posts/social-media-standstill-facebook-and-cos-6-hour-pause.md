@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-12-23T20:21:51.454Z
-updated: 2024-12-27T16:06:01.243Z
+date: 2025-01-03T19:39:11.115Z
+updated: 2025-01-05T18:45:51.436Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,17 +87,16 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-step-up-your-film-game-on-instagram-with-border-tips-for-2024/"><u>[New] Step up Your Film Game on Instagram with Border Tips for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-navigating-complex-projects-on-magix-video-pro-x/"><u>[Updated] Navigating Complex Projects on Magix Video Pro X</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-navigating-through-free2xs-camera-capturing-features-for-2024/"><u>[Updated] Navigating Through Free2X's Camera Capturing Features for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/home-cinema-magic-access-fandango-movies-and-events-via-apple-tv/"><u>Home Cinema Magic: Access Fandango Movies and Events via Apple TV</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/live-streaming-with-manycam-ultimate-software-and-virtual-camera-solutions/"><u>Live Streaming with ManyCam: Ultimate Software and Virtual Camera Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastodons-social-structure-unveiled/"><u>Mastodon's Social Structure Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-facebook-verification-how-vpns-evolved-and-connect-an-android-phone-to-your-tv/"><u>Meta's Facebook Verification, How VPNs Evolved, and Connect an Android Phone to Your TV</u></a></li>
-<li><a href="https://review-topics.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/reclaiming-unplanned-disconnect-from-facebook/"><u>Reclaiming Unplanned Disconnect From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-fabric-redefined-why-the-metaverse-raises-concerns/"><u>The Social Fabric Redefined - Why the Metaverse Raises Concerns</u></a></li>
-<li><a href="https://facebook.techidaily.com/uploading-ultrahd-photos-to-your-fb-profile/"><u>Uploading UltraHD Photos to Your FB Profile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nraveling-the-secrets-of-viral-content-creation-for-2024/"><u>[New] Unraveling the Secrets of Viral Content Creation for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-wave-goodbye-to-breakups-keep-your-streak-going/"><u>[Updated] 2024 Approved Wave Goodbye to Breakups Keep Your Streak Going</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-integrate-free-audio-in-your-videos-effortlessly/"><u>[Updated] In 2024, Integrate FREE Audio in Your Videos Effortlessly</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unraveling-the-mystery-of-a-frozen-tiktok-app-on-chrome/"><u>2024 Approved Unraveling the Mystery of a Frozen TikTok App on Chrome</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-will-begin-surveying-users-about-their-news-feed-experiences/"><u>Facebook Will Begin Surveying Users About Their News Feed Experiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-interactive-feedback-via-page-polls/"><u>Facilitating Interactive Feedback via Page Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-social-to-virtual-sphere-6-revolutionary-facts-about-fbs-metaverse/"><u>From Social to Virtual Sphere: 6 Revolutionary Facts About FB’s Metaverse</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-depth-cost-calculation-estimating-a-podcasts-price-tag/"><u>In-Depth Cost Calculation Estimating a Podcast's Price Tag</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-video-editing-on-a-mac-the-top-picks-for/"><u>New Video Editing on a Mac The Top Picks For</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-marketing-efforts-discover-8-crowdflower-features/"><u>Streamlining Marketing Efforts: Discover 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-trend-alert-unbundling-giphy-from-facebook-debated/"><u>Tech Trend Alert: Unbundling Giphy From Facebook Debated</u></a></li>
 </ul></div>
 

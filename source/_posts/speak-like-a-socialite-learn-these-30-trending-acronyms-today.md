@@ -1,7 +1,7 @@
 ---
 title: "Speak Like a Socialite: Learn These 30 Trending Acronyms Today"
-date: 2024-12-26T19:40:50.254Z
-updated: 2024-12-27T18:19:42.649Z
+date: 2024-12-31T21:47:03.711Z
+updated: 2025-01-06T08:53:33.056Z
 tags:
   - facebook
 categories:
@@ -34,40 +34,36 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  FYP is short for "For You Page", which is TikTok's personal recommendations feed. It shows you what it thinks you'll like based on the content you already enjoy. Every TikTok creator wants their videos to be featured on the FYP. In fact, the #FYP hashtag on TikTok had 49,775.4 billion views at the time of writing.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. IYKYK
 
  IYKYK stands for "if you know, you know". This abbreviation is used to refer to an inside joke or something that only certain people would understand. It's typically used without an explanation.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. GRWM
 
  GRWM means "get ready with me". The term is most popular on TikTok for videos showing creators getting ready for the day. This could be in preparation for running errands, attending an event, or going on a date.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. DM
 
  A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. #F4F
 
  #F4F means "follow for follow". Users often leave this hashtag in your comments after following you. It's their way of letting you know they've just followed you and asking you to follow them back. You aren't necessarily obligated to follow them back, but you may lose them as a follower if you don't.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. #L4L
 
  Similar to #F4F, the #L4L hashtag stands for "like for like". People leave this hashtag on your post when they've liked your posts and would like you to return the favor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. RT
@@ -89,36 +85,44 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
  FW stands for "f\*\*\* with". If someone says they f\*\*\* with something, they mean they cosign it. Conversely, if they say they don't FW with something, it means they don't associate with it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 12\. IKTR
 
  IKTR means "I know that's right". This term is used when you agree with something or can relate to the situation. For example, someone may post that doing their nails is a form of self-care. Another user may comment "IKTR".
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 13\. ICYMI
 
  Popular on X, ICYMI stands for "in case you missed it". It's used to bring your audience up to speed about something that happened while they were away or that they missed on their timeline.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 14\. IJS
 
  IJS means "I'm just saying". The IJS abbreviation is often added to the end of a post about an unpopular opinion or differing view.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 15\. IMO/IMHO
 
  IMO and IMHO stand for "in my opinion" and "in my honest opinion", respectively. These abbreviations are used when someone expresses their opinion on social media. People may feel the need to add it as a disclaimer when they anticipate that other users may disagree with them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 16\. OOMF
 
  OOMF means "one of my followers". You'll most likely see this abbreviation on X. It's used when a user refers to someone who follows them but doesn't want to reveal their name or handle.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 17\. TBH/TBQH
 
@@ -140,13 +144,13 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
  MCM is short for "Man Crush Monday". This is similar to WCW but for men. And instead of Wednesdays, the posts are uploaded on Mondays.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 22\. TBT
 
  TBT means "Throwback Thursday". Thursdays are for walking down memory lane on social media. TBT is used with an old picture you're posting or reposting, and can be used as a hashtag.​​​​​​​
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 23\. FBF
 
@@ -161,7 +165,7 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
  OOTN means "outfit of the night". Like OOTD, OOTN is used to show off one's outfit for the night.​​​​​​​
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 26\. HT
@@ -175,10 +179,6 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 ## 28\. PM
 
  PM is the abbreviation for private message. Like direct messages or DMs, private messages are used to chat privately on social media.​​​​​​​
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 29\. TL;DR
 
@@ -207,14 +207,22 @@ thumbnail: https://thmb.techidaily.com/b513a033c1a351aae3735f8454f39fad640e39163
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/eamless-techniques-for-swift-removal-of-your-youtube-comments/"><u>[New] Seamless Techniques for Swift Removal of Your Youtube Comments</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-achieve-perfect-youtube-broadcasts-with-superior-webcams/"><u>[Updated] 2024 Approved Achieve Perfect YouTube Broadcasts with Superior Webcams</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-a-decade-in-review-top-8-free-online-srt-translators/"><u>[Updated] A Decade in Review Top 8 Free Online SRT Translators</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-in-game-video-a-detailed-tool-analysis/"><u>[Updated] In 2024, In-Game Video A Detailed Tool Analysis</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-quick-tips-for-a-standout-instagram-groups-project/"><u>[Updated] Quick Tips for a Standout Instagram Groups Project</u></a></li>
-<li><a href="https://facebook.techidaily.com/fostering-friendship-engage-through-messengers-interactive-queries/"><u>Fostering Friendship: Engage Through Messenger's Interactive Queries</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-sites-for-procuring-freelance-positions/"><u>Key Sites for Procuring Freelance Positions</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-sabbath-unpacking-instagrams-case-for-cyber-detox/"><u>Social Media Sabbath: Unpacking Instagram’s Case for Cyber Detox</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-purpose-and-advantages-behind-allowing-several-identities-on-one-facebook-profile/"><u>The Purpose and Advantages Behind Allowing Several Identities on One Facebook Profile</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-essential-steps-for-adobe-presenter-recordings/"><u>[New] 2024 Approved Essential Steps for Adobe Presenter Recordings</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-ideal-approaches-to-stream-and-record-major-sports-games/"><u>[New] 2024 Approved Ideal Approaches to Stream and Record Major Sports Games</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-photo-grandeur-with-our-best-grid-apps-list/"><u>[New] Photo Grandeur with Our Best Grid Apps List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-time-saving-hacks-for-recording-instagram-stories-for-2024/"><u>[New] Time-Saving Hacks for Recording Instagram Stories for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-advanced-systems-for-tracking-human-manoeuvres/"><u>[Updated] In 2024, Advanced Systems for Tracking Human Manoeuvres</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-reshaped-what-new-antitrust-measures-mean/"><u>Big Tech Reshaped: What New Antitrust Measures Mean</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/duo-display-dynamic-duo-configuring-additional-screens-on-mac-devices/"><u>Duo-Display Dynamic Duo: Configuring Additional Screens on Mac Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/effective-techniques-for-eliminating-digital-rights-management-on-ebook-content/"><u>Effective Techniques for Eliminating Digital Rights Management on eBook Content</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-realme-note-50-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/lasting-connections-or-closing-facebook-heres-what-you-should-do-first/"><u>Lasting Connections or Closing Facebook? Here's What You Should Do First</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-lasting-impact-3d-photography-techniques-on-social-networks/"><u>Making a Lasting Impact: 3D Photography Techniques on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-on-next-gen-oculus-a-shift-in-plans-max-80-charaters/"><u>Silence on Next-Gen Oculus: A Shift in Plans (Max 80 Charaters)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/steps-to-streaming-fubotv-with-your-amazon-fire-tv-stick/"><u>Steps to Streaming FuboTV with Your Amazon Fire TV Stick</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-soccer-teams-cut-ties-with-snapchat-instagram-amid-harsh-criticism/"><u>UK Soccer Teams Cut Ties with Snapchat, Instagram Amid Harsh Criticism</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-ghost-in-online-chatting/"><u>What Is a 'Ghost' In Online Chatting?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pauses-introduction-of-revised-user-agreement/"><u>WhatsApp Pauses Introduction of Revised User Agreement</u></a></li>
 </ul></div>
 

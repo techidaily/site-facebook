@@ -1,7 +1,7 @@
 ---
 title: Tips to Ensure Facebook Only Seen by Friends
-date: 2024-12-20T06:01:04.939Z
-updated: 2024-12-21T21:22:05.883Z
+date: 2025-01-02T03:00:23.110Z
+updated: 2025-01-06T05:54:49.148Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Make Your Facebook Profile Private
 
  This is the most obvious way to keep prying eyes out of your Facebook account. You may not want to have anyone and everyone looking through your profile at any given time. You don't necessarily have to open up your profile to the public if you're not an influencer, content creator, celebrity, or public figure.
@@ -37,14 +41,10 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Lock Your Facebook Profile Down
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
@@ -102,11 +102,11 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Keep a Low Profile on Facebook
@@ -130,18 +130,24 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-depth-analysis-how-galaxy-s8-dominates-in-4k-video-for-2024/"><u>[New] In-Depth Analysis How Galaxy S8 Dominates in 4K Video for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-navigating-sierra-icloud-for-seamless-access/"><u>2024 Approved Navigating Sierra iCloud for Seamless Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/activate-the-fortress-facebooks-personal-safety-toolkit/"><u>Activate the Fortress: Facebook's Personal Safety Toolkit</u></a></li>
-<li><a href="https://facebook.techidaily.com/adjusting-your-little-ones-online-presence-in-messenger/"><u>Adjusting Your Little One’s Online Presence in Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/anonymous-advantages-avoid-privacy-popping-apps/"><u>Anonymous Advantages: Avoid Privacy-Popping Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-post-fb-existence/"><u>Beyond the Newsfeed: Post-FB Existence</u></a></li>
-<li><a href="https://facebook.techidaily.com/complete-uncoupling-from-the-social-media-giant/"><u>Complete Uncoupling From the Social Media Giant</u></a></li>
-<li><a href="https://program-issues.techidaily.com/cracked-cod-crackdown-on-warzones-pacific-wreckage/"><u>Cracked Cod: Crackdown on Warzone's Pacific Wreckage</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/effective-strategies-for-exploring-past-internet-content-through-the-wayback-machine/"><u>Effective Strategies for Exploring Past Internet Content Through the Wayback Machine</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-your-images-learn-photo-curvature-in-ps/"><u>Elevate Your Images Learn Photo Curvature in PS</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-complete-online-video-editing-course-from-basics-to-advanced-techniques/"><u>New The Complete Online Video Editing Course From Basics to Advanced Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/the-ultimate-guide-to-splitting-the-action-multiscreen-strategies-on-social-media/"><u>The Ultimate Guide to Splitting the Action Multiscreen Strategies on Social Media</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-in-windows-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning your hardware drivers with Windows Device Manager in Windows 10 & 7</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-a-taste-of-trending-the-foodie-world-of-tiktok/"><u>[New] 2024 Approved A Taste of Trending The Foodie World of TikTok</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-exploring-basics-of-digital-narratives/"><u>[Updated] In 2024, Exploring Basics of Digital Narratives</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-build-at-home-an-affordable-and-versatile-virtual-reality-headset/"><u>2024 Approved Build at Home an Affordable and Versatile Virtual Reality Headset</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-itel-p55plus-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Itel P55+ by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-week-without-the-blue-bird/"><u>A Week Without the Blue Bird</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/all-about-kinemaster-androids-ultimate-gaming-companion-for-2024/"><u>All About KineMaster Android's Ultimate Gaming Companion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/distinguishing-profile-names-from-usernames-on-platforms/"><u>Distinguishing Profile Names From Usernames on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-next-gen-tech-fbs-smartwatch-with-potential-for-2-cameras/"><u>Exploring Next-Gen Tech: FB's Smartwatch With Potential for 2 Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-revamp-of-your-social-media-experience-with-fb/"><u>Exploring the Revamp of Your Social Media Experience with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-digital-to-dollars-is-fb-planning-to-open-nearby-stores/"><u>From Digital to Dollars: Is FB Planning to Open Nearby Stores?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-switching-your-photos-from-webp-to-jpg-with-the-help-of-movavis-powerful-toolset/"><u>Guide: Switching Your Photos From WebP to JPG with the Help of Movavi's Powerful Toolset</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-xltm-document-with-digital-signature-tutorial-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Sign .xltm document with Digital Signature - (Tutorial)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-viewers-to-earners-journey-calculating-necessary-counts/"><u>In 2024, Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-networking-techniques-sending-instagram-reels-via-facebook/"><u>Interactive Networking Techniques: Sending Instagram Reels via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-safe-a-quick-checklist-for-9-warning-signs/"><u>Keep Your Social Safe: A Quick Checklist for 9 Warning Signs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/making-business-simpler-with-chatgpts-advanced-assistance/"><u>Making Business Simpler with ChatGPT's Advanced Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-networkers-shield-against-scams/"><u>The Social Networker’s Shield Against Scams</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-how-to-fix-your-hp-monitor-issues-a-comprehensive-guide/"><u>Troubleshooting Tips: How to Fix Your HP Monitor Issues - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-persistent-social-media-advice-is-inevitable/"><u>Why Persistent Social Media Advice Is Inevitable?</u></a></li>
 </ul></div>
 

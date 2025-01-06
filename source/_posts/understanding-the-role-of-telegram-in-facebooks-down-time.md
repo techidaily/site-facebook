@@ -1,7 +1,7 @@
 ---
 title: Understanding the Role of Telegram in Facebook's Down-Time
-date: 2024-12-25T19:31:44.045Z
-updated: 2024-12-27T17:19:41.093Z
+date: 2025-01-05T06:29:01.300Z
+updated: 2025-01-05T17:07:18.928Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -40,12 +36,16 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 
 But why did Telegram benefit so much more than any of its rivals?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
@@ -55,7 +55,7 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Important Is This for Telegram?
@@ -71,7 +71,7 @@ But why did Telegram benefit so much more than any of its rivals?
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## It Wasn't All Perfect for Telegram
@@ -87,7 +87,7 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
@@ -111,24 +111,22 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-understanding-igtv-vs-youtube-a-comprehensive-feature-breakdown/"><u>[New] 2024 Approved Understanding IGTV Vs. YouTube A Comprehensive Feature Breakdown</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-4-fastest-lenovo-record-methods-for-2024/"><u>[New] The 4 Fastest Lenovo Record Methods for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-xiaomi-13-ultra-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Xiaomi 13 Ultra System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/a-comprehensive-guide-to-lut-customization-in-premiere-pro-workflows-for-2024/"><u>A Comprehensive Guide to LUT Customization in Premiere Pro Workflows for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-detaching-instagram-from-your-facebook-profile/"><u>Guide to Detaching Instagram From Your Facebook Profile</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/how-to-blur-a-picture-on-iphone-4-ways-for-2024/"><u>How to Blur a Picture on iPhone [4 Ways] for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-swiftly-remove-shared-content-from-your-timeline/"><u>How to Swiftly Remove Shared Content From Your Timeline</u></a></li>
-<li><a href="https://driver-install.techidaily.com/improve-display-dynamics-update-graphics-in-windows-10/"><u>Improve Display Dynamics - Update Graphics in Windows 10</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-capture-the-world-with-these-leading-4k-cams/"><u>In 2024, Capture the World with These Leading 4K Cams</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-essential-screen-recording-tools-a-comprehensive-educators-guide/"><u>In 2024, Essential Screen Recording Tools A Comprehensive Educator's Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme Narzo N55? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-it-under-wraps-top-10-personal-disclosures-to-dodge/"><u>Keeping It Under Wraps: Top 10 Personal Disclosures to Dodge</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-facebook-moderator-eliminating-online-chatter-from-your-post/"><u>Master Facebook Moderator: Eliminating Online Chatter From Your Post</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-era-of-social-chat-for-facebook-users-announced/"><u>New Era of Social Chat for Facebook Users Announced</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-facebook-papers-arent-as-damning-as-they-seem-heres-why/"><u>The Facebook Papers Aren't as Damning as They Seem. Here's Why</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-earning-cash-on-ig-and-fb/"><u>The Ultimate Guide: Earning Cash on IG and FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unified-frontiers-exploring-the-unity-between-fb-and-insta/"><u>Unified Frontiers: Exploring the Unity Between FB & Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-the-guardian-of-facebooks-secrets/"><u>Unmasking the Guardian of Facebook's Secrets</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-clipcrafter-app/"><u>[New] In 2024, ClipCrafter App</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-prime-presenter-prefix-planner-for-2024/"><u>[New] Prime Presenter Prefix Planner for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-content-creators-companion-to-commercial-success-on-vimeo/"><u>[Updated] 2024 Approved The Content Creator's Companion to Commercial Success on Vimeo</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-up-in-the-metaverse-game-with-these-critical-devices-top-7-for-2024/"><u>[Updated] Step Up in the Metaverse Game with These Critical Devices (Top 7) for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-top-5-concealed-story-viewers-apps/"><u>[Updated] The Top 5 Concealed Story Viewers' Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/alter-your-social-media-identity-a-compreenas-guide-to-facebook-renaming/"><u>Alter Your Social Media Identity: A Compreenas Guide to Facebook Renaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-safety-with-2fa-for-email-platforms-like-gmail-and-outlook/"><u>Boosting Digital Safety with 2FA for Email Platforms Like Gmail and Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-digital-gallery-diy-photo-collage-tips/"><u>Crafting Your Digital Gallery: DIY Photo Collage Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-facebooks-past-conversations/"><u>Delving Into Your Facebook's Past Conversations</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/fast-techniques-for-speeding-up-music-and-podcast-content-loading-times/"><u>Fast Techniques for Speeding Up Music & Podcast Content Loading Times</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-in-german-with-darks-help/"><u>From Novice to Expert in German - With Dark's Help</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/high-definition-dodge-challenger-srt-hellcat-wallsavers-and-imagery-collection-premium-wallpaper-selections-by-yl-computing/"><u>High-Definition Dodge Challenger SRT Hellcat Wallsavers & Imagery Collection - Premium Wallpaper Selections by YL Computing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-y28-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo Y28 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-pages-admins-onboard-guide/"><u>Mastering Facebook Pages: Admins Onboard Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-your-social-media-account-post-code-mishap/"><u>Recovering Your Social Media Account, Post-Code Mishap</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-digital-identity-with-2fa-focus-on-gmail-and-outlook/"><u>Securing Digital Identity with 2FA - Focus on Gmail and Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-social-media-governance-facebooks-latest-policies-hub/"><u>Unveiling Social Media Governance: Facebook's Latest Policies Hub</u></a></li>
 </ul></div>
 

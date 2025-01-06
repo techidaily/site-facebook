@@ -1,7 +1,7 @@
 ---
 title: "Phone Data: Silent Salesperson? Real Luck, Or Designed Deception?"
-date: 2024-12-18T16:01:17.060Z
-updated: 2024-12-21T17:19:17.094Z
+date: 2025-01-05T00:11:50.205Z
+updated: 2025-01-05T17:48:00.257Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/14a22e63716263e4dbf21490561e8b1d60bb16b34
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -32,10 +36,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -43,10 +43,6 @@ What is going on?
  They believe that smartphone microphones are being used to record what they say, with the information used to[better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
 
@@ -65,7 +61,7 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is My Smartphone Really Listening to Me for Ads?
@@ -86,6 +82,10 @@ What is going on?
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can You Prove If an App Is Listening to You?
 
  Could apps capture audio data using your smartphone's microphone? To find out, cybersecurity experts Ken Munro and David Lodge from Pen Test Partners developed an app. Its aim is to record what was being said in the vicinity of a phone and display it on a monitor.
@@ -97,7 +97,7 @@ What is going on?
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
@@ -105,7 +105,7 @@ What is going on?
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
@@ -159,21 +159,20 @@ What is going on?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-from-photo-to-film-the-cinematic-edge-of-iphone-x/"><u>[New] From Photo to Film The Cinematic Edge of iPhone X</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-quick-and-easy-steps-to-efficient-free-clock-use/"><u>[New] Quick and Easy Steps to Efficient Free Clock Use</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-access-unparalleled-image-clarity-for-no-charge/"><u>[Updated] 2024 Approved Access Unparalleled Image Clarity for No Charge</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-beginners-essential-guide-to-youtube-video-editing-magic-for-2024/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-your-online-admiring-circle/"><u>Exploring Your Online Admiring Circle</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-issue-when-crusader-kings-2-game-fails-to-load/"><u>Fixing the Issue When Crusader Kings 2 Game Fails to Load</u></a></li>
-<li><a href="https://facebook.techidaily.com/forums-demise-presented-by-social-media-advantages/"><u>Forums' Demise, Presented by Social Media Advantages</u></a></li>
-<li><a href="https://fox-ssl.techidaily.com/grouped-server-side-pages-strategies-enhancing-website-efficiency/"><u>Grouped Server-Side Pages Strategies: Enhancing Website Efficiency</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-realme-c51-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Realme C51 Phones? | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-motion-mastery-best-apps-for-android-and-ios-devices/"><u>In 2024, Motion Mastery Best Apps for Android and iOS Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/insta-reels-and-story-stickers-the-future-of-ads/"><u>Insta Reels and Story Stickers: The Future of Ads?</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-horizons-in-earnings-instagram-enhances-artist-profits/"><u>New Horizons in Earnings: Instagram Enhances Artist Profits</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalize-feeds-turning-off-facebooks-automatic-curations/"><u>Personalize Feeds: Turning Off Facebook's Automatic Curations</u></a></li>
-<li><a href="https://facebook.techidaily.com/posting-under-the-radar-in-social-hubs/"><u>Posting Under the Radar in Social Hubs</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-erase-replies-on-social-media-feeds/"><u>Steps to Erase Replies on Social Media Feeds</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/the-verdict-on-inshot-master-editor/"><u>The Verdict on InShot Master Editor?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-deciding-on-a-digital-domain-obs-vs-twitch-studio/"><u>[Updated] In 2024, Deciding on a Digital Domain OBS Vs Twitch Studio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-master-wmp-techniques-for-efficient-cd-handling-and-recordings-for-2024/"><u>[Updated] Master WMP Techniques for Efficient CD Handling and Recordings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/convenient-techniques-for-eliminating-facebook-updates/"><u>Convenient Techniques for Eliminating Facebook Updates</u></a></li>
+<li><a href="https://common-error.techidaily.com/counteracting-misleading-warnings-in-google-chrome-with-proven-techniques/"><u>Counteracting Misleading Warnings in Google Chrome with Proven Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
+<li><a href="https://program-issues.techidaily.com/diagnosing-and-fixing-crashes-in-call-of-duty-vanguard-on-windows-2024-edition/"><u>Diagnosing and Fixing Crashes in Call of Duty: Vanguard on Windows - 2024 Edition</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dimming-down-beats-a-tutorial-for-premiere-pro-editors/"><u>Dimming Down Beats A Tutorial for Premiere Pro Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-home-to-on-the-move-portal-go-innovation/"><u>From Home to On-the-Move: Portal Go Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-your-facebook-watch-history-and-why-you-should/"><u>How to Delete Your Facebook Watch History (and Why You Should)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-samsung-galaxy-s23-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Samsung Galaxy S23 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-tools-for-superior-collaborative-endeavors-on-facebook/"><u>Integrating Social Tools for Superior Collaborative Endeavors on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-online-networks-for-workplace-success/"><u>Mastering Online Networks for Workplace Success</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellar-file-deletor-on-windows-seamless-scheduled-purging-tutorial/"><u>Stellar File Deletor on Windows: Seamless Scheduled Purging Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rankings-the-leading-portable-disc-writers/"><u>Top Rankings: The Leading Portable Disc Writers</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-leaving-no-footprint-on-facebook-is-smart/"><u>Why Leaving No Footprint on Facebook Is Smart</u></a></li>
 </ul></div>
 

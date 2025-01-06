@@ -1,7 +1,7 @@
 ---
 title: "Owning Facebook: The Current Face"
-date: 2024-08-08T11:27:22.111Z
-updated: 2024-08-09T11:27:22.111Z
+date: 2025-01-04T08:36:24.324Z
+updated: 2025-01-06T04:05:43.774Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f
  The rebranding raises a number of intriguing questions, such as who now owns Facebook? We'll answer that question in this article, while taking a quick trip down memory lane to figure out how we got here.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## From The Facebook To Meta
 
  In 2004, Mark Zuckerberg, Eduardo Saverin, Dustin Moskovitz, and Chris Hughes, all Harvard students, founded Facebook. Facebook's popularity grew quickly, and by the end of 2004, it had surpassed one million active users.
@@ -33,14 +34,16 @@ thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Owns Facebook Now?
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -53,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -64,22 +68,20 @@ thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Zuckerberg Still (Largely) Owns Meta
 
  The governing structure of Facebook, or Meta as it is now called, remains unchanged despite the rebranding. Zuckerberg, with his Class B share majority, still maintains his iron grip on Facebook.
 
  Zuckerberg will remain in charge of Facebook until he sells his shares or the shares' power gets diluted. The Meta rebrand is a change in name but not much else.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,4 +90,17 @@ thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-boost-your-instagrams-accessibility-with-easy-caption-features-for-2024/"><u>[New] Boost Your Instagram's Accessibility with Easy Caption Features for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-decoding-shrouded-comments-in-video-platforms-for-2024/"><u>[Updated] Decoding Shrouded Comments in Video Platforms for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/como-lograr-videos-nitidos-y-profundos-las-12-mejores-soluciones-del-mercado-actualmente/"><u>Cómo Lograr Videos Nítidos Y Profundos: Las 12 Mejores Soluciones Del Mercado Actualmente</u></a></li>
+<li><a href="https://facebook.techidaily.com/embarking-into-new-dimensions-understanding-and-importance-of-facebooks-metaverse/"><u>Embarking Into New Dimensions: Understanding and Importance of Facebook's Metaverse</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enhance-your-images-instantly-movavis-user-friendly-image-editor/"><u>Enhance Your Images Instantly: Movavi's User-Friendly Image Editor</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-depth-zoom-techniques-for-exceptional-podcasts-for-2024/"><u>In-Depth Zoom Techniques for Exceptional Podcasts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/insiders-list-google-pixel-tone-sources/"><u>Insider's List Google Pixel Tone Sources</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-paradox-why-do-people-reject-online-communities/"><u>The Facebook Paradox: Why Do People Reject Online Communities?</u></a></li>
+<li><a href="https://facebook.techidaily.com/twinning-trends-exploring-the-affinity-between-fb-and-insta/"><u>Twinning Trends: Exploring the Affinity Between FB & Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-to-ignore-member-names-on-fb-groups/"><u>Unveiling the Process to Ignore Member Names on FB Groups</u></a></li>
+</ul></div>
 

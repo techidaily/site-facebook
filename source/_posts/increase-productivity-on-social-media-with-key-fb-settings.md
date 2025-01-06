@@ -1,7 +1,7 @@
 ---
 title: Increase Productivity on Social Media with Key FB Settings
-date: 2024-08-08T11:27:08.126Z
-updated: 2024-08-09T11:27:08.126Z
+date: 2025-01-01T05:12:05.344Z
+updated: 2025-01-06T01:55:05.554Z
 tags:
   - facebook
 categories:
@@ -21,20 +21,19 @@ thumbnail: https://thmb.techidaily.com/d6473782f31868e794fc3ab8460fc67b139be82f0
 
 ## 1\. Customize Your Facebook Shortcut Bar
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Settings Highlighted Under Settings and Privacy in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Settings-Highlighted-Under-Settings-and-Privacy-in-the-Facebook-App.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![Shortcut Settings Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Settings-Highlighted-in-the-Facebook-App.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Shortcut Bar and Notification Dots Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Bar-and-Notification-Dots-Settings-in-the-Facebook-App.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -44,11 +43,11 @@ Close
 
 ## 2\. Adjust the Video Quality and Autoplay Options
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Media Settings Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Never Autoplay Videos Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Never-Autoplay-Videos-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
@@ -62,6 +61,10 @@ Close
 
  First, you can check**Optimized** to let the app adjust video quality according to your network. And if you want to save even more data, you can turn on the**Data Saver** feature. You can also change the video quality for individual videos by adjusting the resolution while playing them in your feed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Get a Report to See Your Time on Facebook
 
 ![Your Time on Facebook Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
@@ -69,8 +72,9 @@ Close
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![See Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/See-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
 
 Close
@@ -79,16 +83,21 @@ Close
 
  To access the screen time report, go to **Settings & Privacy > Settings > Preferences > Your Time on Facebook > See Your Time** . Here you’ll see an app usage graph, and you can toggle on the**Weekly Update** option to receive automated weekly updates.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Turn On the Quiet Mode and Daily Time Reminders
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Your Time on Facebook Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
 ![Manage Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Manage-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -100,19 +109,10 @@ Close
 
  In the same menu, you can also choose the amount of time you want to spend on Facebook through Daily Time Reminder. As the name suggests, this feature sends you a reminder once you have used the app for the specified duration.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Toggle Dark Mode On or Off
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Dark Mode Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Dark Mode Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Settings-in-the-Facebook-App.jpeg)
 
 Close
@@ -135,14 +135,8 @@ Close
 
  You can turn this feature on or off by going to **Settings & Privacy > Settings > Permissions > Upload Contacts** . Once you turn it on, it takes you to the screen where you upload your contacts for the first time to find your friends. If you want to stop sharing this information with Facebook, toggle it off instead.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Data Saver on Mobile Network
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Media-Settings-Highlighted-in-the-Facebook-App-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-1.jpg)
 
 ![Data Saver Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Data-Saver-Setting-Highlighted-in-the-Facebook-App.jpg)
@@ -155,10 +149,6 @@ Close
 
 ## 8\. Open Links Externally
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![Media-Settings-Highlighted-in-the-Facebook-App-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-2.jpg)
 
 ![Links Open Externally Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Links-Open-Externally-Setting-Highlighted-in-the-Facebook-App.jpg)
@@ -169,21 +159,16 @@ Close
 
  To enable this feature, go to **Settings & Privacy > Settings > Preferences > Media** . Scroll to the bottom and check the**Links Open Externally** option. Now every time you open a link, it will redirect you to your default phone browser.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## 9\. View Your Wi-Fi and Cellular Performance
 
 ![WiFi and Cellular Performance Option Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/WiFi-and-Cellular-Performance-Option-Highlighted-in-the-Facebook-App.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![WiFi Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/WiFi-Information-in-the-Facebook-App.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Cellular Network Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Cellular-Network-Information-in-the-Facebook-App.jpeg)
 
 Close
@@ -199,8 +184,9 @@ Close
 ![Reels Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Reels Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Settings-in-the-Facebook-App.jpeg)
 
 Close
@@ -209,18 +195,19 @@ Close
 
  To access these options, go to **Settings & Privacy > Settings > Audience and Visibility > Reels** . Here, you can restrict your Reels to your friend list or to specific friends only. You can also restrict your audience from sharing your reels. If you want, you can also[stop seeing reels on Facebook](https://www.makeuseof.com/how-to-stop-seeing-reels-on-facebook/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fine Tune Your Mobile Facebook Experience
 
  Facebook has been here for a long time and has introduced many features and updates to its mobile app. It is hard to keep track of all these changes. So, the settings we have listed above will ease you in enhancing your experience on the Facebook app by optimizing it according to your preferences.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -229,4 +216,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-climate-change-mitigation-through-urban-design-innovations-for-2024/"><u>[Updated] Climate Change Mitigation Through Urban Design Innovations for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-revolutionize-notes-with-mematic-software-for-2024/"><u>[Updated] Revolutionize Notes with Mematic Software for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expert-techniques-efficiently-collecting-photo-and-video-banners/"><u>2024 Approved Expert Techniques Efficiently Collecting Photo and Video Banners</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-moto-g73-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola Moto G73 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-12plus-5g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Realme 12+ 5G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/poco-x6-pro-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Poco X6 Pro Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/showcasing-your-identity-using-fb-images-with-whatsapp/"><u>Showcasing Your Identity: Using FB Images with WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/shut-down-all-fb-notification-mechanisms/"><u>Shut Down All FB Notification Mechanisms</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-mention-youth-use-in-social-media/"><u>Strategies to Mention Youth Use in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-tags-discover-3-efficient-methods/"><u>The Ultimate Guide to FB Tags – Discover 3 Efficient Methods</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-xiaomi-13-ultra-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Xiaomi 13 Ultra IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-image-alerts-chat-disappearance-on-messenger/"><u>Unseen Image Alerts: Chat Disappearance on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-generated-content-ownership-insight/"><u>User-Generated Content: Ownership Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-influence-sparking-conversations-in-your-fb-collective/"><u>Virtual Influence: Sparking Conversations in Your Fb Collective</u></a></li>
+</ul></div>
 

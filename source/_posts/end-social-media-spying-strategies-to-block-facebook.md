@@ -1,7 +1,7 @@
 ---
 title: "End Social Media Spying: Strategies to Block Facebook"
-date: 2024-08-08T11:29:13.060Z
-updated: 2024-08-09T11:29:13.060Z
+date: 2024-12-31T06:33:47.422Z
+updated: 2025-01-06T00:57:28.007Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
@@ -59,11 +63,11 @@ thumbnail: https://thmb.techidaily.com/fa206782af9b714e31a62f7ae5d0a20ed9b793265
 
  For fun, let's see what Facebook knows about me. The following image shows what Facebook thought it knew about me back in 2017 and 2019.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
@@ -71,18 +75,23 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Facebook Tracks Users, Even Without an Account
 
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -98,19 +107,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Change Facebook Ad Preferences
 
  One of the first things you can do is change your[Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
@@ -119,22 +121,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### uBlock Origin
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
@@ -142,14 +143,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **Download:** uBlock Origin for[Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### NoScript
 
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
 
 **Download** : NoScript for[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Privacy Badger
 
@@ -159,9 +161,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **Download:** Privacy Badger for[Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Use a Privacy-Focused Alternative Browser
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
@@ -178,9 +177,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **Download:** Tor Browser for Windows | macOS | Linux (All Free)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Brave
 
 [Brave](https://brave.com/) is a Chromium-based browser with a complete focus on privacy and security. It features an interesting approach to whitelisting: adding tiny micro-payments for your favorite publications.
@@ -201,14 +197,15 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
 
 **Download:** Cookie AutoDelete for[Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Should You Block Facebook Tracking?
 
@@ -224,14 +221,11 @@ Facebook tracking serves one purpose: Facebook advertising.
 
 Image Credit: Sabphoto/Shutterstock
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -240,4 +234,26 @@ Image Credit: Sabphoto/Shutterstock
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-mastery-starts-here-building-and-monetizing-your-channel/"><u>[New] In 2024, YouTube Mastery Starts Here Building and Monetizing Your Channel</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-chortlecove-app-where-laughter-thrives-online/"><u>2024 Approved ChortleCove App - Where Laughter Thrives Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-comprehensive-review-navigating-adobe-cloud-plus-comparing-rivals/"><u>2024 Approved Comprehensive Review Navigating Adobe Cloud + Comparing Rivals</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-best-family-flicks-to-watch-together-on-amazon-prime-video-in-july-2024/"><u>Discover the Best Family Flicks to Watch Together on Amazon Prime Video in July 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-personalities-using-social-polls-in-messages/"><u>Exploring Personalities Using Social Polls in Messages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/from-traditional-to-split-transforming-productivity-in-a-week-using-an-ergonomic-keyboard-featured/"><u>From Traditional to Split: Transforming Productivity in a Week Using an Ergonomic Keyboard | Featured</u></a></li>
+<li><a href="https://facebook.techidaily.com/gymnastics-groups-reject-social-networking/"><u>Gymnastics Groups Reject Social Networking</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-samsung-galaxy-f15-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Samsung Galaxy F15 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-segmentscreen-examination/"><u>In 2024, SegmentScreen Examination</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-enables-2fa-via-whatsapp-for-secure-access/"><u>Instagram Enables 2FA via WhatsApp for Secure Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphones-escape-from-app-surveillance-prowess/"><u>IPhones Escape From App Surveillance Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-self-removal-from-facebook-photo-archives/"><u>Mastering Self-Removal From Facebook Photo Archives</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/pros-choice-a-comprehensive-ranking-of-the-leading-compact-tablets-in-2024-expert-reviews-and-insights/"><u>Pros' Choice: A Comprehensive Ranking of the Leading Compact Tablets in 202^[4 - Expert Reviews & Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/reposition-online-self-image-via-page-redesign/"><u>Reposition Online Self-Image via PAGE Redesign</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-fixing-critical-services-error-and-blue-screen-of-death-in-windows-11/"><u>Resolved: Fixing Critical Services Error & Blue Screen of Death in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-details-for-your-youngsters-facebook-messenger/"><u>Streamlining Details for Your Youngster’s Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-birth-of-meta-redefining-how-we-connect-and-share-online/"><u>The Birth of Meta: Redefining How We Connect and Share Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-making-of-moolah-the-essential-role-of-metrics-in-creative-earnings/"><u>The Making of Moolah: The Essential Role of Metrics in Creative Earnings</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726227848535-windows/"><u>Windows用動的プレゼンテーションツール「ムヴァヴィスライドメーカー」の使い方</u></a></li>
+</ul></div>
 

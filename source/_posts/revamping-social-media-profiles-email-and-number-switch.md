@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2024-12-22T18:19:59.884Z
-updated: 2024-12-27T16:12:34.270Z
+date: 2025-01-03T18:07:24.461Z
+updated: 2025-01-06T03:29:46.688Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,21 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Update Your Email or Phone Number on Facebook?
 
 ![Photo of someone using Facebook on their laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/pexels-luca-sammarco-6162932-(1).jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  There are a few reasons why you might want to update your email or phone number on Facebook. Chances are, you have changed your email address or phone number since you first signed up for Facebook. Updating your contact details ensures that you're able to[reset your password on Facebook](https://www.makeuseof.com/how-to-reset-facebook-password-forgot/) should you ever forget it.
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Update Your Email Address and Phone Number on Facebook
 
@@ -42,29 +46,21 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
 Here's how...
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Update Your Email Address and Phone Number on Mobile
 
 To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook main menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-main-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
 
-![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
 Close
 
@@ -90,6 +86,10 @@ Close
 1. Tap on the email or phone number on the**Manage Contact Info** page.
 2. Hit**Remove** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Change Your Contact Details on the Facebook Website
 
  To change your email address on Facebook using the browser version, follow these steps:
@@ -102,19 +102,19 @@ Close
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
 4. Click on**Account Settings** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
 
@@ -135,22 +135,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-cultivate-classics-essential-farming-game-lists/"><u>[New] Cultivate Classics Essential Farming Game Lists</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-harness-the-power-of-wins11-new-gaming-titles/"><u>2024 Approved Harness the Power of Wins11 New Gaming Titles</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-superior-free-lut-options/"><u>2024 Approved The Ultimate Guide to Superior, Free LUT Options</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/elevating-professional-presentations-applying-effective-filters-on-zoom/"><u>Elevating Professional Presentations Applying Effective Filters on Zoom</u></a></li>
-<li><a href="https://facebook.techidaily.com/embarking-on-the-journey-of-modern-love-with-facebooks-new-feature/"><u>Embarking on the Journey of Modern Love with Facebook's New Feature</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/enhance-user-experience-with-our-cutting-edge-cookiebot-solutions/"><u>Enhance User Experience with Our Cutting-Edge Cookiebot Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-users-through-misinformation-on-health-apps-and-sites/"><u>Guiding Users Through Misinformation on Health Apps & Sites</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo S18e? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-samsung-galaxy-a14-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Samsung Galaxy A14 5G FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-considerations-for-updating-your-facebook-profile-picture/"><u>Key Considerations for Updating Your Facebook Profile Picture</u></a></li>
-<li><a href="https://techtrends.techidaily.com/maxs-premier-picks-the-best-documentary-films-to-watch-this-july/"><u>Max's Premier Picks: The Best Documentary Films to Watch This July</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-takes-tech-companies-to-court-over-speech-limits/"><u>President Takes Tech Companies to Court over Speech Limits</u></a></li>
-<li><a href="https://facebook.techidaily.com/reversal-rituals-the-protocol-for-regaining-your-fb-funds/"><u>Reversal Rituals: The Protocol for Regaining Your FB Funds</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-alert-privacy-preserves-app-accessibility/"><u>Social Networks Alert: Privacy Preserves App Accessibility</u></a></li>
-<li><a href="https://facebook.techidaily.com/tapping-into-the-advantages-how-to-use-sleep-mode-in-messenger-kids/"><u>Tapping Into the Advantages: How to Use Sleep Mode in Messenger Kids</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transforming-ideas-to-video-content-a-chatgpt-approach/"><u>Transforming Ideas to Video Content: A ChatGPT Approach</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-deceptions-tactics-to-skirt-scams/"><u>Unraveling Deceptions: Tactics to Skirt Scams</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-symphony-in-silence-mastering-audio-with-precision-for-2024/"><u>[New] A Symphony in Silence Mastering Audio with Precision for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-alternative-to-obs-the-next-gen-stream-software/"><u>[New] In 2024, Alternative to OBS The Next-Gen Stream Software</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-fbx-gaming-record-your-adventure/"><u>[New] In 2024, FBX Gaming Record Your Adventure</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-advanced-practices-for-capturing-iptv-visuals/"><u>[Updated] 2024 Approved Advanced Practices for Capturing IPTV Visuals</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-androids-creme-de-la-creme-for-fast-vid-fixing-for-2024/"><u>[Updated] Android's Crème De La Crème for Fast Vid Fixing for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-nes-switch-brawlers-the-ultimate-10-game-guide/"><u>2024 Approved NES Switch Brawlers The Ultimate 10-Game Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/boost-performance-and-free-up-space-how-to-empty-cache-on-your-android-smartphonetablet/"><u>Boost Performance & Free Up Space: How to Empty Cache on Your Android Smartphone/Tablet</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-dangers-opting-out-of-facebooks-visit-tracker/"><u>Hidden Dangers: Opting Out of Facebook's Visit Tracker</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-lava-storm-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Lava Storm 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiate-your-love-quest-the-introduction-to-facebooks-matchmaking-service/"><u>Initiate Your Love Quest: The Introduction to Facebook's Matchmaking Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-pursues-accuracy-new-fb-misinfo-penalties/"><u>Social Network Pursues Accuracy: New FB Misinfo Penalties</u></a></li>
+<li><a href="https://facebook.techidaily.com/textual-excellence-in-messages-beyond-basic-fonts/"><u>Textual Excellence in Messages: Beyond Basic Fonts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triad-of-friend-recognition-master-three-efficient-tagging-techniques-on-facebook/"><u>The Triad of Friend Recognition: Master Three Efficient Tagging Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriend-the-unknowns-a-guide-to-safe-social-media-conduct/"><u>Unfriend the Unknowns: A Guide to Safe Social Media Conduct</u></a></li>
 </ul></div>
 

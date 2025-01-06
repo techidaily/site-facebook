@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2024-12-26T20:25:59.295Z
-updated: 2024-12-27T18:25:08.277Z
+date: 2024-12-29T19:00:57.133Z
+updated: 2025-01-06T08:17:57.442Z
 tags:
   - facebook
 categories:
@@ -24,17 +24,9 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2004–2006: The Origin Story of Facebook
 
 ![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Mark Zuckerberg and his friends came up with an idea for a new website that connects all Harvard students. Their inspiration? Harvard's online student directory's "Face books." The technical insights came from his previous project Facemash—a "hot or not" website that compared female Harvard students side by side.
 
@@ -48,11 +40,19 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2010–2012: Facebook Goes Public
 
@@ -65,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
@@ -84,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
  To counter this, the platform introduced a new feature that allowed users to flag fake posts and pledged to improve the algorithm, but these efforts barely made any difference. The same year, Facebook also launched Reactions which allowed users to select from several emojis alongside the Like button.
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
@@ -116,6 +116,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -123,10 +127,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -149,18 +149,19 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-highest-achievers-in-the-realm-of-reddit-posts/"><u>[New] Highest Achievers in the Realm of Reddit Posts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-masterclass-in-mobile-video-viewing-10-leading-iphoneipad-apps/"><u>[New] Masterclass in Mobile Video Viewing 10 Leading iPhone/iPad Apps</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/compatible-windows-programs-for-easy-installation-of-your-brother-hl-l2340dw-printer/"><u>Compatible Windows Programs for Easy Installation of Your Brother HL-L2340DW Printer</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-vivo-t2-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Vivo T2 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-opens-door-to-unlimited-possibilities-with-oculus-go-root-access/"><u>Facebook Opens Door to Unlimited Possibilities with Oculus Go Root Access</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/getting-voicemod-back-on-track-troubleshooting-and-fix-up-techniques/"><u>Getting Voicemod Back on Track : Troubleshooting and Fix-Up Techniques</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-lock-from-iphone-11-pro-by-drfone-ios/"><u>In 2024, How to Bypass iCloud Lock from iPhone 11 Pro</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-iphone-xs-max-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your iPhone XS Max Properly</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-it-real-on-facebook-the-case-for-caution-with-new-friends/"><u>Keeping It Real on Facebook: The Case for Caution with New Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-network-neighborhoods-new-layout-rollout/"><u>Navigating Network Neighborhoods: New Layout Rollout</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-your-social-media-profile-when-to-start/"><u>Reviving Your Social Media Profile - When To Start?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-discipline-banning-unwanted-accounts-from-your-page/"><u>Social Media Discipline: Banning Unwanted Accounts From Your Page</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-the-secrets-accelerating-your-fb-communitys-growth/"><u>Unlock the Secrets: Accelerating Your Fb Community's Growth</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-elevate-your-content-mastery-in-live-streaming-screens/"><u>[New] 2024 Approved Elevate Your Content Mastery in Live Streaming Screens</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevating-your-channel-youtube-backlink-basics/"><u>[New] 2024 Approved Elevating Your Channel YouTube Backlink Basics</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fusing-genres-a-youtube-music-strategy/"><u>[New] 2024 Approved Fusing Genres A YouTube Music Strategy</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>[New] Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-picks-best-7-video-streaming-apps-to-take-your-youtube-game-upward-iosandroid/"><u>[New] In 2024, Expert Picks Best 7 Video Streaming Apps to Take Your YouTube Game Upward (iOS/Android)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-glowing-with-hd-does-it-serve-the-scope-of-hdr-well/"><u>In 2024, Glowing with HD Does It Serve the Scope of HDR Well?</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-influence-7-hidden-harmfulness-of-networking-sites/"><u>Invisible Influence: 7 Hidden Harmfulness of Networking Sites</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/key-considerations-for-selecting-the-ideal-printer-for-your-needs/"><u>Key Considerations for Selecting the Ideal Printer for Your Needs</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-hide-n-seek-of-fb-securing-personal-information/"><u>Master the Hide-N-Seek of FB: Securing Personal Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-facebook-interactions-with-ease/"><u>Navigating the Maze of Facebook Interactions with Ease</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-oppo-a2-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Oppo A2? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailor-your-facebook-experience-with-these-key-settings/"><u>Tailor Your Facebook Experience with These Key Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-risks-are-fb-quizzes-a-hidden-danger/"><u>Unveiling Risks: Are FB Quizzes a Hidden Danger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-presence-is-a-frightening-reality/"><u>Why Meta's Presence Is a Frightening Reality</u></a></li>
 </ul></div>
 

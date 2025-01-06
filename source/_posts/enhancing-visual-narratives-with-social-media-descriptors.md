@@ -1,7 +1,7 @@
 ---
 title: Enhancing Visual Narratives with Social Media Descriptors
-date: 2024-08-08T11:27:56.811Z
-updated: 2024-08-09T11:27:56.811Z
+date: 2025-01-02T03:24:54.902Z
+updated: 2025-01-06T06:33:27.934Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/eb94a6fed42a33c4c872605a3bb9b0ee6f8339a94
  While alt text may not be beneficial for everyone, it’s an incredibly helpful feature for specific users. This article will show you how to add alt text to your photos and why you should do.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Should I Add Alt Text to My Facebook Photos?
 
  The alt text (full form: alternative text) of a picture is a brief written description of it that makes sense of the image when someone can't see it.
@@ -38,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/eb94a6fed42a33c4c872605a3bb9b0ee6f8339a94
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
@@ -48,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/eb94a6fed42a33c4c872605a3bb9b0ee6f8339a94
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 Close
@@ -65,9 +64,17 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Add Alt Text to Facebook Images on the Web
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -81,9 +88,6 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
@@ -91,8 +95,9 @@ Here’s how you add alt text to images while uploading them:
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
 Close
@@ -108,23 +113,17 @@ Close
 
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ## Make Your Facebook Photos More Accessible
 
  Alt text is an important aspect of making your content accessible to people with vision impairments as well as increasing the potential reach of your photos, if that's your aim.
 
  It’s easy enough to add alternative text to images, both new and old, using the Facebook app or web version. So, the next time you upload a photo to Facebook, consider how everyone can best appreciate it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-celebrity-fleeting-frame-study/"><u>2024 Approved Celebrity Fleeting Frame Study</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/breakthrough-therapy-explore-top-5-ai-chatbot-assistants-easing-mental-health-burdens/"><u>Breakthrough Therapy: Explore Top 5 AI Chatbot Assistants Easing Mental Health Burdens</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/crafting-charming-and-humorous-emoji-clips-effortlessly-using-top-rated-emoji-editors/"><u>Crafting Charming & Humorous Emoji Clips Effortlessly Using Top-Rated Emoji Editors</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-digital-innovations-with-toms-hardware-analysis-and-reviews/"><u>Exploring Digital Innovations with Tom's Hardware Analysis and Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-posting-to-purchasing-could-a-social-media-platform-open-shops/"><u>From Posting to Purchasing: Could a Social Media Platform Open Shops?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-nocturnal-nexus-versus-daylight-dominion/"><u>In 2024, Nocturnal Nexus Versus Daylight Dominion</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/infographics-spotlight-on-future-social-trends-for-2024/"><u>Infographics Spotlight on Future Social Trends for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-privacy-vs-convenience-with-social-app-sign-ins-via-facebook/"><u>Navigating Network Privacy vs Convenience with Social App Sign-Ins via Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/no-stress-just-peaceful-pc-gaming-for-2024/"><u>No Stress, Just Peaceful PC Gaming for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-device-connection-errors-when-casting-from-windows-10-comprehensive-solution/"><u>Resolving Device Connection Errors When Casting From Windows 10 [Comprehensive Solution]</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-erase-your-facebook-share/"><u>Step-by-Step Guide: Erase Your Facebook Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
+<li><a href="https://facebook.techidaily.com/tectonic-shifts-ahead-us-antitrust-laws-role-in-controlling-tech-titans/"><u>Tectonic Shifts Ahead: U.S. Antitrust Law's Role in Controlling Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-game-for-facebook-post-ios-145-release/"><u>The New Game for Facebook Post-iOS 14.5 Release</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tired-of-subpar-webcams-on-laptops-discover-opals-revolutionary-worlds-tiniest-clip-on-solution-features-review-and-pricing/"><u>Tired of Subpar Webcams on Laptops? Discover Opal’s Revolutionary World’s Tiniest Clip-On Solution – Features, Review & Pricing!</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-online-presence-under-review/"><u>Trumps Online Presence Under Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/visual-voice-in-verse-crafting-textual-contrast/"><u>Visual Voice in Verse: Crafting Textual Contrast</u></a></li>
+</ul></div>
 

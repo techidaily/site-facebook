@@ -1,7 +1,7 @@
 ---
 title: "Immersive Synergy: Defining the Metaverse Concept"
-date: 2024-08-08T11:28:19.381Z
-updated: 2024-08-09T11:28:19.381Z
+date: 2025-01-02T16:28:21.833Z
+updated: 2025-01-05T22:44:22.160Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,12 @@ thumbnail: https://thmb.techidaily.com/0e3580ccebe105ec59bd0096cd99a066bfc6309ad
 
 So, what is the metaverse?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Etymology and Origin of the Term "Metaverse" and Its Concept
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
@@ -38,9 +39,6 @@ So, what is the metaverse?
 
 ## What Is the Metaverse?
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
 
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
@@ -55,11 +53,12 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Internet vs. Metaverse
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
@@ -76,14 +75,19 @@ Yet.
 
 ## How Far Off Are We From the Metaverse?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Guy wearing AR glasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-AR-glasses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Ever since the internet was conceived, both science fiction writers and technologists have envisioned it to be much more than just a telecommunications network.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The Metaverse Precursors
 
@@ -98,15 +102,13 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The Metaverse Is the Future of the Internet
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -114,14 +116,11 @@ Yet.
 
  We made it to the moon already, the robotics industry grows by the day, and we already have the internet. With scientists working hard on improving VR technology and the advancements in telecommunications, what keeps us from building this shared persistent virtual universe?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +129,22 @@ Yet.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-for-aspiring-filmmakers-the-best-cameras-from-35mm-to-pands/"><u>[New] 2024 Approved For Aspiring Filmmakers, The Best Cameras From 35Mm to P&S</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-art-of-revisiting-historical-facebook-posts-mobilelaptop/"><u>[New] 2024 Approved The Art of Revisiting Historical Facebook Posts (Mobile/Laptop)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-streamlined-techniques-for-discovering-highly-engaged-youtube-remarks/"><u>[New] Streamlined Techniques for Discovering Highly Engaged YouTube Remarks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unveiling-the-lg-bp350-a-detailed-performance-and-design-study/"><u>2024 Approved Unveiling the LG BP350 A Detailed Performance & Design Study</u></a></li>
+<li><a href="https://win-help.techidaily.com/4-easy-techniques-for-restoring-sticky-notes-in-windows-10-simplified-guide/"><u>4 Easy Techniques for Restoring Sticky Notes in Windows 10 - Simplified Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-direct-video-delivery-facebook-to-whatsapp-connection/"><u>In 2024, Direct Video Delivery Facebook to WhatsApp Connection</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-12-pro-without-itunes-in-5-ways-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 12 Pro Without iTunes in 5 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-teens-online-reflecting-on-instagram-use-with-facebooks-help/"><u>The Future of Teens Online: Reflecting on Instagram Use with Facebook's Help</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-era-after-deactivation/"><u>The Silent Era After Deactivation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-tactics-for-keeping-your-fb-information-safe/"><u>Top Ten Tactics for Keeping Your FB Information Safe</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-door-to-metas-account-oversight-domain/"><u>Unlock the Door to Meta's Account Oversight Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-fbs-image-sharing-policies/"><u>Unraveling FB's Image Sharing Policies</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unveiling-the-metaverse-key-players-shaping-our-virtual-future/"><u>Unveiling the Metaverse: Key Players Shaping Our Virtual Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-selects-me-for-these-specific-fb-advertisements/"><u>What Selects Me for These Specific FB Advertisements?</u></a></li>
+</ul></div>
 

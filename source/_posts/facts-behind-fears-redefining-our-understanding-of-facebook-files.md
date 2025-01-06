@@ -1,7 +1,7 @@
 ---
 title: "Facts Behind Fears: Redefining Our Understanding of Facebook Files"
-date: 2024-08-08T11:28:20.346Z
-updated: 2024-08-09T11:28:20.346Z
+date: 2024-12-30T07:38:31.162Z
+updated: 2025-01-05T16:31:18.387Z
 tags:
   - facebook
 categories:
@@ -23,10 +23,6 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
 **Note:** The Facebook Papers were released before[Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
  Most of the reports from The Facebook Papers focus on misinformation as the big “revelation” about Facebook. Now, misinformation certainly is a problem on the internet; it can actually be quite dangerous. But it isn't particularly scandalous for Facebook.
@@ -39,18 +35,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Facebook Papers are being described and perceived as the worst information that could have come out about the company. But that's not so. Imagine if the reports contained information that showed Facebook was being used by other countries in cyberattacks. That would have been a real revelation.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Misinformation Warning](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Misinformation-Warning.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credits: Facebook
 
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
  When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as[Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
@@ -66,8 +64,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -82,10 +81,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The particular example used is the CEO claiming Facebook removes 94 percent of the hate speech it finds before a human reports it, but a leaked report reveals less than five percent of all hate speech is removed from the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credits: Anthony Quintano via Flickr
 
@@ -96,8 +96,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -106,14 +107,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +120,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-how-to-archive-your-minecraft-sessions-on-a-mac-computer/"><u>[New] 2024 Approved How to Archive Your Minecraft Sessions on a Mac Computer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-sync-systems-swiftly-fastest-file-methods/"><u>[New] Sync Systems Swiftly Fastest File Methods</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-the-soundscape-strategy-incorporating-melodies-into-vimeo-videos-for-2024/"><u>[New] The Soundscape Strategy Incorporating Melodies Into Vimeo Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-fb-profile-to-top-professionals/"><u>Elevating Your FB Profile to Top Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-social-storytelling-sharing-high-definition-content/"><u>Enhance Your Social Storytelling: Sharing High-Definition Content</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-issues-how-to-repair-a-nonfunctional-mpow-microphone-in-windows/"><u>Fixing Issues: How to Repair a Nonfunctional MPOW Microphone in Windows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-y78-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo Y78 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-identify-someone-using-your-tech-gear/"><u>How to Identify Someone Using Your Tech Gear?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-speed-up-windows-file-inspection-for-2024/"><u>How To Speed Up Windows File Inspection for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-metaais-abilities-in-dialogue-systems/"><u>Navigating MetaAI's Abilities in Dialogue Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-techniques-for-curbing-excessive-fb-interactions/"><u>Tailored Techniques for Curbing Excessive FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-time-off-proficiently-using-facebooks-reminders/"><u>Taking Time Off Proficiently Using Facebook's Reminders</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/this-title-focuses-on-the-impressive-achievement-of-scoring-over-108000-points-while-also-explaining-that-it-is-achieved-through-multi-threading-tests-using57/"><u>This Title Focuses on the Impressive Achievement of Scoring over 108,000 Points, While Also Explaining that It Is Achieved Through Multi-Threading Tests Using the CPU-Z Benchmark</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-9-advantages-of-engaging-on-social-platforms/"><u>Top 9 Advantages of Engaging on Social Platforms</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/upgrading-your-hp-omen-30l-should-you-swap-the-ssd-or-stick-with-whats-there/"><u>Upgrading Your HP Omen #30L: Should You Swap the SSD or Stick with What's There?</u></a></li>
+</ul></div>
 

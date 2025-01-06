@@ -1,7 +1,7 @@
 ---
 title: "Unlinking Your Instagram From Facebook: A Step-by-Step Guide"
-date: 2024-08-08T11:27:43.788Z
-updated: 2024-08-09T11:27:43.788Z
+date: 2025-01-03T03:12:10.453Z
+updated: 2025-01-06T03:33:38.660Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/a1aef9ac34b30a9b89c44b4090cc093f70a661d81
 
  If you'd rather keep the two social networks separate though, you'll need to go through a series of simple steps using your Meta Accounts Center.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Disconnect Your Instagram Account From Facebook
 
  First, you're going to want to open up Instagram on your phone. Then, you'll need to follow the steps below:
@@ -29,11 +26,16 @@ thumbnail: https://thmb.techidaily.com/a1aef9ac34b30a9b89c44b4090cc093f70a661d81
 ![Instagram settings page new](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-settings-page-new.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Instagram accounts center screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-accounts-center-screenshot.jpg)
 
 ![Meta connected experience accounts page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/meta-connected-experience-accounts-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![confirm account removal page on Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/confirm-account-removal-page-on-instagram.jpg)
 
@@ -51,6 +53,10 @@ Close
 
  Removing your Facebook or Instagram account from the Accounts Center is not the same as[deleting or deactivating your Instagram account](https://www.makeuseof.com/tag/deactivate-delete-instagram-account/) . You will need to follow different steps to do this.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Remove Instagram Posts From Facebook
 
  If you want to remove your existing Instagram posts from your Facebook profile, there are two ways you could go about it.
@@ -63,17 +69,19 @@ Close
 
 ![facebook profile page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-profile-page-screenshot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![Facebook profile menu page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-profile-menu-page-screenshot.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook activity log page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-activity-log-page-screenshot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook manage post page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-manage-post-page-screenshot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -85,20 +93,8 @@ Close
 
  You'll see all the posts you've shared from other apps. Mark all the ones posted from Instagram and tap**Trash** at the bottom right of your screen. Facebook will move all the photos to trash and automatically delete them after 30 days.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## What to Know Before Disconnecting Your Accounts
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Instagram on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/instagram-on-laptop.jpg)
 
  If you use both Instagram and Facebook, you may have noticed they are connected in many ways. You can cross-share posts and stories, use your Facebook Login to access Instagram, and find your Facebook friends on Instagram. These features can be convenient and help you reach a wider audience with your content.
@@ -113,14 +109,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  If you want to keep your Facebook and Instagram separate, follow the steps above to unlink your accounts. If you later decide that you want to link them again, you can always use the Accounts Center to link them again.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +122,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-precision-in-speech-synthesis-converting-text-formats-to-srt/"><u>[New] 2024 Approved Precision in Speech Synthesis Converting Text Formats to SRT</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-diving-into-virtual-worlds-iphone-vr-viewing-101-for-2024/"><u>[New] Diving Into Virtual Worlds IPhone VR Viewing 101 for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-streamlined-capturing-top-5-mac-tools-for-effective-snipping/"><u>[Updated] 2024 Approved Streamlined Capturing Top 5 Mac Tools for Effective Snipping</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-macs-best-mkv-player-vendors/"><u>[Updated] Mac's Best MKV Player Vendors</u></a></li>
+<li><a href="https://fox-that.techidaily.com/addressing-lone-airpod-troubleshooting-for-optimal-sound-quality/"><u>Addressing Lone AirPod Troubleshooting for Optimal Sound Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-access-where-you-cant-join-facebook/"><u>Exclusive Access: Where You Can't Join Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-your-facebook-ban-list/"><u>Exploring Your Facebook Ban List</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-good-to-great-transforming-your-professional-persona-on-facebook/"><u>From Good to Great: Transforming Your Professional Persona on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-facebook-notifications/"><u>How to Delete Facebook Notifications</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-huawei-nova-y71-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Huawei Nova Y71 FRP Locks</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/resolving-issues-with-non-syncing-apple-music-collection-on-your-mac/"><u>Resolving Issues with Non-Syncing Apple Music Collection on Your Mac</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-the-antipods-at-127-high-definition-television-without-a-cord/"><u>Review of the Antipod's AT-127 - High Definition Television without a Cord</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviewing-friendships-a-facebook-guide/"><u>Reviewing Friendships: A Facebook Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-troubles-why-chat-and-sharing-platforms-stalled/"><u>Tech Troubles: Why Chat & Sharing Platforms Stalled?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reality-of-fbcta-what-it-means-for-you/"><u>The Reality of FBCTA: What It Means for You</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-xiaomi-13-ultra-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Xiaomi 13 Ultra Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>
 

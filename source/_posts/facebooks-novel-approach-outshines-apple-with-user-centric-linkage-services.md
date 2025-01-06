@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Novel Approach Outshines Apple with User-Centric Linkage Services
-date: 2024-08-08T11:26:15.951Z
-updated: 2024-08-09T11:26:15.951Z
+date: 2025-01-03T19:20:33.891Z
+updated: 2025-01-06T00:15:51.697Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
  Facebook is helping creators to save money on subscription fees through a new payment solution. This enables creators with popular pages to circumvent Apple's 30% cut on subscription fees, but how will it work? Keep reading to find out.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Giving Creators Custom Links to Receive Direct Payments
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
@@ -33,14 +34,16 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook's Custom Payment Links Work
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -53,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
  Related:[The Top Social Media Apps and Sites in 2021](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Helping Creators Make More Money
 
  At 30%, Apple's cut from paid apps and in-app payments through iOS is too steep. It's no surprise that Apple has been embroiled in controversy and lawsuits around this.
@@ -63,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
 
  And while Facebook may eventually take a cut from fan payments, it may still be lower than Apple's, which would still make Facebook's payment system preferable over Apple's.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,4 +80,16 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-live-stream-to-instagram-from-obs-for-2024/"><u>[New] Live Stream to Instagram From OBS for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-amplify-audience-response-with-innovative-instagram-questions-for-2024/"><u>[Updated] Amplify Audience Response with Innovative Instagram Questions for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-from-apple-iphone-se-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled From Apple iPhone SE? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendly-suggestions-in-your-feed-the-future-of-b2b-marketing-on-facebook/"><u>Friendly Suggestions in Your Feed: The Future of B2B Marketing on Facebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/get-the-new-airpods-pro-2-now-at-a-steep-discount-upgraded-to-serve-as-hearing-aids-exclusive-deal-on-zdnet/"><u>Get the New AirPods Pro 2 Now at a Steep Discount! Upgraded to Serve as Hearing Aids: Exclusive Deal on ZDNET</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-the-allure-of-facebook-reels/"><u>Overcoming the Allure of Facebook Reels</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/step-by-step-guide-transforming-multiple-mod-songs-into-high-quality-mp3s-at-once/"><u>Step-by-Step Guide: Transforming Multiple MOD Songs Into High-Quality MP3s at Once</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-economics-of-engaging-with-each-other-online/"><u>The Economics of Engaging with Each Other Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-merge-of-minds-new-connections-in-social-media/"><u>The Merge of Minds: New Connections in Social Media</u></a></li>
+</ul></div>
 

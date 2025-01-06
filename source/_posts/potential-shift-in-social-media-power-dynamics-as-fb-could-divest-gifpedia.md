@@ -1,7 +1,7 @@
 ---
 title: Potential Shift in Social Media Power Dynamics as FB Could Divest Gifpedia
-date: 2024-08-08T11:29:20.876Z
-updated: 2024-08-09T11:29:20.876Z
+date: 2024-12-30T05:43:10.327Z
+updated: 2025-01-05T23:05:46.154Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/2d67e14b0eb8d4077153a676b64f0ce1665316566
  That is, before the UK's Competition and Markets Authority (CMA) decided to block Giphy's sale. So, why did the CMA do it?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Giphy's Acquisition by Facebook
 
  With millions of people using Giphy through its platforms, Facebook made a strategic move to acquire it for $315 million in May 2020\. However, the CMA has now blocked this acquisition in a bid to protect fair competition among tech companies.
@@ -39,15 +40,16 @@ thumbnail: https://thmb.techidaily.com/2d67e14b0eb8d4077153a676b64f0ce1665316566
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta's Appeal to Keep Giphy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
@@ -62,8 +64,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
 
  Similar to any language, the way internet users express themselves changes with time. From simply saying “haha” to using emojis and stickers, GIFs play a big role in how the next generation of internet users share their thoughts or feelings.
@@ -72,14 +75,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  While the results of Meta's appeal is still not out yet, Giphy will definitely remain as a heavily used feature for every platform that it is available on. For now, we can be sure that Instagram, WhatsApp, and Facebook will have the perfect GIF for every reaction.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,4 +88,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-growing-engagement-ethically-youtube-success-stories-for-2024/"><u>[New] Growing Engagement Ethically YouTube Success Stories for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] In 2024, Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-fixing-malfunctioning-bose-sound-units-a-comprehensive-guide/"><u>Diagnosing and Fixing Malfunctioning Bose Sound Units – A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-reel-strategy-in-combat-with-tiktok/"><u>Examining Facebook’s Reel Strategy in Combat with TikTok</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exclusive-prime-day-offers-get-the-latest-benq-monitor-and-projector-deals/"><u>Exclusive Prime Day Offers: Get the Latest BenQ Monitor & Projector Deals</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-your-social-media-browsing-history/"><u>How to Reset Your Social Media Browsing History</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-english-with-pearson/"><u>International English with Pearson</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-the-unstoppable-social-giant/"><u>Meta: The Unstoppable Social Giant</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavis-no-cost-service-seamless-transformation-of-mxf-videos-to-mov-on-the-web/"><u>Movavi's No-Cost Service: Seamless Transformation of MXF Videos to MOV on the Web</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revive-your-usb-connectivity-on-windows/"><u>Revive Your USB Connectivity on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-portals-for-seamless-video-chats/"><u>Setting Up Portals for Seamless Video Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-scrutiny-right-to-suspend-trump-temporarily/"><u>Social Network Scrutiny: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-explaining-imagery-on-social-platforms/"><u>The Art of Explaining Imagery on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-commercialization-of-surveillance/"><u>The Commercialization of Surveillance</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-essence-of-a-memorable-video-conclusion-in-vimeo-for-2024/"><u>The Essence of a Memorable Video Conclusion in Vimeo for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-effects-of-filtering-on-consumers/"><u>Unveiling the Effects of Filtering on Consumers</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/yl-softwares-exclusive-selection-of-mac-os-yosemite-themes-and-imagery-for-a-personalized-experience/"><u>YL Software's Exclusive Selection of Mac OS Yosemite Themes and Imagery for a Personalized Experience</u></a></li>
+</ul></div>
 

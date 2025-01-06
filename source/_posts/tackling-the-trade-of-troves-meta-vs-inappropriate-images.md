@@ -1,7 +1,7 @@
 ---
 title: "Tackling the Trade of Troves: Meta Vs. Inappropriate Images"
-date: 2024-08-08T11:28:07.260Z
-updated: 2024-08-09T11:28:07.260Z
+date: 2025-01-02T08:41:17.394Z
+updated: 2025-01-06T00:20:24.828Z
 tags:
   - facebook
 categories:
@@ -20,14 +20,16 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
  Here's what you should know about the new Take It Down platform and how Meta is involved...
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Joins Take It Down To Prevent Sextortion
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![a woman with her son at a desktop computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/parenta-control-featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta announced in a February 2023 press release that they will be joining an effort to stop and prevent the spread of young people’s intimate images online. Instagram and Facebook will be founding members of Take It Down, the new platform initiative from the National Center for Missing and Exploited Children (NCMEC).
 
@@ -40,34 +42,34 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
  Intimate images, like those including nudity, and content that exploits young people, are already not allowed on Meta’s platforms. Meta’s work with NCMEC will hopefully prevent more content like this from being posted. The enforcement of the guidelines before this was largely retroactive instead of proactive.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Also Announces Safety Update to Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![User using iPhone Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/theives-stealing-iphones-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Instagram also introduced safety updates to make it more difficult for suspicious adults to interact with teens on the app including direct messages and comments. Teen accounts will also receive notifications to update their privacy settings if a suspicious adult tries to interact with their account.
 
  These features are in addition to other safety features on Instagram, including many specifically for teens like[activating parental supervision on teen Instagram accounts](https://www.makeuseof.com/instagram-how-to-activate-parental-supervision/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Is Working to Prevent Intimate Image Sharing
 
  With two of the largest social media platforms in the world, Meta is a key player in Take It Down’s mission to prevent the sharing of young people’s intimate images online. Although both Facebook and Instagram have guidelines against sharing these images, it unfortunately happens, and this is another step to prevent it and give control of the images back to their owner.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,4 +78,21 @@ thumbnail: https://thmb.techidaily.com/3b9684531fbf23c2641f6279330c8cba0c78b446e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-behind-the-scenes-of-virtual-reality-films/"><u>[New] Behind the Scenes of Virtual Reality Films</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pinnacle-cloud-solutions-highest-rated-reviewed-for-2024/"><u>[New] Pinnacle Cloud Solutions Highest-Rated Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-novice-to-influencer-a-step-by-step-fb-live-blueprint-for-2024/"><u>[Updated] From Novice to Influencer A Step-by-Step FB Live Blueprint for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/elevate-your-voice-clarity-enhance-audio-experience-on-ios-device-calling/"><u>Elevate Your Voice Clarity - Enhance Audio Experience on iOS Device Calling</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-direct-linking-to-facebook-site/"><u>Managing Direct Linking to Facebook Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-photobooks-creating-collages-for-social-sharing/"><u>Mastering Photobooks: Creating Collages for Social Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-feed-essential-mobile-setting-tweaks-in-fb-app/"><u>Mastery Over Feed: Essential Mobile Setting Tweaks in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-facebook-profile-altering-significant-personal-date/"><u>Perfecting Facebook Profile: Altering Significant Personal Date</u></a></li>
+<li><a href="https://extra-information.techidaily.com/public-access-zen-beats/"><u>Public Access Zen Beats</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sanctions-justifiable-trump-halt-not-eternal/"><u>Social Media Sanctions: Justifiable Trump Halt, Not Eternal</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-art-of-video-editing-employing-strikethrough-for-clarity-for-2024/"><u>The Art of Video Editing Employing Strikethrough for Clarity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-next-step-for-connectivity-might-fb-open-stores-locally-soon/"><u>The Next Step for Connectivity: Might FB Open Stores Locally Soon?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-12-unbelievable-prime-day-gadget-bargains-in-october-exclusive-offers-on-zdnet/"><u>Top 12 Unbelievable Prime Day Gadget Bargains in October - Exclusive Offers on ZDNet</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Biggest Tech Debates Starters
-date: 2024-08-08T11:29:37.924Z
-updated: 2024-08-09T11:29:37.924Z
+date: 2024-12-31T22:57:22.500Z
+updated: 2025-01-06T06:07:22.219Z
 tags:
   - facebook
 categories:
@@ -21,20 +21,13 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Jack Dorsey
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Best known for:** Co-founder and CEO of Twitter
 
@@ -45,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
  The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Elizabeth Holmes
 
@@ -60,18 +57,6 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Julian Assange
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
@@ -91,13 +76,11 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Susan Wojcicki
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
@@ -108,16 +91,14 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
  More recently, Wojcicki copped flak for receiving a free expression award from the Freedom Forum. Netizens were quick to point out the fact that the Freedom Forum is sponsored by YouTube.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Bill Gates
 
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
@@ -133,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
  Gates has also been a magnet for conspiracy theories, including the outlandish theory that he promoted the worldwide COVID-19 vaccine rollout as a pretext to inject people with microchips.
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Mark Zuckerberg
 
@@ -164,14 +149,11 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +162,21 @@ thumbnail: https://thmb.techidaily.com/dfb31f4a374c12c54be4691af9a495853d8fa50fd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-optimal-tactics-for-saving-android-interactions/"><u>[New] 2024 Approved Optimal Tactics for Saving Android Interactions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-the-next-big-thing-your-guide-to-youtubes-best-video-types/"><u>[Updated] Crafting the Next Big Thing Your Guide to YouTube's Best Video Types</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>[Updated] Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-uncomplicated-steps-to-record-instagrams-story-feed-for-2024/"><u>[Updated] Uncomplicated Steps to Record Instagram's Story Feed for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/5-proven-strategies-to-decrease-graphics-card-usage-from-desktop-window-manager-on-your-pc-win-10-and-11/"><u>5 Proven Strategies to Decrease Graphics Card Usage From Desktop Window Manager on Your PC (Win 10 & 11)</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-income-with-ai-ventures-expert-tech-for-building-computers-and-nostalgic-handheld-device-tips/"><u>Boost Income with AI Ventures, Expert Tech for Building Computers & Nostalgic Handheld Device Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-yourself-lost-facebook-posts-against-all-odds/"><u>How to Find Yourself Lost Facebook Posts Against All Odds</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-hearing-trumps-facebook-prohibition/"><u>January Hearing: Trump's Facebook Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-massive-outage-across-platforms/"><u>Tech Turmoil: Massive Outage Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-telegram-users-following-facebook-downtime/"><u>The Surge in Telegram Users Following Facebook Downtime</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/top-15-gaming-streaming-services-ultimate-guide/"><u>Top 15 Gaming Streaming Services: Ultimate Guide</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/unveiling-the-pricing-strategy-behind-karaoke-membership-plans-a-deep-dive-into-pcdj/"><u>Unveiling the Pricing Strategy Behind Karaoke Membership Plans: A Deep Dive Into PCDJ</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/whatsapps-bold-gamble-proves-successful/"><u>WhatsApp's Bold Gamble Proves Successful</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-is-not-planning-to-follow-facebook-into-the-metaverse/"><u>Why Apple Is Not Planning to Follow Facebook Into the Metaverse</u></a></li>
+</ul></div>
 

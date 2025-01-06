@@ -1,7 +1,7 @@
 ---
 title: Smart Ways to Part With Your Virtual Social Circle
-date: 2024-08-08T11:29:07.710Z
-updated: 2024-08-09T11:29:07.710Z
+date: 2024-12-29T20:06:54.131Z
+updated: 2025-01-05T16:14:58.492Z
 tags:
   - facebook
 categories:
@@ -24,8 +24,9 @@ thumbnail: https://thmb.techidaily.com/e2a22d0e1eb69e31073b9f86edc15bd17dc9ed743
 Here's all you need to know...
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Leave a Facebook Group on Desktop
 
  First of all, if you’re new to Facebook groups, you may want to read this[intro to Facebook groups](https://www.makeuseof.com/tag/facebook-closed-secret-groups/) , to understand how to use them better.
@@ -44,23 +45,22 @@ Here's all you need to know...
 
  You’ll see a popup that asks if you’re sure. In that popup, you can also pick the option that prevents people from adding you to the group again in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![leave-Facebook-group-are-you-sure](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-are-you-sure.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  That’s it, you’re no longer a member of that group, and won’t receive any more notifications from it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do I Leave a Facebook Group on My Mobile?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![your-facebook-groups-app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/your-Facebook-groups-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![mobile Facebook groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/mobile-Facebook-groups.png)
 
 ![Your groups on Facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Your-groups-on-Facebook-mobile.png)
@@ -77,11 +77,16 @@ Close
 
 ![leave Facebook group app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![leave Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-mobile.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![feedback about Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/feedback-about-Facebook-group-mobile.png)
 
 Close
@@ -90,23 +95,17 @@ Close
 
  Read more: [Ways Facebook Is Cracking Down on Groups Which Break the Rules](https://www.makeuseof.com/ways-facebook-cracking-down-on-groups-break-rules/)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay in a Facebook Group, but Receive Less Spam
 
  If you’re only annoyed about the number of notifications and posts you get from a group, but like it otherwise, you don’t have to leave it. First, you can manage the notifications, and only receive alerts about highlights, posts from friends, or none at all.
 
  You can also choose to unfollow the group, which will block all of its content from your feed but will still allow you to visit it and post in it without interruptions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,4 +114,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://network-issues.techidaily.com/adjusting-vision-quality-in-windows-11/"><u>Adjusting Vision Quality in Windows 11</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bid-farewell-to-audio-glitches-a-solution-for-intermittent-sounds-on-windows-1/"><u>Bid Farewell to Audio Glitches: A Solution for Intermittent Sounds on Windows 지난 1</u></a></li>
+<li><a href="https://extra-information.techidaily.com/cognitive-conclave-selective-general-knowledge-channels-for-2024/"><u>Cognitive Conclave Selective General Knowledge Channels for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/exciting-new-update-microsoft-excel-online-now-comes-with-essential-enhancements/"><u>Exciting New Update: Microsoft Excel Online Now Comes with Essential Enhancements</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211329464-9798869333988-guerison-vibrationnelle/"><u>GUÉRISON VIBRATIONNELLE | Free Book</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/guide-recording-live-streams-from-iheartradio-on-various-devices-including-pc-mac-iphone-and-android/"><u>Guide: Recording Live Streams From iHeartRadio on Various Devices Including PC, Mac, iPhone & Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-change-in-whatsapp-capabilities-with-privacy-term-rejection/"><u>No Change in WhatsApp Capabilities with Privacy Term Rejection</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-messages-discovering-new-auditory-features-on-messenger/"><u>Revolutionizing Messages: Discovering New Auditory Features on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/significance-of-missing-messenger-availability/"><u>Significance of Missing Messenger Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-pioneers-top-20-internet-gatherings-for-todays-users/"><u>Social Pioneers: Top 20 Internet Gatherings for Today's Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-intricate-process-breaking-down-your-xbox-360-slim-console/"><u>The Intricate Process: Breaking Down Your Xbox 360 Slim Console</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-inner-circle-with-dossiers-revealed/"><u>Unmasking Facebook’s Inner Circle with Dossiers Revealed</u></a></li>
+</ul></div>
 

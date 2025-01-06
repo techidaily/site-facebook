@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Retrieving Lost Facebook Credentials
-date: 2024-08-08T11:26:14.060Z
-updated: 2024-08-09T11:26:14.060Z
+date: 2025-01-04T03:08:26.003Z
+updated: 2025-01-06T06:02:02.694Z
 tags:
   - facebook
 categories:
@@ -17,19 +17,17 @@ thumbnail: https://thmb.techidaily.com/2667ea34d1175640376556500cfb9591d15bfce3d
 
  Whether you forgot your password or got hacked, you can still recover your Facebook account. Most of Facebook's automated account recovery options depend on the information you entered and validated when you first set up your account. If you never completed the information or if it's outdated, chances are slim that you'll be able to regain access to your account. But you can use these options to recover your Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Check if You're Still Logged Into Facebook Somewhere
 
  Before you try to recover your account, check whether you are still logged into Facebook on any of your devices. This could be another browser or browser profile on your computer, your Facebook Android or iOS app.
 
  If you can still access Facebook, you can try to "recover" your Facebook password without a confirmation reset code, though what you'll actually do is create a new password.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Change Password Screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Login-Change-Password.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To change your password:
 
@@ -39,6 +37,10 @@ To change your password:
 4. You'll have to enter your current password, followed by your new password. Click the**Forgot your password?** option if that's the issue.
 
  This is also the safest and quickest method to[recover a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , as Facebook will let you log out of all other devices. Once you have reset your password, also consider[setting up two-factor authentication on Facebook](https://www.makeuseof.com/tag/use-2fa-facebook-without-phone-number/) . If you can't log back into your account because Facebook retired its Code Generator, here's how you can now[get a login confirmation code for Facebook](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Try the Default Facebook Account Recovery Options
 
@@ -50,32 +52,18 @@ To change your password:
 
  Find your profile on your Facebook friend's friend list, open it, and click the**three-dots icon** on the left-hand side of the menu bar (in the mobile app, the three-dot menu will show up next to the**Message** button), then select**Find Support or Report Profile** (on mobile, the option is**Report profile**).
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Find Support or Report Profile option to recover your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Support-or-Report-Profile.jpg)
 
  From the next menu, select the appropriate option, in this case**Something else > Recover this account** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Facebook Recover This Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-recover-this-account.jpg)
 
  Facebook will log you out of the account you're using, to start the account recovery. This method will lead you to the same**Reset Your Password** window described under**Option 2** . The recovery is based on the contact data you added to your account.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Reset Your Password menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password.jpg)
 
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Option 2: Find and Recover Your Account With Contact Details
 
  If you don't have access to Facebook at all or prefer not to log out of another account, open a new browser profile and head to the[Facebook recovery page](https://www.facebook.com/login/identify/) .
@@ -90,9 +78,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  If all looks well with the contact details that Facebook has on file for you, click**Continue** . Facebook will send you a security code. Retrieve the code from your email or phone (depending on which method you chose), enter it, and rejoice in having recovered your Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![Facebook Enter Security Code menu to recover an account.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Enter-Security-Code.jpg)
 
  At this point, you can set a new password, which we strongly recommend.
@@ -103,9 +88,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  You can try again, or maybe you'll realize that you don't have access to the account after all.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Log Back Into Your Facebook Account
 
  If you managed to regain access to your account, and if you suspect that[your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
@@ -122,25 +104,35 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  If you see this image, you're out of luck. Facebook says it's not safe for them to give you another way to log in, and that they must stop anyone who doesn't own this account from getting into it. However, you're not out of options, yet.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Get Back on Facebook Not Recognized](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-not-recognized.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If Facebook recognizes your device, you will go through a similar process as described above, but this time you'll see an additional option in the bottom left.
 
 ![No longer have access to Facebook password reset options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Click the**No longer have access to these?** link to start a new recovery process.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Lost Access Recovery Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-lost-access-recovery-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you click on**Start** , Facebook will ask for a new login email and send you a code to that email address. Enter your email address and click**Get code** .
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Immediately check your email, including the spam folder or any filters, for the code sent from <security@facebookmail.com>. Enter the code to confirm the email address, and click**Confirm** . If the code didn't come through, you can either click**Resend code** or go back and enter a different email address.
 
@@ -158,6 +150,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Confirm Your Identity With Facebook
 
  If all of Facebook's automated account recovery methods have failed, your last hope is Facebook support itself. Facebook has a[Help Center page](https://www.facebook.com/help/contact/183000765122339) that lets you confirm your identity.
@@ -173,22 +169,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Either way, hearing back from Facebook can take several weeks, so you'll need to be patient. If you didn't use your real name on Facebook, your hopes for recovering your account this way are close to zero.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## If All Else Fails, Create a New Facebook Profile
 
  Over the past few years, we have received countless messages from people who weren't able to recover their Facebook accounts, even after going through all of these steps, one by one. Usually, their contact information was outdated, the recovery codes Facebook provided didn't work, or the company would never respond to verify their identity. And at that point, you're out of options.
 
  Eventually, you just have to move on. As much as it hurts, learn from your mistakes, and create a new account. Be sure to add several valid contact details, secure your Facebook account, and rebuild your profile from scratch. It's a pain, but it's better than nothing.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,4 +191,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-guide-to-integrating-sound-into-presentations-powerpoint/"><u>[New] 2024 Approved Guide to Integrating Sound Into Presentations (PowerPoint)</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-beauty-brows-to-perfect-portraits-crafting-your-cosmetic-chanel/"><u>[New] In 2024, From Beauty Brows to Perfect Portraits Crafting Your Cosmetic Chanel</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-realms-rhythms-top-sites-ranked-for-game-of-thrones-audio-calls-for-2024/"><u>[Updated] The Realm's Rhythms Top Sites Ranked for Game of Thrones Audio Calls for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-realme-note-50-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/effortless-conversion-of-external-hard-drive-to-ssd-on-windows-10-detailed-guide-and-step-by-step-instructions/"><u>Effortless Conversion of External Hard Drive to SSD on Windows 10 - Detailed Guide & Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-subconscious-dialogues-in-facebook-messages/"><u>Exploring Subconscious Dialogues in Facebook Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-data-steer-clear-from-these-privacy-breaking-apps/"><u>Guard Your Data: Steer Clear From These Privacy-Breaking Apps</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/guide-setting-up-your-pc-with-playstation-vr-a-step-by-step-tutorial/"><u>Guide: Setting Up Your PC with PlayStation VR – A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-your-visuals-securing-your-facebook-pictures/"><u>Hide Your Visuals: Securing Your Facebook Pictures</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/infusing-character-into-speech-learn-27-french-idioms/"><u>Infusing Character Into Speech: Learn 27 French Idioms</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-net-finding-pages-profiles-in-fb/"><u>Navigate the Net: Finding Pages, Profiles in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-illusion-of-influence-user-interface-tactics/"><u>The Illusion of Influence: User Interface Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugged-the-surprising-outcomes-of-ditching-social-networks/"><u>Unplugged: The Surprising Outcomes of Ditching Social Networks</u></a></li>
+</ul></div>
 

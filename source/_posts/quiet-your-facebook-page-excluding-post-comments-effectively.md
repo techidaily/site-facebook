@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2024-12-18T23:10:25.602Z
-updated: 2024-12-21T22:49:07.002Z
+date: 2024-12-29T19:01:49.485Z
+updated: 2025-01-05T16:33:14.972Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Things to Know About Turning Off Comments on Facebook
@@ -45,10 +45,14 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -71,18 +75,18 @@ Close
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  And that's all you need to manage comments on your Facebook post.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
@@ -92,10 +96,6 @@ Close
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -128,15 +128,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-unleash-your-gameplays-social-impact-from-xbox-live-to-facebook/"><u>[Updated] 2024 Approved Unleash Your Gameplay's Social Impact From Xbox Live to Facebook</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-comprehensive-guide-to-crafting-engaging-youtube-outros/"><u>[Updated] In 2024, Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-craft-stellar-youtube-thumbnails-with-these-8-software-alternatives/"><u>[Updated] In 2024, Craft Stellar YouTube Thumbnails with These 8 Software Alternatives</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-alarms-for-metas-social-colossus/"><u>3 Alarms for Meta's Social Colossus</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-direct-be-quick-understanding-3-tagging-techniques-for-fb-friends/"><u>Be Direct, Be Quick: Understanding 3 Tagging Techniques for FB Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-a-course-through-meta-user-management-portal/"><u>Charting a Course Through Meta User Management Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-facebooks-reels-disrupt-tiktoks-dominance/"><u>Could Facebook’s Reels Disrupt TikTok's Dominance?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-enrich-your-video-narratives-with-background-melodies-on-fb/"><u>In 2024, Enrich Your Video Narratives with Background Melodies on FB</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/top-learning-video-resources-for-little-ones-free-downloads-and-viewing/"><u>Top Learning Video Resources for Little Ones: Free Downloads & Viewing</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-realme-12-proplus-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme 12 Pro+ 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-pinnacle-devices-best-cars-surveillance-tech/"><u>[New] 2024 Approved Pinnacle Devices Best Cars Surveillance Tech</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-effortlessly-download-top-5-chromium-plug-ins-for-fb-video-access/"><u>[New] Effortlessly Download Top 5 Chromium Plug-Ins for FB Video Access</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-uncovering-histories-student-favored-youtubes-on-historic-events/"><u>[Updated] In 2024, Uncovering Histories Student-Favored YouTubes on Historic Events</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-world-of-photo-reshaping/"><u>2024 Approved Navigating the World of Photo Reshaping</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-right-sound-the-right-mic-top-recommendations-for-diverse-online-presence/"><u>2024 Approved The Right Sound, The Right Mic Top Recommendations for Diverse Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-revolution-the-power-of-facebook-channels-in-groups/"><u>Connectivity Revolution: The Power of Facebook Channels in Groups</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/data-exposure-incident-cooler-masters-user-information-compromised/"><u>Data Exposure Incident: Cooler Master's User Information Compromised</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-youtube-with-imovie-a-soundtrack-journey/"><u>Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/revitalize-your-lenovo-computer-seamless-power-drivers-reinstallation-tutorial/"><u>Revitalize Your Lenovo Computer: Seamless Power Drivers Reinstallation Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-facebooks-intrusive-history-feature/"><u>Steer Clear of Facebook's Intrusive History Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-swapping-of-separate-facebook-login-credentials/"><u>Swift Swapping of Separate Facebook Login Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-friends-share-your-location-in-fbmessenger/"><u>Teaching Friends: Share Your Location in FBMessenger</u></a></li>
 </ul></div>
 

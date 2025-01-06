@@ -1,7 +1,7 @@
 ---
 title: What Is a Facebook Cloning Scam?
-date: 2024-12-26T20:36:12.851Z
-updated: 2024-12-27T19:45:36.904Z
+date: 2024-12-31T08:01:27.807Z
+updated: 2025-01-05T22:15:23.306Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Cloning vs. Facebook Hacking
@@ -59,10 +59,6 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Unlike hacking, cloning simply means copying your account, then pretending to be you without gaining access to your real account.
 
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Has Been Cloned
 
@@ -79,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Protect Yourself From Facebook Account Cloning
@@ -93,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  Also, set your friends list to private so scammers can’t target them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Check If Your Facebook Account Is Public
@@ -107,7 +103,7 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What to Do If You Find a Cloned Facebook Account
@@ -115,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
  If you find a Facebook clone account, go to the profile of the clone account. Click the three dots on the top right corner of the screen below the cover photo. Then select**Find Support or Report Page** .
 
  If you don’t have a Facebook account and someone has made a fake account, you can fill out [this form](https://www.facebook.com/help/contact/295309487309948?helpref=faq%5Fcontent) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Protect Your Friends and Family From Scammers
 
@@ -137,24 +137,22 @@ thumbnail: https://thmb.techidaily.com/1b197dac261b78f768deb74da8ea7cc5a8aab4e5f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-top-10-lightroom-alternatives-free-and-paid-filmora-for-2024/"><u>[New] Top 10 Lightroom Alternatives [Free & Paid] | Filmora for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/classroom-media-mastery-video-editing-essentials/"><u>Classroom Media Mastery Video Editing Essentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/exploring-the-basics-of-sidechains-in-digital-currencies-and-how-they-work/"><u>Exploring the Basics of Sidechains in Digital Currencies and How They Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://discover-answers.techidaily.com/mastering-document-organization-tips-and-tricks-for-efficiently-rearranging-pdf-pages-in-apowerpdf/"><u>Mastering Document Organization: Tips and Tricks for Efficiently Rearranging PDF Pages in ApowerPDF</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
-<li><a href="https://network-issues.techidaily.com/optimizing-screen-resolution-no-more-problems-with-win-10/"><u>Optimizing Screen Resolution - No More Problems with Win 10</u></a></li>
-<li><a href="https://fox-that.techidaily.com/quick-fixes-to-address-iphone-guide-mode-malfunctions-effectively/"><u>Quick Fixes to Address iPhone Guide Mode Malfunctions Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/simplifying-the-process-of-deleting-youtube-files-for-2024/"><u>Simplifying the Process of Deleting YouTube Files for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/try-out-tangos-free-communication-services-texts-and-calls/"><u>Try Out Tango's Free Communication Services: Texts and Calls</u></a></li>
-<li><a href="https://win-info.techidaily.com/ultimate-guide-5-methods-for-creating-a-disk-imaging-iso-file/"><u>Ultimate Guide: 5 Methods for Creating a Disk Imaging ISO File</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-crystalvision-pro-screen-capturing-101/"><u>[New] CrystalVision Pro Screen Capturing 101</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-review-of-syma-x5c-the-ultimate-drone-guide-for-new-users/"><u>[New] In 2024, Review of Syma X5C – The Ultimate Drone Guide for New Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-upcoming-us-antitrust-measures-against-major-tech-firms/"><u>Dissecting the Upcoming US Antitrust Measures Against Major Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-viral-campaigns-with-strategic-fb-posting-techniques/"><u>Driving Viral Campaigns with Strategic FB Posting Techniques</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-y78-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo Y78 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/half-price-savings-on-keeper-password-saver-secure-your-accounts-with-a-50-discount-techtoday/"><u>Half-Price Savings on Keeper Password Saver: Secure Your Accounts with a 50% Discount | TechToday</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignore-whatsapps-privacy-changes-account-functionality-unaffected/"><u>Ignore WhatsApp’s Privacy Changes: Account Functionality Unaffected</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-xiaomi-13t-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Xiaomi 13T Pro Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-ultimate-mic-selection-for-online-talent/"><u>In 2024, Ultimate Mic Selection for Online Talent</u></a></li>
+<li><a href="https://fox-access.techidaily.com/innovative-high-definition-software-top-8-free-listings/"><u>Innovative High Definition Software Top 8 FREE Listings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-insights-the-best-apps-to-supercharge-your-profile/"><u>Instagram Insights The Best Apps to Supercharge Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-management-securing-your-social-media-space-with-admins/"><u>Mastery Over Management: Securing Your Social Media Space with Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-data-protection-vr-headset-user-guide/"><u>Meta and FB Data Protection: VR Headset User Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/moving-from-twitter-to-tweeters/"><u>Moving From Twitter to Tweeters</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Study: Most Covid-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-art-of-picking-aspect-ratios-for-media/"><u>The Art of Picking Aspect Ratios for Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-with-messenger-kids-inbuilt-sleep-mode/"><u>Unlocking Potential with Messenger Kids' Inbuilt Sleep Mode</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Find Your Hidden Messages on Facebook Messenger
-date: 2024-08-08T11:29:47.525Z
-updated: 2024-08-09T11:29:47.525Z
+date: 2025-01-03T05:18:25.671Z
+updated: 2025-01-06T00:15:13.385Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/104450fe8ea4a9516969410598e82c71d2951cffe
 
  We’ll show you how to see hidden messages on Facebook Messenger, plus give tips on controlling how you see them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to See Hidden Messages on Facebook Messenger
 
  The menu to access your hidden Facebook messages is out of sight, but easy to open.
@@ -27,11 +31,12 @@ thumbnail: https://thmb.techidaily.com/104450fe8ea4a9516969410598e82c71d2951cffe
 
 ![Messenger Desktop Message Requests](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Desktop-Message-Requests.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To see your hidden messages in the mobile Messenger app, tap the hamburger menu at the top-left and choose**Message requests** from the resulting menu. We’ll use the desktop version to illustrate below, but the same applies to the mobile apps too.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Replying to Hidden and Spam Messages
 
  Once you have this menu open using either method, it shows two tabs:**You may know** and**Spam** .**You may know** holds messages from friends of friends, or people that Facebook thinks you might have a connection to.**Spam** , as the name suggests, filters messages from people you have no connection with.
@@ -44,10 +49,11 @@ thumbnail: https://thmb.techidaily.com/104450fe8ea4a9516969410598e82c71d2951cffe
 
  For messages you aren’t interested in, click the**I don’t want to hear from \[name\]** link above the reply box.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Messenger Stop Hearing From Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Stop-Hearing-From-Person.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You’ll then get a choice to**Delete chat** (good for cleaning up your request inbox) or**Block** the person (useful if they won’t stop messaging you). Either way, the other person won’t be aware you’ve done this.
 
@@ -59,23 +65,25 @@ thumbnail: https://thmb.techidaily.com/104450fe8ea4a9516969410598e82c71d2951cffe
 
  To do so on desktop, click the three-dot menu at the top-left of the chat page and choose**Preferences** . In this menu, click**Manage message delivery** , which will bring you to[the**Privacy** page](https://www.facebook.com/settings/?tab=privacy) of Facebook’s main Settings menu. The relevant settings are in the**How You Get Message Requests** section at the bottom.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Message Request Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Message-Request-Delivery.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To see this on the mobile Messenger app, slide out the left menu, tap the**Settings** gear, and go to**Privacy & safety > Message delivery** .
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Potential Connections: Legitimate Requests
 
  In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Other People: Probably Spam
 
@@ -87,13 +95,14 @@ thumbnail: https://thmb.techidaily.com/104450fe8ea4a9516969410598e82c71d2951cffe
 
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## How to See Your Archived Messages on Messenger
 
  Archiving chats is one of[Messenger’s lesser-known but useful features](https://www.makeuseof.com/useful-facebook-messenger-features/) . When you archive a conversation, it’s removed from your inbox but is still active. Next time someone sends a message in the chat, it will reappear in your main list.
@@ -102,9 +111,6 @@ Close
 
  To see all your archived chats in one place, click the three-dot button at the top-left and choose**Archived chats** . From there, you can click the three-dot button on a chat again and choose**Unarchive chat** to put it back in your inbox, or**Delete chat** if you’re done with it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ![Messenger Archived Chats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Archived-Chats.jpg)
 
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
@@ -115,14 +121,8 @@ Close
 
  This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Seek and Find Hidden Messages on Facebook Messenger
 
  We’ve walked through all the ways to find hidden messages in Messenger, along with how to control what messages you receive.
@@ -131,14 +131,11 @@ Close
 
  Meanwhile, if you love Messenger, there’s a lot more to discover about it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +144,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-do-reviewers-monetize-their-goods-analysis-vlogs-for-2024/"><u>[New] Do Reviewers Monetize Their Goods Analysis Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-guide-to-self-supported-youtube-earnings-strategies/"><u>[New] In 2024, The Ultimate Guide to Self-Supported YouTube Earnings Strategies</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unseen-features-in-depth-look-at-instagrams-ask-emoji/"><u>[New] In 2024, Unseen Features In-Depth Look at Instagram’s Ask Emoji</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-adolescent-security-in-the-world-of-social-media/"><u>Fortifying Adolescent Security in the World of Social Media</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-motorola-moto-g23-lock-screen-password-by-drfone-android/"><u>How to Reset your Motorola Moto G23 Lock Screen Password</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-detect-facebook-banned-friends/"><u>Navigating to Detect Facebook Banned Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-identity-update-made-simple/"><u>Social Media Identity Update Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-wristwatch-scheme-insights-on-facebooks-plan/"><u>The Hidden Wristwatch Scheme: Insights on Facebook’s Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-detectives-handbook-to-verify-identities/"><u>The Social Detective's Handbook to Verify Identities</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/verspraeckeen-van-aiff-naar-mp3-online-kostenloos-movavi/"><u>Verspraeckeen Van AIFF Naar MP3 Online Kostenloos - Movavi</u></a></li>
+</ul></div>
 

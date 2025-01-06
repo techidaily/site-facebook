@@ -1,7 +1,7 @@
 ---
 title: "FB Messenger Secure: Time Frame for Implementing E2EE"
-date: 2024-08-08T11:25:45.931Z
-updated: 2024-08-09T11:25:45.931Z
+date: 2025-01-03T04:47:04.662Z
+updated: 2025-01-05T23:59:33.555Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
  As such, many people are wondering when the service will offer end-to-end encryption by default. This article will reveal the answer, along with discussing why it's not already in place.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Will Facebook Messenger Offer End-to-End Encryption?
 
  Facebook has announced plans to [bring default end-to-end encryption to Messenger](https://www.makeuseof.com/facebook-messenger-instagram-direct-chats-wont-encrypted-until-2022/) .
@@ -31,15 +32,16 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
 
@@ -52,23 +54,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
 
  Normally, you don't need to worry too much about the privacy of your conversations on Messenger. And if you want to send and receive encrypted messages, you could use the Secret Conversations feature.
 
  But if you’d rather use a messaging platform that offers default end-to-end encryption, plenty of alternatives exist. So why not give them a try and see how you like them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +76,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-virtual-impression-sculpting-a-playful-digital-identity/"><u>[New] Virtual Impression Sculpting a Playful Digital Identity</u></a></li>
+<li><a href="https://win11.techidaily.com/banish-black-screen-in-windows-quick-fix-guide/"><u>Banish Black Screen in Windows - Quick Fix Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/double-lock-protocol-secure-your-icloud-email-through-advanced-authentication-measures/"><u>Double Lock Protocol: Secure Your iCloud Email Through Advanced Authentication Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevated-authenticity-meta-golden-star-vs-twitters-platinum-badge/"><u>Elevated Authenticity: Meta Golden Star Vs. Twitter's Platinum Badge</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/guia-experta-sobre-como-rescatar-informacion-perdida-con-herramientas-para-recuperacion-de-datos-en-nas-synology/"><u>Guía Experta Sobre Cómo Rescatar Información Perdida Con Herramientas Para Recuperación De Datos en NAS Synology</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignored-yet-impactful-a-look-at-the-top-4-overlooked-tech-updates/"><u>Ignored Yet Impactful: A Look at the Top 4 Overlooked Tech Updates</u></a></li>
+<li><a href="https://win11.techidaily.com/masterclass-making-mouseclicklock-easier-in-windows/"><u>Masterclass: Making MouseClickLock Easier in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-network-a-deep-dive-into-facebooks-transparency-center/"><u>Navigating the Social Network: A Deep Dive Into Facebook's Transparency Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-rewards-navigating-monetization-streams-with-metas-insight/"><u>Reel Rewards: Navigating Monetization Streams with Meta’s Insight</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-most-anticipated-ios-18-updates-from-wwdc-2023-delving-into-advanced-ai-features-and-more-digital-innovations-journal/"><u>The Most Anticipated iOS 18 Updates From WWDC 2023 - Delving Into Advanced AI Features and More | Digital Innovations Journal</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-behind-hashtag-power-and-its-influence-on-facebook-audience-growth/"><u>The Truth Behind #Hashtag Power and Its Influence on Facebook Audience Growth</u></a></li>
+<li><a href="https://windows11.techidaily.com/tutorial-switching-to-quake-with-terminal/"><u>Tutorial: Switching to Quake with Terminal</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-facebook-account-was-hacked-4-things-to-do-immediately/"><u>Your Facebook Account Was Hacked? 4 Things to Do Immediately</u></a></li>
+</ul></div>
 

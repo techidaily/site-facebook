@@ -1,7 +1,7 @@
 ---
 title: "Revising Profile Rules: Forward, No Backward to Faith or Politics"
-date: 2024-12-22T16:13:49.212Z
-updated: 2024-12-27T20:45:44.275Z
+date: 2024-12-31T08:50:28.011Z
+updated: 2025-01-06T05:30:10.022Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Remove Sensitive Information
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -75,22 +75,22 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-androids-best-speed-up-your-slow-video-for-2024/"><u>[New] Android's Best Speed Up Your Slow Video for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-a-deep-dive-into-durecorders-full-range/"><u>[Updated] A Deep Dive Into DuRecorder's Full Range</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-examining-the-huawei-p10-camera-and-display-capabilities/"><u>2024 Approved Examining the Huawei P10 Camera and Display Capabilities</u></a></li>
-<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/asus-data-retrieval-tool-restore-lost-data-from-asus-rog-phone-7-by-fonelab-android-recover-data/"><u>Asus Data Retrieval tool – restore lost data from Asus ROG Phone 7</u></a></li>
-<li><a href="https://facebook.techidaily.com/five-steps-and-six-rationale-for-quitting-facebook-today/"><u>Five Steps & Six Rationale for Quitting Facebook Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/friend-or-foe-how-to-tell-if-your-fb-is-compromised/"><u>Friend or Foe? How to Tell if Your FB Is Compromised</u></a></li>
-<li><a href="https://program-issues.techidaily.com/hp-client-security-manager-uninstall-error-1325-on-windows-7-solved/"><u>HP Client Security Manager Uninstall Error 1325 on Windows 7 [Solved]</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-apples-role-in-simplifying-educational-audio-archives/"><u>In 2024, Apple's Role in Simplifying Educational Audio Archives</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-mac-audio-setup-101-using-audacity-for-sound-recording/"><u>In 2024, Mac Audio Setup 101 - Using Audacity for Sound Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/inquiring-the-internets-intelligence-assessing-feed-preferences/"><u>Inquiring the Internet's Intelligence: Assessing Feed Preferences</u></a></li>
-<li><a href="https://facebook.techidaily.com/interpretation-of-social-media-pictograms-in-fb-chats/"><u>Interpretation of Social Media Pictograms in FB Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/personal-touch-incorporating-facebook-pictures-into-whatsapp-messages/"><u>Personal Touch: Incorporating Facebook Pictures Into WhatsApp Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-conversations-a-guide-to-facebooks-advanced-moderation-tools/"><u>Streamlining Conversations: A Guide to Facebook's Advanced Moderation Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailor-made-digital-doubles-launched-by-oculus/"><u>Tailor-Made Digital Doubles Launched by Oculus</u></a></li>
-<li><a href="https://fox-place.techidaily.com/top-strategies-for-mastering-animal-crossing-new-horizons-on-your-pc/"><u>Top Strategies for Mastering Animal Crossing: New Horizons on Your PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-recording-success-the-ultimate-guide-for-facetime-conversations/"><u>[New] Recording Success The Ultimate Guide for FaceTime Conversations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube-for-2024/"><u>[New] Snippet Spectacle Top Hashes to Trigger the Viral Spree on YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-bizarre-vertical-reversal-in-insta-videos-a-glitch/"><u>[Updated] In 2024, Bizarre Vertical Reversal in Insta Videos – A Glitch?</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-hotspots-for-gaining-freelance-assignments/"><u>5 Hotspots for Gaining Freelance Assignments</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-facebook-footsteps-an-analytical-journey-through-social-engagement/"><u>Behind the Scenes of Your Facebook Footsteps: An Analytical Journey Through Social Engagement</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-oneplus-nord-ce-3-lite-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for OnePlus Nord CE 3 Lite 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/frugal-yet-effective-top-5-costless-methods-for-social-media-scheduling/"><u>Frugal Yet Effective: Top 5 Costless Methods for Social Media Scheduling</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-balancing-main-footage-with-b-roll-to-avoid-overkill/"><u>In 2024, Balancing Main Footage with B-Roll to Avoid Overkill</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-poco-m6-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Poco M6 5G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-tiktok-losing-its-ground-can-facebooks-reel-offer-relief/"><u>Is TikTok Losing Its Ground? Can Facebook's Reel Offer Relief?</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-social-media-memorable-with-ripls-tips/"><u>Making Social Media Memorable with Ripl's Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-tools-spotting-intruder-usage-quickly/"><u>Monitoring Tools: Spotting Intruder Usage Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/quality-matters-sharing-hd-videos-and-photos-on-fb/"><u>Quality Matters: Sharing HD Videos and Photos on Fb</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-guide-shrinking-and-changing-iphone-video-dimensions-for-2024/"><u>Quick Guide Shrinking & Changing iPhone Video Dimensions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-process-to-eliminate-a-business-profile-from-fb/"><u>Simplified Process to Eliminate a Business Profile From FB</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/write-podcast-magic-a-comprehensive-guide-with-sample-chapters/"><u>Write Podcast Magic A Comprehensive Guide with Sample Chapters</u></a></li>
 </ul></div>
 

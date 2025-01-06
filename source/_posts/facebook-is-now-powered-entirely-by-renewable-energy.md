@@ -1,7 +1,7 @@
 ---
 title: Facebook Is Now Powered Entirely by Renewable Energy
-date: 2024-08-08T11:29:51.411Z
-updated: 2024-08-09T11:29:51.411Z
+date: 2024-12-31T08:15:47.610Z
+updated: 2025-01-06T08:07:50.310Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/07b2aab86c7b38cc417b46120335b85009ee66f18
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
  Climate change presents risks for everyone and everything—from plant species to human beings. Google, Apple, Amazon, as well as Facebook, understand how serious the issues are and have all created environmental targets to eliminate carbon emissions.
@@ -39,14 +40,16 @@ thumbnail: https://thmb.techidaily.com/07b2aab86c7b38cc417b46120335b85009ee66f18
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -58,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +74,20 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-humor-unleashed-designing-viral-video-memes-for-facebook-and-insta-for-2024/"><u>[New] Humor Unleashed Designing Viral Video Memes for Facebook and Insta for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-revolutionary-recording-methods-for-windows-10-games-for-2024/"><u>[New] Revolutionary Recording Methods for Windows 10 Games for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/dvdpcwindows-10/"><u>DVDリースファイルのPC移行：Windows 10版ガイド</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhance-your-videos-effective-titles-and-keywords-on-youtube-for-2024/"><u>Enhance Your Videos Effective Titles and Keywords on YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ethical-engagement-the-new-frontier-for-advertisers/"><u>Ethical Engagement: The New Frontier for Advertisers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-nokia-150-2023-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Nokia 150 (2023) using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-linking-multiple-wireless-speakers-to-one-source/"><u>Mastering the Art of Linking Multiple Wireless Speakers to One Source</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-home-screen-configuring-facebook-portals-for-video-calls/"><u>Mastering Your Home Screen: Configuring Facebook Portals for Video Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giants-bold-investment-of-5m-targeting-content-creators-and-writers/"><u>Social Media Giant's Bold Investment of $5M Targeting Content Creators & Writers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-mir4-stability-problems-a-comprehensive-guide-for-players/"><u>Solving Mir4 Stability Problems: A Comprehensive Guide for Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-fb-tips-to-prevent-strangers-from-viewing-posts/"><u>Stealthy FB Tips to Prevent Strangers From Viewing Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/zero-tolerance-for-myth-sharers-on-facebook-now/"><u>Zero Tolerance for Myth Sharers on Facebook Now</u></a></li>
+</ul></div>
 

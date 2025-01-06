@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2024-12-19T06:13:44.204Z
-updated: 2024-12-22T02:31:52.952Z
+date: 2025-01-04T17:37:57.293Z
+updated: 2025-01-05T18:02:40.369Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -101,24 +101,20 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-crafting-premium-soundtracks-with-zooms-record-feature/"><u>[New] 2024 Approved Crafting Premium Soundtracks with Zoom's Record Feature</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-how-to-shun-crossplay-in-apex-legends-your-guide-to-platform-choices/"><u>[New] How to Shun Crossplay in Apex Legends - Your Guide to Platform Choices</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-unveiling-the-top-watermarking-tools-in-photography/"><u>[New] Unveiling the Top Watermarking Tools in Photography</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-savings-direct-link-and-alternative-extraction/"><u>[Updated] 2024 Approved Instagram Savings Direct Link & Alternative Extraction</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-top-10-ultimate-4k-gaming-systems-reviewed-for-2024/"><u>[Updated] Top 10 Ultimate 4K Gaming Systems Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-potential-channel-building-mastery/"><u>[Updated] Unleashing Potential Channel Building Mastery</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-era-image-inspired-style-evolution-via-facebooks-ai/"><u>A New Era: Image-Inspired Style Evolution via Facebook's AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-system-for-suspicious-facebook-activities/"><u>Alert System for Suspicious Facebook Activities</u></a></li>
-<li><a href="https://facebook.techidaily.com/artists-gear-up-instagram-rolls-out-more-money-making-methods/"><u>Artists, Gear Up! Instagram Rolls Out More Money-Making Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-consequences-before-you-unfollow-everyone/"><u>Assessing Consequences Before You Unfollow Everyone</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-a-new-perspective-on-fb-numbers/"><u>Beyond Likes and Shares - A New Perspective on FB Numbers</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-investment-facebooks-5-million-venture-in-writer-focused-platforms/"><u>Big Investment: Facebook's $5 Million Venture in Writer-Focused Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypassing-barriers-to-facebooks-sealed-content/"><u>Bypassing Barriers to Facebook's Sealed Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/complete-fb-deletion-the-android-methodology/"><u>Complete FB Deletion: The Android Methodology</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723862838291-eyoyo-em1n05-the-ultimate-compact-and-cost-effective-choice-in-portable-105-display-tech/"><u>Eyoyo EM1n05: The Ultimate Compact & Cost-Effective Choice in Portable 10.5” Display Tech.</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/guia-expertos-como-replicar-con-precision-unidades-c-en-discos-duros-externos-utilizando-herramientas-de-clonacion-lideres/"><u>Guía Expertos: Cómo Replicar Con Precisión Unidades C en Discos Duros Externos Utilizando Herramientas De Clonación Líderes</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-samsung-galaxy-s23-fe-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Samsung Galaxy S23 FE to Protect Your Individual Information</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-vivo-s17e-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Vivo S17e without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145204607-unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-incorporating-captions-into-instagrams-video-platform/"><u>[Updated] 2024 Approved Incorporating Captions Into Instagram's Video Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-elite-no-price-facebook-visual-storytelling-suite-for-2024/"><u>[Updated] Elite No-Price Facebook Visual Storytelling Suite for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/10-cool-features-that-make-you-love-filmora-video-editor-for-2024/"><u>10 Cool Features That Make You Love Filmora Video Editor for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-facebook-blocked-entities/"><u>Accessing Your Facebook Blocked Entities</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comprehensive-evaluation-of-the-ecovacs-deebot-x2-omni-robotic-vacuum-mastery-in-home-cleaning/"><u>Comprehensive Evaluation of the Ecovacs Deebot X2 Omni Robotic Vacuum: Mastery in Home Cleaning</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-a-stress-free-fb-deletion/"><u>Essential Steps for a Stress-Free FB Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-format-text-in-messenger-bold-italics-and-more/"><u>How to Format Text in Messenger: Bold, Italics, and More</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/lg-tv-and-netflix-woes-discover-effective-fixes-to-resume-streaming/"><u>LG TV and Netflix Woes? Discover Effective Fixes to Resume Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/personalize-your-desktop-in-windows-11-adjusting-taskbar-colors/"><u>Personalize Your Desktop in Windows 11 - Adjusting Taskbar Colors</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/seamless-worldwide-engagement-with-chatgpt/"><u>Seamless Worldwide Engagement with ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-virtual-space-meta-vs-facebook/"><u>Securing Your Virtual Space: Meta Vs. Facebook?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/setting-up-your-footprint-a-complete-guide-to-fb-instream-ad-configuration/"><u>Setting Up Your Footprint A Complete Guide to FB Instream Ad Configuration</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-forecast-of-social-media-turmoil-fb-edition/"><u>The Forecast of Social Media Turmoil: FB Edition</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/twitters-guide-adding-videos/"><u>Twitter's Guide Adding Videos</u></a></li>
 </ul></div>
 

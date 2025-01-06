@@ -1,7 +1,7 @@
 ---
 title: "Social Engagement's Bright Side: 7 Improvements in Society"
-date: 2024-12-19T18:07:17.883Z
-updated: 2024-12-21T19:27:54.350Z
+date: 2025-01-02T07:59:34.765Z
+updated: 2025-01-06T01:12:50.722Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
  One of the biggest positives of social media is that it has never been easier to make friends. Just a decade ago, it was pretty tough to connect with people, unless you were the overly outgoing type able to make conversation with anyone and everyone at a party.
@@ -42,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
  All of us probably spend a little too long talking about ourselves on social media sites. Which is perfectly natural. We're sharing our lives---the ups and downs, the twists and turns---with people we think will care.
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  You'll also be able to see for yourself that they made it out of the other side, that this issue didn't derail them, and that they are perhaps better for the experience. Which is another reason why social media is good for you.
 
 **Social media can act as a kind of group therapy session.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Social Media Allows for Speedy Communication
 
@@ -77,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  **Social media allows you to live a life unhindered by small talk.**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Social Media Makes the World Seem Smaller
@@ -85,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
@@ -97,10 +93,6 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  Family members living abroad can be kept abreast of the latest happenings in your world as quickly as those living next door. Friends you haven't seen since school, and who have since moved away, are able to keep in touch. Social networking sites mean someone's physical location has become a lot less important.
 
 **Social media has made the world a much smaller place.**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Social Media Helps You Build Relationships
 
@@ -115,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
  As painful as breakups can be (even with the help of[breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
 
  **Social media can help foster friendships and more besides.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Social Media Helps News Travel Faster
 
@@ -135,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 ## 7\. Social Media Helps You Find Common Ground
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -165,17 +165,17 @@ thumbnail: https://thmb.techidaily.com/d2c52f6827b7d364ed0cc4d3f212393bb0ad8a3a9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-halt-social-media-sponsored-content-for-2024/"><u>[New] How to Halt Social Media Sponsored Content for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-decipherment-insiders-look-at-xvideo-hub-review/"><u>[New] The Ultimate Decipherment Insider's Look at XVideo Hub Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-era-begins-six-transformative-aspects-of-fbs-metaverse/"><u>A New Era Begins: Six Transformative Aspects of FB's Metaverse</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/audio-visual-innovators-group/"><u>Audio-Visual Innovators Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/clandestine-continuity-delving-into-facebooks-stealthy-wrist-tech/"><u>Clandestine Continuity: Delving Into Facebook’s Stealthy Wrist Tech</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/enhance-speech-clarity-100-engaging-tongue-twisters/"><u>Enhance Speech Clarity: 100 Engaging Tongue Twisters</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-11107-by-drivereasy-guide/"><u>Identify malfunctioning hardware drivers with Windows Device Manager in Windows 11/10/7</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-on-your-iphone-12-pro-max-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled On your iPhone 12 Pro Max? How to Fix</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-how-to-overcome-minecraft-server-disconnect-problems/"><u>Resolved: How to Overcome Minecraft Server Disconnect Problems</u></a></li>
-<li><a href="https://facebook.techidaily.com/restricting-access-to-in-app-internet-via-facebook/"><u>Restricting Access to In-App Internet via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaking-up-tech-monopolies-why-governments-step-in/"><u>Shaking Up Tech Monopolies: Why Governments Step In</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-to-craft-share-worthy-content-the-facebook-way/"><u>Tips to Craft Share-Worthy Content: The Facebook Way</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-solo-sound-setback-fix-it-now/"><u>[New] In 2024, Solo Sound Setback Fix It Now</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-dive-into-broadcasting-proficiency-with-obs-on-youtube-and-twitch/"><u>[Updated] Dive Into Broadcasting Proficiency with OBS on YouTube and Twitch</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-essential-tips-for-perfect-fb-timeline-covers/"><u>10 Essential Tips for Perfect Fb Timeline Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151766914-breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram.</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/explore-the-best-ever-ios-platforms-for-ps2-games-for-2024/"><u>Explore the Best-Ever IOS Platforms for PS2 Games for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-accusation-over-promotional-integrity/"><u>Facebook Faces Accusation Over Promotional Integrity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-metaverse-project-seeks-global-talent-pool-of-10k/"><u>Facebook's Metaverse Project Seeks Global Talent Pool of 10K.</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/full-review-exploring-hero4-black-functions-for-2024/"><u>Full Review Exploring Hero4 Black Functions for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/initial-steps-in-vlogging-essential-hardwaresoftware/"><u>Initial Steps in Vlogging Essential Hardware/Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-social-media-5-pathways-to-earn-more/"><u>Leveraging Social Media: 5 Pathways to Earn More</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/prevent-data-theft-by-ai-scrappers/"><u>Prevent Data Theft by AI Scrappers</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-to-address-invalid-profile-on-windows-11-systems/"><u>Steps to Address Invalid Profile on Windows 11 Systems</u></a></li>
 </ul></div>
 

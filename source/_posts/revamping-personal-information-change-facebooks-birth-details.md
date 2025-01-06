@@ -1,7 +1,7 @@
 ---
 title: "Revamping Personal Information: Change Facebook's Birth Details"
-date: 2024-08-08T11:28:45.866Z
-updated: 2024-08-09T11:28:45.866Z
+date: 2024-12-30T08:17:08.570Z
+updated: 2025-01-05T22:21:51.207Z
 tags:
   - facebook
 categories:
@@ -37,18 +37,23 @@ Follow the steps below to edit your birthday on the Facebook app.
 
 ![facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Edit basic info on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Edit-basic-info-on-facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -59,20 +64,17 @@ Close
 5. Make your desired corrections.
 6. Check the confirmation box, scroll down, and tap**Save** .
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Change Your Facebook Birthday on the Web
 
 Here's how:
 
 * Log on to[Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click on**About** in the menu below your name and profile photo.
 
@@ -80,40 +82,36 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 * Select**Basic and Contact Info** in the menu on the left.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![contact-info-facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-info-facebook-1.JPG)
 
 * Scroll down to where you'll find your birth date and birth year.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Request a Birthday Change to Facebook
 
  If you've changed your birthdate more than three times, you can still do so. But this time, you'll have to send a request to Facebook to change it for you. Here's how to do that:
 
 * Click on the**contact us** link in the notification telling you that you've used up all your birthday changes.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![contact facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-facebook.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Input your desired changes.
 * Select a reason for the change in the dropdown menu and click send.
 
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook will then correct the error in your birthdate as soon as your request is processed.
 
@@ -123,14 +121,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  One other importance of having accurate information, like birthdays, on your Facebook account is that they sometimes require government-issued IDs that show your actual birthday when retrieving an account. So if the birthdate on your ID and on the social media platform doesn't match up, you might lose your account permanently.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +134,23 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-analyzing-aurora-hdr-quality/"><u>[Updated] Analyzing Aurora HDR Quality</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-tier-rankings-for-podcasts-a-seo-masterclass/"><u>[Updated] In 2024, Top-Tier Rankings for Podcasts A Seo Masterclass</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-ranked-android-song-curator/"><u>[Updated] Top-Ranked Android Song Curator</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/11-le-top-des-annees-2023/"><u>11 – Le Top Des Années 2023</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-drifting-visions-slick-cam-insights/"><u>2024 Approved Drifting Visions Slick Cam Insights</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-expert-tips-for-streamlining-youtube-audio-into-imovie/"><u>2024 Approved Expert Tips for Streamlining YouTube Audio Into iMovie</u></a></li>
+<li><a href="https://win-able.techidaily.com/guide-to-activate-and-use-gpeditmsc-on-your-windows-home-pc-even-if-its-hidden/"><u>Guide to Activate and Use gpedit.msc on Your Windows Home PC – Even if It's Hidden</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y27s-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y27s Phone without PIN</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-altering-facebooks-birthdate/"><u>Mastering the Art of Altering Facebook's Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-and-instagram-await-exciting-new-texting-features-from-fb/"><u>Messenger and Instagram Await Exciting New Texting Features From FB</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-video-data-in-high-capacity-drives-64128gb/"><u>Navigating Video Data in High-Capacity Drives (64/128GB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-your-fb-profile-with-a-fresh-url/"><u>Rebranding Your FB Profile with a Fresh URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-recover-navigating-through-fb-security-breach/"><u>Secure & Recover: Navigating Through FB Security Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-your-digital-gathering-space-on-fb/"><u>Setting Up Your Digital Gathering Space on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-strategy-benefits-and-trade-offs-of-fb-events/"><u>Social Media Strategy: Benefits & Trade-Offs of FB Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-potential-dangers-of-playful-online-quizzes/"><u>Unveiling the Potential Dangers of Playful Online Quizzes</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Guide to Farewell: Deleting Your FB Company Page"
-date: 2024-08-08T11:25:12.145Z
-updated: 2024-08-09T11:25:12.145Z
+date: 2024-12-31T07:49:06.826Z
+updated: 2025-01-06T08:12:08.803Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/2667f52774b221737f5b40cebcdbe6bd28a1a0790
 ## Guide to Farewell: Deleting Your FB Company Page
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Deleting a Facebook page for your business is a painless process that can be done on mobile or desktop.
@@ -28,9 +29,17 @@ thumbnail: https://thmb.techidaily.com/2667f52774b221737f5b40cebcdbe6bd28a1a0790
 
  If you've decided to forego your Facebook page for a different way to reach your audience, or if you're moving in a new direction with your career, getting rid of that Facebook page is a thankfully painless process. We'll show you how to delete your Facebook page permanently.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete a Business Facebook Page
 
  You can delete your Facebook page via the Android or iOS mobile apps or directly via your PC browser. We'll show you how to do it on both mobile and desktop.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Delete Your Facebook Business Page on Mobile
 
@@ -41,14 +50,12 @@ thumbnail: https://thmb.techidaily.com/2667f52774b221737f5b40cebcdbe6bd28a1a0790
 3. Once you've switched to the page, tap the profile photo or hamburger menu in the bottom right (or top right) to view the main**Menu** .
 4. After that, tap the**Settings** icon in the top right and select**Page settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook menu page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/01-facebook-menu-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Switching to a Facebook page's profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/02-switch-facebook-profile.jpg)
 
 ![Facebook page settings on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/03-facebook-page-settings.jpg)
@@ -67,25 +74,22 @@ Now:
 
 ![Delete page option on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/02-delete-facebook-page-option-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Confirming deletion of a Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/03-delete-facebook-page-confirmation.jpg)
 
 Close
 
  The page will be scheduled for deletion, and you'll be switched back to your main Facebook profile.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### How to Delete Your Facebook Business Page on the Website
 
 On Facebook.com, you can delete your page by doing the following:
 
 Click on your profile photo in the top right.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![Profile menu on Facebook via web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/01-facebook-web-menu.jpg)
 
  Select**See all profiles** from the menu**,** then choose the page you want to delete (You may have to click**See all pages**). After that, Facebook will switch your profile to that page.
@@ -107,8 +111,9 @@ Click on your profile photo in the top right.
 ![Deleting a Facebook page via Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/06-delete-facebook-page-web.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Delete Classic Facebook Business Pages
 
  If you can't delete your Facebook business page after following the steps above, you may have a legacy page. This is because legacy Facebook pages have slightly different behavior. For instance, you may be unable to switch profiles and use your Facebook page as a normal user account. If that's the case, use the steps below.
@@ -124,14 +129,16 @@ Click on your profile photo in the top right.
 ![Classic Facebook page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/01-facebook-page-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Settings page of a legacy Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/02-facebook-page-general-settings-legacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![deleting a legacy Facebook page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/03-delete-classic-facebook-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -139,16 +146,10 @@ On the Facebook website, follow these steps:
 
  Tap your profile photo in the top right and select**See all profiles > See all pages** . This will take you to the page's management section. In the left sidebar, scroll down and select**Settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Settings on a legacy Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/legacy-facebook-page-settings.jpg)
 
  Look for**Remove Page** at the bottom of the page and select it. Next, click**Delete \[Page name\]** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Deleting a legacy Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/delete-legacy-facebook-page.jpg)
 
  After that, click**Delete page** from the pop-up to confirm and finish the process.
@@ -159,10 +160,11 @@ On the Facebook website, follow these steps:
 
  Facebook will instantly unpublish your page, so it won't be visible on the platform anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook app opened on a smartphone next to a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/iphone-with-facebook-profile-open-on-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you decide you don't want to delete your page, you can restore it by selecting your profile photo in the top right, then navigating to **Settings & privacy > Settings > Privacy > Your Facebook information > Reactivation** and clicking the**Reactivate** button before the 30-day period ends.
 
@@ -170,23 +172,17 @@ On the Facebook website, follow these steps:
 
  If you want to give yourself a break from running a Facebook page but don't want to delete it completely, you can unpublish it, so only admins can see it. You will also not lose your followers if you do this. Otherwise, if you're doing this as part of your process to[stop using Facebook for good](https://www.makeuseof.com/tag/stop-using-facebook/) , you don't have to do anything else.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Delete Your Facebook Page for Good
 
  Managing a Facebook page can be tough. So if you created a page and gave up on the business idea, there's no need to keep a dormant Facebook page on your account. You can get rid of it by following the instructions above.
 
  Just remember deleting means the page is gone for good. Thankfully, Facebook provides a 30-day window within which you can reactivate your page if you feel like you've made a mistake.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -195,4 +191,19 @@ On the Facebook website, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/updated-navigating-the-2023-landscape-for-screen-captures-and-ppts-for-2024/"><u>[Updated] Navigating the 2023 Landscape for Screen Captures & PPTs for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/a-beginners-blueprint-using-chatgpt-for-effective-daily-mindfulness-practice/"><u>A Beginner’s Blueprint: Using ChatGPT for Effective Daily Mindfulness Practice</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-getting-the-latest-synaptics-driver-for-windows-systems/"><u>Easy Guide: Getting the Latest Synaptics Driver for Windows Systems</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/how-to-recover-deleted-audio-recordings-from-windows-and-iphone-devices/"><u>How to Recover Deleted Audio Recordings From Windows and iPhone Devices?</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-use-googles-nearby-share-to-share-files-between-android-and-windows/"><u>How to Use Google's Nearby Share to Share Files Between Android and Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/increasing-oversight-adding-an-admin-to-your-fb-profile/"><u>Increasing Oversight: Adding an Admin to Your FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-paves-the-way-for-artists-with-enhanced-earning-features/"><u>Instagram Paves the Way for Artists with Enhanced Earning Features</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/maximize-your-work-efficiency-with-the-affordable-flip-out-laptop-monitor-save-93-this-prime-day-on-tech-gear-zdnet/"><u>Maximize Your Work Efficiency with the Affordable Flip-Out Laptop Monitor - Save $93 This Prime Day on Tech Gear! | ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-moderation-instruments-released-by-facebook/"><u>New Moderation Instruments Released by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-existence-completely-unplugging-from-fb/"><u>Offline Existence: Completely Unplugging From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-the-hang-up-your-headphones-message-from-instagram-matters/"><u>Why the 'Hang Up Your Headphones' Message From Instagram Matters</u></a></li>
+<li><a href="https://win-trending.techidaily.com/yl-software-delights-with-high-resolution-christmas-imagery-and-wallpapers-for-ultimate-4k-displays/"><u>YL Software Delights with High-Resolution Christmas Imagery and Wallpapers for Ultimate 4K Displays</u></a></li>
+</ul></div>
 

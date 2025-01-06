@@ -1,7 +1,7 @@
 ---
 title: Survey Highlights Distrust Toward Major Internet Companies
-date: 2024-12-20T17:18:36.899Z
-updated: 2024-12-21T18:57:15.746Z
+date: 2024-12-30T01:49:14.296Z
+updated: 2025-01-05T22:00:45.705Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does the Poll Say?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook Is the Least Trusted
 
  About 44% of Americans trust Apple and Microsoft. Google does better with 48% trust. Amazon does really well comparatively, as it has the trust of a majority 53% of users (Amazon and Washington Post are both owned by Jeff Bezos). Other users either distrust these four companies or have no opinion.
@@ -55,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -63,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -79,10 +83,6 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  By contrast, Apple probably became an unlikely hero for fighting the FBI to prevent access to its users' phones. In addition, Apple users are passionate about Apple products.
 
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Regulation Is Coming
 
@@ -109,22 +109,16 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unveiling-hidden-secrets-for-advanced-win10-users/"><u>[New] 2024 Approved Unveiling Hidden Secrets for Advanced Win10 Users</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-untold-journey-of-an-instagram-story-enthusiast/"><u>[New] In 2024, The Untold Journey of an Instagram Story Enthusiast</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-3-beyond-youtube-innovative-videostreaming-communities/"><u>[Updated] Top 3 Beyond Youtube Innovative Videostreaming Communities</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-unveiling-the-art-of-written-visual-narratives-a-guide-on-docuscripts/"><u>2024 Approved Unveiling the Art of Written Visual Narratives A Guide on Docuscripts</u></a></li>
-<li><a href="https://win-info.techidaily.com/1728464777655-aomei-backupper/"><u>高度なデータ保護に特化したAOMEI Backupperのセグメントバックアップ</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-the-course-of-community-on-facebook/"><u>Charting the Course of Community on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-steps-for-updating-birth-yearmonth-on-fb-platform/"><u>Efficient Steps for Updating Birth Year/Month on FB Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-potential-for-urban-pop-up-retail-outlets/"><u>Exploring Facebook's Potential for Urban Pop-Up Retail Outlets</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/pivot-to-profit-5-effective-techniques-for-earning-on-fb-and-insta/"><u>Pivot to Profit: 5 Effective Techniques for Earning on FB and Insta</u></a></li>
-<li><a href="https://change-location.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Vivo Y02T? | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-fixes-for-unresponsive-google-chrome-issues/"><u>Resolved: Fixes for Unresponsive Google Chrome Issues</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revolutionize-your-mobile-browsing-with-binge-ai-search-now-compatible-with-android-and-ios-platforms/"><u>Revolutionize Your Mobile Browsing with Bing'e AI Search - Now Compatible with Android and iOS Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/syncing-tunes-to-earnings-facebooks-music-strategy/"><u>Syncing Tunes to Earnings: Facebook’s Music Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-is-now-fb-and-twt-nbafocus/"><u>The Future Is Now: FB and Twt NBAFocus</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unseen-feed-hiding-pages-without-disclosure-on-fb/"><u>The Unseen Feed: Hiding Pages without Disclosure on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/to-socialize-all-your-accounts-assessing-the-benefits-and-potential-vulnerabilities-of-facebook-login/"><u>To Socialize All Your Accounts: Assessing the Benefits and Potential Vulnerabilities of Facebook Login</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-hidden-potential-how-to-use-video-filters-on-zoom/"><u>[New] 2024 Approved Unlocking Hidden Potential How To Use Video Filters on Zoom</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-expert-tips-for-navigating-youtubes-comprehensive-comments-section/"><u>[Updated] 2024 Approved Expert Tips for Navigating YouTube's Comprehensive Comments Section</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-inside-the-innovative-world-of-intova-x-for-2024/"><u>[Updated] Inside the Innovative World of Intova X for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
+<li><a href="https://fox-access.techidaily.com/best-showcasing-book-trailers/"><u>Best Showcasing Book Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-post-security-how-to-manage-who-sees-your-fb-content/"><u>Elevate Post Security: How to Manage Who Sees Your FB Content</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-y17s-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo Y17s to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-effects-of-pausing-on-facebook/"><u>The Effects of Pausing on Facebook</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-guide-to-the-finest-mobile-vpns-of-2024-expert-evaluations-and-ratings-pcmag/"><u>Ultimate Guide to the Finest Mobile VPNs of 2024 - Expert Evaluations & Ratings | PCMag</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-should-you-change-your-facebook-profile-picture/"><u>When Should You Change Your Facebook Profile Picture?</u></a></li>
+<li><a href="https://common-error.techidaily.com/win-11-and-chrome-woes-heres-how-you-can-overcome-the-plugin-loading-error-effortlessly/"><u>Win 11 and Chrome Woes? Here’s How You Can Overcome the Plugin Loading Error Effortlessly</u></a></li>
 </ul></div>
 

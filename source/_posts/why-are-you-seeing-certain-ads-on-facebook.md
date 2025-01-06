@@ -1,7 +1,7 @@
 ---
 title: Why Are You Seeing Certain Ads on Facebook?
-date: 2024-12-14T19:06:51.495Z
-updated: 2024-12-21T16:14:53.442Z
+date: 2024-12-29T20:57:59.026Z
+updated: 2025-01-05T18:11:11.847Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/42f2023e8fbcdfdd01f86d9db51a4f7bd6fa603af
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Facebook Know What Ads to Show You?
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/42f2023e8fbcdfdd01f86d9db51a4f7bd6fa603af
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
@@ -51,12 +51,16 @@ thumbnail: https://thmb.techidaily.com/42f2023e8fbcdfdd01f86d9db51a4f7bd6fa603af
  Related:[Why Targeted Ads Are a Serious Threat to Your Privacy](https://www.makeuseof.com/tag/targeted-ads-threat-privacy/)  This category includes posts users share on their timeline, pages that they “Like,” and apps that they use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Behaviors
 
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Demographics
 
@@ -69,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/42f2023e8fbcdfdd01f86d9db51a4f7bd6fa603af
 ![Facebook why am I seeing this ad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Why-Am-I-Seeing-This-Ad-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you are seeing something that you are not interested in, you are able to block those types of ads, as well as report any data misuse.
@@ -89,10 +93,6 @@ thumbnail: https://thmb.techidaily.com/42f2023e8fbcdfdd01f86d9db51a4f7bd6fa603af
  After that, click**Settings** .
 
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
@@ -129,20 +129,15 @@ thumbnail: https://thmb.techidaily.com/42f2023e8fbcdfdd01f86d9db51a4f7bd6fa603af
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-integrating-virtual-boards-into-remote-discussions-iphoneipadandroid-and-computers/"><u>[New] 2024 Approved Integrating Virtual Boards Into Remote Discussions IPhone/iPad/Android and Computers</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-digital-documentation-mobile-and-desktop-meeting-recordings/"><u>[New] Digital Documentation Mobile & Desktop Meeting Recordings</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-quick-launch-to-laughter-ifunnys-meme-app-made-simple/"><u>[Updated] In 2024, Quick Launch to Laughter IFunny's Meme App Made Simple</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/best-top-5-alternative-platforms-to-spotify-for-music-streaming-and-downloading/"><u>Best Top 5 Alternative Platforms to Spotify for Music Streaming & Downloading</u></a></li>
-<li><a href="https://facebook.techidaily.com/distilling-key-events-that-defined-googles-2022/"><u>Distilling Key Events That Defined Google's 2022</u></a></li>
-<li><a href="https://facebook.techidaily.com/essentials-of-message-icons-on-social-media-platforms-like-fb/"><u>Essentials of Message Icons on Social Media Platforms Like FB</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-how-to-make-a-youtube-subscribe-link-easy/"><u>In 2024, How to Make a YouTube Subscribe Link - Easy</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ios-update-fixes-unsettling-glitch-that-brought-back-erased-images-insights-from-zdnet/"><u>IOS Update Fixes Unsettling Glitch That Brought Back Erased Images: Insights From ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/mindfulness-in-motion-understanding-instagrams-break-initiative/"><u>Mindfulness in Motion: Understanding Instagram’s Break Initiative</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/omoton-t1-tablet-support-examined-an-economical-and-reliable-choice-for-users/"><u>Omoton T1 Tablet Support Examined: An Economical and Reliable Choice for Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-americas-fresh-approach-to-technology-monopoly/"><u>Understanding America's Fresh Approach to Technology Monopoly</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unmasking-instagrams-unnoticed-capabilities-for-2024/"><u>Unmasking Instagram’s Unnoticed Capabilities for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/validation-needed-is-(securityfacebookmailcom)-a-safe-fb-email/"><u>Validation Needed: Is @<security@facebookmail.com> a Safe FB Email?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-do-i-sight-these-certain-online-promotions/"><u>Why Do I Sight These Certain Online Promotions?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-elite-8-android-multiparty-conferencing-solutions/"><u>[Updated] In 2024, Elite 8 Android Multiparty Conferencing Solutions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-the-art-of-screen-sharing-in-zoom/"><u>[Updated] Mastering the Art of Screen Sharing in Zoom</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-emails-ever-obsolete/"><u>Are Emails Ever Obsolete?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-itel-p55t-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Itel P55T to Protect Your Individual Information</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-realme-v30-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme V30 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/secure-and-simple-guide-to-revitalizing-your-ssds-speed/"><u>Secure & Simple Guide to Revitalizing Your SSD's Speed</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-privacy-by-severing-all-ties-to-facebook/"><u>Securing Privacy by Severing All Ties to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-signature-wars-claiming-victory-as-meta-gold-or-blue-ticked/"><u>Social Signature Wars: Claiming Victory as Meta-Gold or Blue-Ticked</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-handbook-of-handing-over-your-enterprises-social-presence/"><u>The Hidden Handbook of Handing Over Your Enterprise's Social Presence</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/the-story-behind-oneplus-rise-an-in-depth-analysis-of-their-remarkable-progress/"><u>The Story Behind OnePlus' Rise: An In-Depth Analysis of Their Remarkable Progress</u></a></li>
 </ul></div>
 

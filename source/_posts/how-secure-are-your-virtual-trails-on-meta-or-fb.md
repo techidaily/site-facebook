@@ -1,7 +1,7 @@
 ---
 title: How Secure Are Your Virtual Trails on Meta or FB?
-date: 2024-08-08T11:26:36.289Z
-updated: 2024-08-09T11:26:36.289Z
+date: 2024-12-31T23:16:32.033Z
+updated: 2025-01-06T05:21:48.718Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,19 @@ thumbnail: https://thmb.techidaily.com/5279af7c39b88fd4998fb7b9c2ae678e663ed7715
 
  Meta eventually announced that Quest users would no longer need a Facebook login. Instead, they could create a Meta account. This solved a lot of those usability problems but, is it more private for users?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Understanding the Meta Account
 
 [“Meta” is the new name of “Facebook Company”](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) as of October 2021\. This is the conglomerate that owns the social media companies Facebook, Instagram, and WhatsApp. It’s also the conglomerate that purchased VR pioneer Oculus in 2014, and several game studios and other tech companies since then.
 
 ![The Meta Quest 2 controller still featuring the Oculus logo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/artifacts-of-oculus.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Oculus still exists as an entity and does Meta’s VR software development. When they were their own company, there was such a thing as an “Oculus account” required to sign into the headsets. Some kind of account is necessary to do things like buy and manage apps, after all. However, Meta retired the Oculus account in lieu of a Facebook login requirement.
 
@@ -32,15 +40,13 @@ thumbnail: https://thmb.techidaily.com/5279af7c39b88fd4998fb7b9c2ae678e663ed7715
  Some argue that there’s no real difference between using a Meta account and using a Facebook account from a privacy perspective. Others believe that the Meta account requirement is better than a Facebook account requirement. Trying to decide who’s right is less rewarding than presenting both sides of the discussion.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Meta Account Requirement Is Not Better
 
  There are a few strong pillars holding up this position. Whether you support it or not, the common ground we all walk on is that Meta owns Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Meta Gets Your Info Either way
 
  There are a lot of[reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
@@ -61,49 +67,41 @@ thumbnail: https://thmb.techidaily.com/5279af7c39b88fd4998fb7b9c2ae678e663ed7715
 
  Despite all of the criticisms of the move, Facebook accounts and Meta accounts are different. Yes, that does make a difference.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### VR and Social Media Are Different
 
  Think about the information that you enter into Facebook. Your name, your family and friends, probably where you work and went to school. Maybe what you think and believe. Maybe payment info, maybe not. This information has to be input accurately and honestly for the platform to work as intended.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Personal information fields for a Meta account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/How-much-do-you-share.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now, think about the information that you enter into a VR account – arguably about the same as you enter into a game console at this point. Maybe your real name, maybe not. Maybe your personal friends, maybe not. Payment info, probably. Probably not your family. Probably not where you work. Probably not what you think and believe.
 
  Friend suggestions were a good example of this in the days of the Facebook requirements. When a Facebook friend linked their accounts to a Quest, other Quest users in their Facebook network got notifications. This doesn’t happen when you sign in with a Meta account because your Meta account doesn’t know (or pretends not to know) who your Facebook friends are.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### You Don’t Need a Facebook Account
 
  So far, we’ve been weighing the cons of a Meta account against the cons of a Facebook account. However, since the Meta account option, you don’t need a Facebook account to use a Quest.
 
  If you want to use a Quest but[deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Pick Your Poison
 
  For most people, this is an academic exercise. Most people don’t think twice about giving data in exchange for services because that’s just how the world works these days. If you’re more discerning, you have some thinking to do.
 
  It’s true that using a VR headset means giving some of your info to someone. And it’s true that, if you want to use Quest, that means giving some of your info to Meta. However, giving info to Meta no longer means giving your info to Facebook. That’s particularly true if you use Meta and Facebook in ways that are mindful of your data privacy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,4 +110,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-reviving-your-visual-story-adding-instagrams-flavor-to-old-photosvideos-for-2024/"><u>[New] Reviving Your Visual Story Adding Instagram's Flavor to Old Photos/Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-download-facebook-videos-swiftly-discover-the-top-10-android-downloader-tools/"><u>[Updated] In 2024, Download Facebook Videos Swiftly Discover the Top 10 Android Downloader Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-motion-animating-stories-on-instagram/"><u>2024 Approved Mastering Motion Animating Stories on Instagram</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-system-of-apple-iphone-6s-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-xiaomi-13t-pro-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Xiaomi 13T Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-vivo-x100-pro-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-insight-into-ricoh-theta-s-camera/"><u>In 2024, Complete Insight Into Ricoh Theta S Camera</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-blocked-user-search/"><u>Mastering Facebook's Blocked User Search</u></a></li>
+<li><a href="https://facebook.techidaily.com/politics-no-thanks-optimize-your-facebook-experience/"><u>Politics? No Thanks! Optimize Your Facebook Experience</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-audio-problems-on-your-windows-7-computer/"><u>Resolving Audio Problems on Your Windows 7 Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/stream-your-favorites-spotify-mini-panel-right-from-facebook/"><u>Stream Your Favorites: Spotify Mini Panel, Right From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-blunders-of-the-tech-world-this-year/"><u>The Biggest Blunders of the Tech World This Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-sleep-mode-in-enhancing-the-user-experience-on-messenger-kids/"><u>The Role of Sleep Mode in Enhancing the User Experience on Messenger Kids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-tactic-for-tracking-youtube-income-a-step-by-step-approach-for-2024/"><u>Triple Tactic for Tracking YouTube Income A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-mystery-how-to-get-your-money-back-from-fb/"><u>Unraveling the Mystery - How to Get Your Money Back From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-guidance-teenagers-time-away-from-instagram/"><u>Upcoming Guidance: Teenagers' Time Away From Instagram?</u></a></li>
+</ul></div>
 

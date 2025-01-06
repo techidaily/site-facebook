@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2024-12-22T16:50:18.131Z
-updated: 2024-12-27T19:20:17.627Z
+date: 2025-01-04T22:13:35.834Z
+updated: 2025-01-06T05:23:05.043Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
@@ -39,12 +39,16 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -62,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -74,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -87,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -103,7 +103,7 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
@@ -143,20 +143,16 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-securing-your-fb-conversations-with-recordings/"><u>[Updated] 2024 Approved Securing Your FB Conversations with Recordings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-investigating-the-power-of-4-second-youtube-subscriptions-for-2024/"><u>[Updated] Investigating the Power of 4-Second YouTube Subscriptions for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-apple-iphone-13-pro-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From Apple iPhone 13 Pro How to Bypass?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/budget-drone-expeditions-top-5-affordable-options-for-2024/"><u>Budget Drone Expeditions Top 5 Affordable Options for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/fix-your-game-crashes-and-lag-expert-solutions-for-smooth-play/"><u>Fix Your Game Crashes and Lag - Expert Solutions for Smooth Play</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-your-child-through-safe-data-edits-on-messenger/"><u>Guiding Your Child Through Safe Data Edits on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-reset-security-codes-not-sent-by-facebook/"><u>How to Reset Security Codes Not Sent by Facebook</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capturemaster-x-overview-evaluation/"><u>In 2024, CaptureMaster X Overview Evaluation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-cutting-edge-professional-guide-to-youtube-editing/"><u>In 2024, Cutting Edge Professional Guide to YouTube Editing</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-or-minimizing-the-real-story-of-expat-facebook-groups/"><u>Maximizing or Minimizing? The Real Story of Expat Facebook Groups</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210696054-9780645206456-my-way-my-truthful-way/"><u>My Way, my Truthful Way | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/platform-policy-temporal-suspension-of-trump-a-step-forward/"><u>Platform Policy: Temporal Suspension of Trump, a Step Forward</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-sending-stunning-3d-photos-via-facebook/"><u>The Art of Sending Stunning 3D Photos via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-strategy-for-securing-an-e-commerce-refund-on-fb/"><u>The Essential Strategy for Securing an E-Commerce Refund on FB</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-xiaomi-redmi-k70-pro-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Xiaomi Redmi K70 Pro Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-6-video-editing-apps-for-macos-big-sur-11/"><u>[New] 2024 Approved Top 6 Video Editing Apps for macOS Big Sur 11</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-transform-your-social-media-image-best-tools-for-professional-fb-cover-photos/"><u>[New] Transform Your Social Media Image Best Tools for Professional FB Cover Photos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-update-complete-shorts-visibility-restored-for-2024/"><u>[Updated] Update Complete Shorts Visibility Restored for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-world-through-your-lenses-how-ray-bans-latest-upgrade-by-meta-offers-instant-landmark-info-detailed-analysis-on-zdnet/"><u>Discover the World Through Your Lenses: How Ray-Ban's Latest Upgrade by Meta Offers Instant Landmark Info | Detailed Analysis on ZDNET</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-latest-version-of-magiccard-rio-pro-driver-optimized-for-windows-systems/"><u>Download Latest Version of Magiccard Rio Pro Driver - Optimized for Windows Systems</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/easy-to-follow-tips-for-hassle-free-high-dynamic-range-imaging/"><u>Easy-to-Follow Tips for Hassle-Free High Dynamic Range Imaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactivity-or-intrusion-cybersecurity-risks-on-fb-quizzes/"><u>Interactivity or Intrusion? Cybersecurity Risks on FB Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-verdict-yet-facebook-board-postpones-judgment/"><u>No Verdict Yet: Facebook Board Postpones Judgment</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-privacy-how-to-avoid-facebooks-stalking/"><u>Reclaim Privacy: How to Avoid Facebook's Stalking</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-stress-navigating-the-signals-9-warnings-of-account-breach/"><u>Social Security Stress: Navigating the Signals (9 Warnings) of Account Breach</u></a></li>
 </ul></div>
 

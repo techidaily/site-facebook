@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-12-22T20:02:37.196Z
-updated: 2024-12-27T18:41:28.981Z
+date: 2025-01-03T01:06:54.370Z
+updated: 2025-01-06T07:14:59.738Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## US Adults Use Social Media Despite Believing It Divides People
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -67,13 +67,13 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -99,22 +99,18 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-boosting-clarity-in-web-exhibits-and-presentations/"><u>[New] Boosting Clarity in Web Exhibits and Presentations</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-photo-perfection-for-newbies-the-lunapic-way-for-2024/"><u>[New] Photo Perfection for Newbies The LunaPic Way for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-personalizing-your-android-a-step-by-step-guide-to-ringtone-and-sound-settings-for-2024/"><u>[Updated] Personalizing Your Android A Step-by-Step Guide to Ringtone & Sound Settings for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-skyrocketing-numbers-enhancing-youtube-presence-for-2024/"><u>[Updated] Skyrocketing Numbers Enhancing YouTube Presence for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-but-underappreciated-tech-developments-top-4-highlights/"><u>Essential but Underappreciated Tech Developments - Top 4 Highlights</u></a></li>
-<li><a href="https://facebook.techidaily.com/establishing-a-visual-representation-on-fb/"><u>Establishing a Visual Representation on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-core-framework-concept/"><u>Exploring Facebook's Core Framework Concept</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-add-notices-that-say-user-tracking-keeps-their-apps-free/"><u>Facebook and Instagram Add Notices That Say User Tracking Keeps Their Apps Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/hot-off-the-press-fbs-latest-videos/"><u>Hot Off The Press: FB's Latest Videos</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-the-latest-logitech-unifying-receiver-on-your-windows-device/"><u>How to Install the Latest Logitech Unifying Receiver on Your Windows Device</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Tecno Phantom V Flip? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-interviews-fans-magnetism-in-audio/"><u>In 2024, Innovative Interviews Fans' Magnetism in Audio</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-photos-in-the-finest-display-frame/"><u>Premium Photos in the Finest Display Frame</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebranding-in-the-social-realm-update-your-profile-pic/"><u>Rebranding in the Social Realm: Update Your Profile Pic</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-meta-direct-path-to-social-network-managers/"><u>Unveiling Meta: Direct Path to Social Network Managers</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-lava-yuva-3-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Yuva 3 Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-facebook-whitelisting/"><u>What Is Facebook Whitelisting?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-vid-recorders-vault-top-techniques-for-tv-streaming-for-2024/"><u>[New] Vid-Recorder's Vault Top Techniques for TV Streaming for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-citizens-guide-to-c-span-video-downloads/"><u>[Updated] A Citizen's Guide to C-Span Video Downloads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-finding-pixel-ringtone-treasures-online/"><u>[Updated] Finding Pixel Ringtone Treasures Online</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bilibili/"><u>Bilibili動画と実況中の映像記録手順の解説</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decor-constructing-visual-albums-on-the-web/"><u>Digital Decor: Constructing Visual Albums on the Web</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-documented-life-a-comprehensive-record-of-all-fb-activities-you-participated-in/"><u>Digitally Documented Life: A Comprehensive Record of All Fb Activities You Participated In</u></a></li>
+<li><a href="https://facebook.techidaily.com/examine-the-number-of-facebook-admirers/"><u>Examine the Number of Facebook Admirers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-12-screen-lock-without-password-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 12 screen lock without password?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-lava-storm-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Lava Storm 5G PC | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mystery-of-missing-monitor-magenta/"><u>Mystery of Missing Monitor Magenta</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/real-time-photo-editing-on-the-go-cropping-techniques-for-2024/"><u>Real-Time Photo Editing On-the-Go Cropping Techniques for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-fix-for-invalid-system-id-alert-in-win11/"><u>Step-by-Step Fix for Invalid System ID Alert in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-users-authenticity-now-at-meta/"><u>US Users: Authenticity Now at Meta</u></a></li>
 </ul></div>
 

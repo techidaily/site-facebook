@@ -1,7 +1,7 @@
 ---
 title: "Unlocking the Year of My Digital Networking Beginnings: Facebook"
-date: 2024-08-08T11:29:06.740Z
-updated: 2024-08-09T11:29:06.740Z
+date: 2025-01-04T06:55:58.446Z
+updated: 2025-01-06T08:16:02.045Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/afa50b24e25ed08989c229ae73d3b233da6ab60b7
 
  Each method has varying accuracy and which one you should choose depends on if you still have access to your Facebook account and old emails. Read on to find out how to check your Facebook account creation date.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Find the Exact Date That You Joined Facebook
 
  If you can log in to your Facebook account, there’s a section on the site that tells you when you made your account. This is the best way to find your Facebook join date, as this provides the most accurate answer.
@@ -39,26 +36,30 @@ Follow these steps to find your Facebook account creation date:
 6. On the next screen, under the**Access your information** menu on the left, scroll down and select**Personal information** .  
 ![facebook profile information menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-profile-information-menu.jpg)
 7. On the right pane, look toward the**Your account creation date** section. This section displays the exact date you created your Facebook account.  
+
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![account creation date on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/account-creation-date-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The steps for finding out your Facebook account creation date on mobile are slightly different.
 
  To find out when you joined Facebook on the mobile app, follow these steps:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook main menu on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-main-menu-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook app access your information option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-access-your-information-option.jpg)
 
 ![personal information option on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/personal-information-option-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook account creation date on mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-account-creation-date-on-mobile-app.jpg)
 
@@ -71,9 +72,6 @@ Close
 
  Doing this on the Facebook website or app is the best way to find out your account creation date. But what if you don't have access to your account?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Using Facebook's Welcome Email to Find Your Join Date
 
  Another way to check how many years you've had Facebook is by using your welcome email.
@@ -88,9 +86,6 @@ Close
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Find How Old Your Facebook Account Is Using a Profile Picture
 
  Facebook usually asks you to upload a profile picture as soon as you’ve finished creating an account. This means the upload date of your first profile picture should be your Facebook account creation date.
@@ -109,11 +104,12 @@ Close
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  That date should be the day you made your Facebook profile or very close to that date.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
  Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
@@ -124,21 +120,23 @@ Close
 
  Then select**Your posts, check-ins, photos and videos** .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Find Out When You Joined Facebook
 
@@ -146,14 +144,11 @@ Close
 
  Keep in mind different methods have different accuracy levels; use the first method if you can.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +157,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-pro-tips-for-high-quality-ps3-game-screenshots/"><u>[New] 2024 Approved Pro Tips for High-Quality PS3 Game Screenshots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-evaluating-ffmpegs-retention-of-sound-formats/"><u>[Updated] In 2024, Evaluating FFmpeg's Retention of Sound Formats</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-samsung-galaxy-f15-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Samsung Galaxy F15 5G PC | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/enhancing-productivity-with-azure-voice-recognition-for-2024/"><u>Enhancing Productivity with Azure Voice Recognition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-deception-on-the-internet-time-for-tech-to-step-up/"><u>Fighting Deception on the Internet: Time for Tech to Step Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-wherever-you-want-facebooks-mobility-centric-portal/"><u>Go Wherever You Want: Facebook's Mobility-Centric Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastodon-a-new-era-of-discourse/"><u>Mastodon: A New Era of Discourse</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-fixing-the-critical-dxgkrnl-bsod-issue-in-windows-11/"><u>Resolved: Fixing the Critical 'Dxgkrnl' BSOD Issue in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-backdoor-for-anti-immunization-advocates/"><u>Social Media's Backdoor for Anti-Immunization Advocates</u></a></li>
+<li><a href="https://win11.techidaily.com/tailored-group-policies-for-specific-users-stepwise-approach/"><u>Tailored Group Policies for Specific Users: Stepwise Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-intrusion-verifying-third-party-login-on-facebook/"><u>Uncover Intrusion: Verifying Third-Party Login on Facebook</u></a></li>
+</ul></div>
 

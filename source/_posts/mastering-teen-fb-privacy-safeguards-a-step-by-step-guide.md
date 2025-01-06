@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-12-26T16:36:11.587Z
-updated: 2024-12-27T16:21:48.661Z
+date: 2025-01-05T05:43:48.209Z
+updated: 2025-01-05T21:25:15.597Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
@@ -33,17 +37,21 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -51,10 +59,6 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -86,10 +90,6 @@ Close
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 Close
@@ -101,7 +101,7 @@ Close
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
@@ -125,20 +125,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-ai-integration-for-vr-marketplaces/"><u>[Updated] In 2024, AI Integration for VR Marketplaces</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-new-era-facebook-video-autoplay-explained-for-2024/"><u>[Updated] The New Era Facebook Video Autoplay Explained for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/enabling-redesigned-windows-11-widget-pickers/"><u>Enabling Redesigned Windows 11 Widget Pickers</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/enhance-image-edges-with-circular-smear-technique-ps/"><u>Enhance Image Edges with Circular Smear Technique PS</u></a></li>
-<li><a href="https://facebook.techidaily.com/exposing-facebook-true-subscriber-decline/"><u>Exposing Facebook: True Subscriber Decline</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211338489-9781738525515-heart-of-the-cards/"><u>Heart of the Cards | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-group-creation-in-social-media-landscape/"><u>Mastering Group Creation in Social Media Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-high-res-media-posts-on-social-network/"><u>Mastering High-Res Media Posts on Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-danger-zone-recognizing-and-evade-online-trading-scams/"><u>Navigating the Danger Zone: Recognizing & Evade Online Trading Scams</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/by-step-youtube-image-enlargement-technique/"><u>Step-by-Step Youtube Image Enlargement Technique</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-process-of-granting-access-in-facebook/"><u>The Process of Granting Access in Facebook</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-how-to-restore-spotify-functionality-in-your-cars-system/"><u>Troubleshooting Steps: How to Restore Spotify Functionality in Your Car's System</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-photo-descriptions-on-social-media/"><u>Unveiling the Power of Photo Descriptions on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-ultimate-guide-to-fb-visual-privacy-control/"><u>Your Ultimate Guide to FB Visual Privacy Control</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-freewinrecorder-straightforward-pc-screens/"><u>[New] FreeWinRecorder Straightforward PC Screens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-autonomous-exposure-control-the-magic-behind-auto-and-smart-hdr-for-2024/"><u>[Updated] Autonomous Exposure Control The Magic Behind Auto and Smart HDR for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-efficiently-share-your-vision-via-igtv/"><u>[Updated] Efficiently Share Your Vision via IGTV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-tailor-made-youtube-closings-how-to-get-them-right/"><u>2024 Approved Tailor-Made YouTube Closings How to Get Them Right</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/accessing-your-subscriber-details-directly-for-2024/"><u>Accessing Your Subscriber Details Directly for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-measures-to-undo-fb-account-breach-consequences/"><u>Critical Measures to Undo FB Account Breach Consequences</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-lost-facebook-posts-a-recovery-blueprint/"><u>Finding Lost Facebook Posts: A Recovery Blueprint</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-oppo-a78-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transform-mod-videos-into-mov-online-at-no-cost-using-our-guide/"><u>Transform MOD Videos Into MOV Online at No Cost Using Our Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-export-instagram-reels-for-facebook-sharing/"><u>Tutorial: Export Instagram Reels for Facebook Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-significance-of-emojis-and-glyphs-on-facebook-messenger/"><u>Understanding the Significance of Emojis and Glyphs on Facebook Messenger</u></a></li>
 </ul></div>
 

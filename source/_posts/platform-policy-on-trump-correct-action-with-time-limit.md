@@ -1,7 +1,7 @@
 ---
 title: "Platform Policy on Trump: Correct Action with Time Limit"
-date: 2024-08-08T11:26:15.038Z
-updated: 2024-08-09T11:26:15.038Z
+date: 2025-01-01T08:20:03.558Z
+updated: 2025-01-05T20:14:21.432Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
  The Facebook Oversight Board has reviewed Facebook's suspension of former-President Donald Trump from the platform. And although the decision was upheld, the Board has stated that Facebook must review the suspension as it wasn't a proper penalty.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Oversight Board Rules on Facebook's Trump Suspension
 
  Facebook suspended Trump from the platform on January 7, 2021, for comments he made with regard to the Capitol incident on January 6\. In particular, the comments Facebook took action over were "We love you. You're very special," "great patriots," and "remember this day forever" across two posts.
@@ -35,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
  Since the ruling, there has been a large amount of backlash on social media regarding the decision. Users on both sides of the argument have mentioned that the ruling was not right, either because they believe Trump shouldn't have been banned in the first place, or because he shouldn't be allowed back on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Next Steps for Facebook?
 
  Since The Oversight Board ruled that an indefinite suspension was not appropriate, it has told Facebook that it must reassess the decision. The Board has decided this after evaluating that suspending any user for an indefinite amount of time didn't follow any procedure.
@@ -48,36 +50,36 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
  The Oversight Board also made a number of other recommendations for Facebook, such as reviewing the platform's role in the events of January 6th, and creating policies on Facebook's response to any similar events in the future.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is The Oversight Board?
 
  The Facebook Oversight Board is a body of experts that will review "difficult and significant decisions" that the social network makes. Essentially, the Board exists to make sure Facebook doesn't break any rules or laws in its decision-making.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Oversight Board logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Oversight_Board_Logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook did set up and fund the Board, but it is an independent body with no Facebook employees involved. The Board has the power to make binding decisions. Members of the public can appeal decisions to the Board.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What About Other Social Media Platforms?
 
  Other notable social media sites such as Twitter also suspended Trump for the same reason as Facebook. Twitter has gone as far as to[ban Trump from the platform forever](https://www.makeuseof.com/twitters-trump-ban-last-forever/) .
 
  The Oversight Board's ruling on Trump's suspension from the platform applies only to Facebook. No other sites are bound by the decisions, so it remains unclear if any other social media platforms will reconsider Trump's ban.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,4 +88,24 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-laugh-out-loud-for-free-easymemes-tutorial/"><u>2024 Approved Laugh Out Loud for Free EasyMemes Tutorial</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-step-by-step-guide-to-selecting-the-perfect-phone-sleeve-or-cover/"><u>A Step-by-Step Guide to Selecting the Perfect Phone Sleeve or Cover</u></a></li>
+<li><a href="https://fox-within.techidaily.com/aomei-centralized/"><u>AOMEI Centralized スケジュールドバックアップの利点と使い方</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/choosing-between-obs-and-fraps-for-excellent-screen-capture-for-2024/"><u>Choosing Between OBS and Fraps for Excellent Screen Capture for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/empower-your-studies-top-10-educational-apps-that-make-learning-fun-for-students-in-secondary-school/"><u>Empower Your Studies: Top 10 Educational Apps that Make Learning Fun for Students in Secondary School</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-elegance-sony-ps-lx310bt-turntable/"><u>Explore the Elegance: Sony PS-LX310BT Turntable</u></a></li>
+<li><a href="https://fox-search.techidaily.com/gratis-losungen-fur-verlorene-desktopmaps-im-benutzerprofil-experten-reparaturmethoden/"><u>Gratis Lösungen Für Verlorene Desktopmaps Im Benutzerprofil: Experten-Reparaturmethoden</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-oneplus-ace-2-to-mac-drfone-by-drfone-android/"><u>How to Mirror OnePlus Ace 2 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/imagery-as-language-catalyst-for-facebooks-artific-cookie/"><u>Imagery as Language Catalyst for Facebook’s Artific Cookie</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-personal-social-data-retrieval/"><u>Mastering the Art of Personal Social Data Retrieval</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-computing-odyssey-the-fastest-global-ai-journey-yet/"><u>Meta's Computing Odyssey - The Fastest Global AI Journey Yet</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-revised-guide-to-page-titles-and-their-significance/"><u>Navigating Facebook's Revised Guide to Page Titles & Their Significance</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-kids-online-details-with-parental-oversight-on-messenger/"><u>Revamping Kid’s Online Details with Parental Oversight on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-early-relationships-a-fb-adventure/"><u>Revisiting Early Relationships: A FB Adventure</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-shift-tiktok-disrupting-facebooks-user-trends/"><u>The Social Media Shift: TikTok Disrupting Facebook's User Trends</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/uncomplicated-technique-for-win-os-clown-sound-changes/"><u>Uncomplicated Technique for Win-OS Clown Sound Changes</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unlock-your-iphones-parental-controls-no-password-needed/"><u>Unlock Your iPhone's Parental Controls: No Password Needed</u></a></li>
+</ul></div>
 

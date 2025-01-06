@@ -1,7 +1,7 @@
 ---
 title: WhatsApp as a Gateway for Instagram's 2FA Messages
-date: 2024-08-08T11:25:16.923Z
-updated: 2024-08-09T11:25:16.923Z
+date: 2025-01-01T21:41:30.311Z
+updated: 2025-01-06T00:36:51.555Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
  Facebook is working on a way for Instagram users to receive two-factor authentication (2FA) codes through WhatsApp as a new option augmenting its existing 2FA methods.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Instagram 2FA Codes via WhatsApp?
 
  While Instagram hasn't made the feature official as of yet, mobile developer and reverse engineer Alessandro Paluzzi was able to unearth evidence that Facebook is working on it.
@@ -27,9 +28,9 @@ thumbnail: https://thmb.techidaily.com/23f15d03527dcdfd4e30255dbd41a14d668e3faaf
  He also shared some screenshots on Twitter showing the user interface around this new optional feature in Instagram's app for iOS and Android. Instagram users will be able to opt-in when---and if, for that matter---Facebook rolls out this option to everyone.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Using WhatsApp for Instagram 2FA Codes
 
  Disabled by default, the feature can be turned on in   **Instagram Settings > Security > Two-Factor Authentication** , then switch on the**WhatsApp** option. You'll also need to enable the SMS method before WhatsApp can be used for Instagram's 2FA code delivery.
@@ -43,9 +44,9 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  For example,[Instagram is testing uploading post photos and videos via a web browser](https://www.makeuseof.com/instagram-web-posting-test/) , as well as accessing creator tools and creating stories using the web version of the service.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Which Instagram 2FA Method Should I Use?
 
  2FA is an authentication method that adds an additional layer of security to accounts that support it. With 2FA, you establish access to an online account, device, or app by providing two different types of information: something you know, like a password, and something you have, like a device through which you receive one-time login codes.
@@ -62,14 +63,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Image Credit: Solen Feyissa/[Unsplash](https://unsplash.com/photos/KWZa42a1kds)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -78,4 +76,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/updated-comparing-the-best-updated-review-of-gopro-and-yi-action-cams/"><u>[Updated] Comparing the Best Updated Review of GoPro and Yi Action Cams</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-hurry-up-get-professional-valorant-thumbnail-skills-now/"><u>2024 Approved Hurry Up, Get Professional Valorant Thumbnail Skills Now</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleashing-voice-commands-with-top-mac-translation-programs/"><u>2024 Approved Unleashing Voice Commands with Top Mac Translation Programs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-illusions-simulating-time-jumps-and-space-hopping-for-2024/"><u>Crafting Illusions Simulating Time Jumps & Space Hopping for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-receiving-fb-message-banners/"><u>How to Stop Receiving FB Message Banners</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-conversations-leveraging-the-latest-soundemojis/"><u>Innovative Conversations: Leveraging the Latest Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-telegrams-ascension-during-facebook-breakdown/"><u>Investigating Telegram’s Ascension During Facebook Breakdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-separation-in-on-this-day-stories/"><u>Maintaining Separation in On This Day Stories</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-flight-simulator-x-gold-edition-analysis-remaining-a-top-tier-choice-in-aeronautics-gaming/"><u>Microsoft Flight Simulator X Gold Edition Analysis: Remaining a Top-Tier Choice in Aeronautics Gaming</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/professional-movie-making-on-youtube-and-similar-software/"><u>Professional Movie Making on YouTube & Similar Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-id-shifting-for-distinct-social-media-profiles-fb/"><u>Rapid ID Shifting for Distinct Social Media Profiles, FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-detach-spotify-from-your-facebook-profile/"><u>Securely Detach Spotify From Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-freedom-from-fomo-top-10-reasons-why-you-shouldnt-be-tied-to-facebook/"><u>The Freedom From FOMO: Top 10 Reasons Why You Shouldn’t Be Tied to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-journey-social-medias-rising-stars/"><u>The Journey: Social Media's Rising Stars</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-6-tips-to-correct-autocorrect-errors-and-improve-your-iphones-typing-accuracy/"><u>Top 6 Tips to Correct AutoCorrect Errors & Improve Your iPhone's Typing Accuracy</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-and-enhance-your-windows-7-connectivity-with-new-wi-fi-drivers/"><u>Update & Enhance Your Windows 7 Connectivity with New Wi-Fi Drivers</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-macbook-users-learn-how-to-download-and-use-videoleap/"><u>Updated 2024 Approved MacBook Users Learn How to Download and Use Videoleap</u></a></li>
+</ul></div>
 

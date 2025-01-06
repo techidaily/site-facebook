@@ -1,7 +1,7 @@
 ---
 title: Staying Safe From Social Engineering Snares
-date: 2024-08-08T11:29:50.354Z
-updated: 2024-08-09T11:29:50.354Z
+date: 2024-12-30T00:09:24.299Z
+updated: 2025-01-06T03:46:53.511Z
 tags:
   - facebook
 categories:
@@ -19,24 +19,13 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  Owing to widespread awareness, common internet scams like the infamous "Nigerian prince" fraud are now easily discerned by potential victims. Unfortunately, scammers have evolved and now employ more sophisticated tactics to defraud their victims. And social media plays a key part in that. Here's what you need to look out for, and how to spot online scams.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Instragam Celebrity Scam
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
 
@@ -63,11 +52,12 @@ There are some simple things you can do to avoid this kind of scam:
 * Always do thorough research of a celebrity's management team before committing to any form of payment.
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Telegram Cryptocurrency Scam
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
@@ -93,14 +83,16 @@ There are some simple things you can do to avoid this kind of scam:
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Dating Scams
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
@@ -127,8 +119,9 @@ Of course, that's all fake.
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -137,14 +130,11 @@ Of course, that's all fake.
 
  According to the US's[Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +143,26 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-expert-insights-selecting-superior-4k-camera-stands/"><u>[New] Expert Insights Selecting Superior 4K Camera Stands</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-exclusive-insights-top-30-hidden-windows-11-tips-uncovered-for-2024/"><u>[Updated] Exclusive Insights Top 30 Hidden Windows 11 Tips Uncovered for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-comprehensive-insights-streamlined-iphone-podcast-downloads/"><u>[Updated] In 2024, Comprehensive Insights Streamlined iPhone Podcast Downloads</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-depth-giroptic-360-angle-reviews-for-2024/"><u>[Updated] In-Depth Giroptic 360-Angle Reviews for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-master-video-cutting-and-splicing-with-vimeo-for-free-for-2024/"><u>[Updated] Master Video Cutting & Splicing with Vimeo, for Free for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-leadership-of-sheryl-sandberg-at-social-media-hub/"><u>Examining the Leadership of Sheryl Sandberg at Social Media Hub</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-realme-gt-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unlist-your-business-on-facebook-effortlessly/"><u>How to Unlist Your Business on Facebook Effortlessly</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Xiaomi Redmi Note 13 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-dive-into-social-media-streams-watching-facebook-live-on-roku/"><u>In 2024, Dive Into Social Media Streams Watching Facebook Live on Roku</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-honor-play-8t-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Honor Play 8T Phone</u></a></li>
+<li><a href="https://app-tips.techidaily.com/kubernetes-enhanced-with-codenotarys-new-software-bill-of-materials-service-the-latest-update-featured-by-zdnet/"><u>Kubernetes Enhanced with Codenotary’s New Software Bill of Materials Service - The Latest Update Featured by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-in-the-social-void-regain-your-facebook-profile/"><u>Lost in the Social Void: Regain Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/modify-facebook-access-credentials-securely/"><u>Modify Facebook Access Credentials Securely</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-covert-language-in-messenger-texts/"><u>Navigating Covert Language in Messenger Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/risks-of-deleting-faceprint-information-on-facebook-platform/"><u>Risks of Deleting Faceprint Information on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-impact-on-social-media-giants/"><u>Sheryl Sandberg’s Impact on Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundwaves-and-sociability-facebooks-upcoming-collaboration-with-spotify/"><u>Soundwaves and Sociability: Facebook’s Upcoming Collaboration with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-limited-access-fb-accounts/"><u>Unlocking Limited-Access FB Accounts</u></a></li>
+</ul></div>
 

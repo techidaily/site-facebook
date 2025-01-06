@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2024-12-24T17:09:32.011Z
-updated: 2024-12-27T16:55:37.813Z
+date: 2024-12-31T06:15:59.786Z
+updated: 2025-01-06T07:52:08.323Z
 tags:
   - facebook
 categories:
@@ -44,13 +44,17 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
-![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
+
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -69,10 +73,6 @@ Here’s how you add alt text to images while uploading them:
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Here’s how to add alt text to your photos on Facebook's web browser.
 
 1. Log in to[Facebook](https://www.facebook.com) on your browser.
@@ -85,20 +85,20 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -115,7 +115,7 @@ Close
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make Your Facebook Photos More Accessible
@@ -139,24 +139,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-seamless-integration-making-your-youtube-videos-available-on-facebook/"><u>[New] 2024 Approved Seamless Integration Making Your YouTube Videos Available on Facebook</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/iving-into-viral-video-dialogues/"><u>[New] Diving Into Viral Video Dialogues</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-detailed-breakdown-complete-test-of-gecata-tracker/"><u>[Updated] 2024 Approved Detailed Breakdown Complete Test of Gecata Tracker</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-affordable-high-performance-gaming-keyboards-listed-for-2024/"><u>[Updated] Affordable High-Performance Gaming Keyboards Listed for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2023-linking-tweets-to-facebook-videos-effortlessly-for-2024/"><u>2023 Linking Tweets to Facebook Videos Effortlessly for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-directly-connecting-tvs-to-fb-video-streaming/"><u>2024 Approved Directly Connecting TVs to Fb Video Streaming</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-online-presence-facebook-vs-twitter-identities/"><u>Exploring Online Presence: Facebook vs Twitter Identities</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-app-tutorial-for-seamless-spotify-listening/"><u>Facebook App Tutorial for Seamless Spotify Listening</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-navigate-the-complex-world-of-fb-friendship-changes/"><u>How To Navigate The Complex World of FB Friendship Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/improving-non-responsive-facebook-alerts-and-updates/"><u>Improving Non-Responsive Facebook Alerts & Updates</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/in-depth-solutions-eliminating-the-pain-of-code-28-errors-on-pc/"><u>In-Depth Solutions: Eliminating the Pain of Code 28 Errors on PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723203811582-regain-bluetooth-connectivity-in-windows-10-fast-and-straightforward-methods/"><u>Regain Bluetooth Connectivity in Windows 10: Fast & Straightforward Methods</u></a></li>
-<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-infinix-note-30i-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Infinix Note 30i on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/resilience-in-rebellion-facebooks-sanctioned-sect-of-deniers/"><u>Resilience in Rebellion: Facebook’s Sanctioned Sect of Deniers</u></a></li>
-<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solve-your-iphone-safari-picture-problems-effective-strategies-and-techniques/"><u>Solve Your iPhone Safari Picture Problems: Effective Strategies & Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-mastering-facebook-livestreams-four-easy-steps/"><u>[New] 2024 Approved Mastering Facebook Livestreams Four Easy Steps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-optimize-content-delivery-on-instagram-with-these-top-8-tools/"><u>[Updated] 2024 Approved Optimize Content Delivery on Instagram with These Top 8 Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-free-photo-enhancer-online-and-app-for-mobile-phone/"><u>[Updated] Best Free Photo Enhancer Online and App for Mobile Phone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-beyond-brand-promotion-real-insights-into-instagram-reels/"><u>2024 Approved Beyond Brand Promotion Real Insights Into Instagram Reels</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/constructing-compelling-trailer-crafts/"><u>Constructing Compelling Trailer Crafts</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-survival-scenarios-post-fb-demise/"><u>Data Survival Scenarios Post-FB Demise</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonize-conversations-with-facebooks-new-sounds-for-messaging/"><u>Harmonize Conversations with Facebook's New Sounds for Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-link-your-social-accounts-on-xbox/"><u>How to Link Your Social Accounts on Xbox</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-20-proplus-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 20 Pro+ Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-12-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi 12 5G Phone FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/natures-gift-to-facebook-entire-operations-on-renewables/"><u>Nature's Gift to Facebook: Entire Operations on Renewables</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
+<li><a href="https://games-able.techidaily.com/prime-mouse-comforts-for-playing/"><u>Prime Mouse Comforts for Playing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pushing-boundaries-spotlight-on-top-6-digital-innovators-for-2024/"><u>Pushing Boundaries Spotlight on Top 6 Digital Innovators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-social-media-exposure-the-art-of-facebooks-privacy-lists/"><u>Sculpting Social Media Exposure: The Art of Facebook's Privacy Lists</u></a></li>
+<li><a href="https://driver-error.techidaily.com/sound-error-eliminated-on-hd-bus/"><u>Sound Error Eliminated on HD Bus</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-planner-softwares-a-guide-to-scheduling-success/"><u>Top Planner Softwares: A Guide to Scheduling Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweaking-childrens-data-a-parents-guide-to-messenger-kids/"><u>Tweaking Children's Data: A Parent's Guide to Messenger Kids</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unveiling Enhanced Security Techniques with 2FA on Major Mail Apps
-date: 2024-08-08T11:27:33.731Z
-updated: 2024-08-09T11:27:33.731Z
+date: 2024-12-30T20:50:42.858Z
+updated: 2025-01-06T03:25:18.054Z
 tags:
   - facebook
 categories:
@@ -27,26 +27,31 @@ thumbnail: https://thmb.techidaily.com/1b4d426689bd18514a96cb95968cc5a755b1ea7a2
 
  Check out our article on the[pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### Google Prompt
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your[Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
@@ -66,14 +71,8 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Microsoft Outlook
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
@@ -86,6 +85,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **Note:** There are[other excellent 2FA authentication apps](https://www.makeuseof.com/tag/5-best-alternatives-google-authenticator/) out there.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Apple and iCloud
 
  Apple's 2FA is very Apple-centric. In that, you won't be using the Google Authenticator app or any other app for that matter. That said, the Apple 2FA process works very well and only takes a moment or two to set up.
@@ -93,8 +96,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf[guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up 2FA on Facebook
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
@@ -105,15 +109,13 @@ Locking your Facebook account is as important as your email address.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires[a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Twitter
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
@@ -121,14 +123,8 @@ Locking your Facebook account is as important as your email address.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
 
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
@@ -147,14 +143,11 @@ Locking your Facebook account is as important as your email address.
 
  It takes a minute or two to set up 2FA security on all of your accounts. Of course, the accounts on this list aren't exhaustive. But you now understand how the 2FA process works, why 2FA is essential, and where you might find the settings in your other online accounts.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +156,17 @@ Locking your Facebook account is as important as your email address.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/updated-high-definition-war-av1-vs-vp9-codecs-comparison/"><u>[Updated] High-Definition War Av1 vs VP9 Codecs Comparison</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ngs-in-the-virtual-playground-for-2024/"><u>Earnings in the Virtual Playground for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-privacy-settings-for-a-sealed-fb-world/"><u>Enhance Privacy Settings for a Sealed FB World</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-reborn-or-reimagined-through-facebook/"><u>Friendship Reborn or Reimagined Through Facebook?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-honor-100-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Honor 100? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-friendly-suggestions-facebooks-upcoming-marketplace-tool/"><u>Leveraging Friendly Suggestions: Facebook's Upcoming Marketplace Tool</u></a></li>
+<li><a href="https://games-able.techidaily.com/retro-gaming-on-the-move-with-android-and-dreamcatcher-classics/"><u>Retro Gaming on the Move with Android and Dreamcatcher Classics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ripristina-i-tuoi-dischi-dvd-al-volo-in-qualita-mp4-winx-dvd-ripper-platinum-ufficiale-e-facile-da-usare/"><u>Ripristina I Tuoi Dischi DVD Al Volo in Qualità MP4: WinX DVD Ripper Platinum - Ufficiale E Facile Da Usare</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-platforms-instagrams-synergy-with-facebook/"><u>Uniting Platforms: Instagram's Synergy with Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/value-meets-versatility-our-comprehensive-review-of-the-zte-blade-a3y-budget-phone/"><u>Value Meets Versatility: Our Comprehensive Review of the ZTE Blade A3Y Budget Phone</u></a></li>
+</ul></div>
 

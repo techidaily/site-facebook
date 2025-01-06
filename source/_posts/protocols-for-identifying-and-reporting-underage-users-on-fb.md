@@ -1,7 +1,7 @@
 ---
 title: Protocols for Identifying and Reporting Underage Users on Fb
-date: 2024-08-08T11:26:57.757Z
-updated: 2024-08-09T11:26:57.757Z
+date: 2024-12-30T16:38:12.221Z
+updated: 2025-01-05T21:38:08.875Z
 tags:
   - facebook
 categories:
@@ -32,9 +32,11 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 4. Open the[Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
 6. Tap**Send** to submit the report for review.
 
@@ -51,11 +53,13 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 2. Enter the child’s first and last name.
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6. From the following drop-down menu, choose the year your child was born.
 7. Select the attested documentation under the Notarized Statement tab.
 8. Add your first and last name, email address, and country of residence.
@@ -68,14 +72,16 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Facebook Can Be Addictive
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
@@ -87,9 +93,6 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
@@ -97,8 +100,9 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### It Might Expose Your Child to Inappropriate Content
 
  The Facebook Community Guidelines are pretty strict—you can even[get banned on Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) for uploading something explicit and abusive. However, some Facebook users still find ways to upload inappropriate content.
@@ -107,23 +111,17 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 ###
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Say No to Underage Facebook Accounts
 
  Children 13 and over are allowed to legally use Facebook under some restrictions. Being a responsible adult, you can file and report the accounts that you know are too young to be on Facebook. Facebook will request verification from the reported account and check whether it needs to be permanently deleted or not.
 
  Requesting your child's Facebook data is another option, but verifying that you are their parent/guardian is mandatory.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +130,22 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-surging-up-the-search-results-with-effective-podcast-seo/"><u>[Updated] 2024 Approved Surging Up the Search Results with Effective Podcast SEO</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-beyond-inshot-essential-laptop-editing-tools-for-2024/"><u>[Updated] Beyond Inshot Essential Laptop Editing Tools for 2024</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/1728465148105-windows-11/"><u>三种方式将系统更新为Windows 11并保存文件 -详解</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-motorola-moto-g13-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Motorola Moto G13 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reclaim-original-vibrance-in-photographs-with-these-top-apps/"><u>In 2024, Reclaim Original Vibrance in Photographs with These Top Apps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-toxic-trend-unnecessary-followers-tarnish-reputation/"><u>In 2024, Toxic Trend Unnecessary Followers Tarnish Reputation</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-speed-why-meta-is-building-a-lightning-fast-ai-giant/"><u>Innovating Speed: Why Meta Is Building a Lightning-Fast AI Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-steps-for-swift-account-reactivation-on-fb/"><u>Proven Steps for Swift Account Reactivation on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-pre-deletion-must-dos-before-facing-fb/"><u>Secure Your Digital Footprint: Pre-Deletion Must-Dos Before Facing FB</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-essential-manual-for-personalizing-android-ringtones-and-sounds-for-2024/"><u>The Essential Manual for Personalizing Android Ringtones and Sounds for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-illusions-the-factual-side-of-facebook-claims/"><u>Unveiling Internet Illusions: The Factual Side of Facebook Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-and-conquer-join-meta-in-the-states/"><u>Verify and Conquer: Join Meta in the States</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-multi-platform-support-confirmed-by-zuckerberg/"><u>WhatsApp Multi-Platform Support Confirmed by Zuckerberg</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-facebook-whatsapp-and-instagram-go-down/"><u>Why Did Facebook, WhatsApp, and Instagram Go Down?</u></a></li>
+</ul></div>
 

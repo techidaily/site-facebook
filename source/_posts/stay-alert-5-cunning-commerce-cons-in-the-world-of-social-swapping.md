@@ -1,7 +1,7 @@
 ---
 title: "Stay Alert: 5 Cunning Commerce Cons in the World of Social Swapping"
-date: 2024-12-15T19:11:39.375Z
-updated: 2024-12-21T17:57:12.875Z
+date: 2025-01-04T16:05:43.189Z
+updated: 2025-01-05T19:05:16.184Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Founded in 2016, Facebook Marketplace is a service built into the popular social media site. It allows Facebook users to post (or purchase) virtually any item for sale. Users may post everything from clothes and furniture to pet supplies and electronics. There is even a section for people to[post “free items” they want to give away, much like Craigslist](http://www.makeuseof.com/apps-like-craigslist/) .
 
  Read More:[What Is Facebook Marketplace?](https://www.makeuseof.com/what-is-facebook-marketplace/)
@@ -37,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  In many cases, parties meet up in person to check out the products and pay using cash or by using apps like PayPal. You can arrange for someone to ship the item, so you don’t need to meet them, which is definitely advisable when possible.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Facebook Marketplace Safe to Shop At?
@@ -47,16 +51,12 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  Luckily, these risks are often easy to avoid. By learning how to identify Facebook Marketplace scams and practice online shipping and shopping safety, Facebook Marketplace is a secure resource for your second-hand shopping needs.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Marketplace Scams to Watch Out For
 
 ![A person using a phone.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/tinder-scams-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  There are many Facebook Marketplace scams you may encounter. Although they vary a bit, the gist of that they all share is that users don’t deliver on the promises they advertise, or would-be buyers have other intentions in mind. These incidences may refer to times when the product is not as stated, or they plan on robbing you. Some common scams to look out for include:
 
@@ -66,10 +66,6 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
  Although broken screens or missing buttons may jump out at a potential buyer, problems with software or slowly malfunctioning hardware may not be as apparent. Sometimes, you may not realize that an item is about to break until it’s too late to get in touch with the seller again. It’s easy for a seller to post an unwanted product and simply disappear after someone buys it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Bootleg Items
 
  Another common scam people partake in is sometimes selling bootleg or knockoff items. These Facebook Marketplace scams are common with luxury label clothes and accessories.
@@ -77,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  If you have no experience in the matter, it’s easy to mistake a knockoff expensive Coach bag or Gucci belt for the real deal. The same goes for “real” gold or diamonds. Sometimes, the seller doesn’t even know they aren't real.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Stolen Goods
@@ -85,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
  Even if the item fits the description, there may be sketchy situations surrounding how someone obtained the item. Selling stolen products online is a great way for thieves to get rid of items and get a quick buck.
 
  Just because you aren’t the one that stole it doesn’t mean you won’t end up with problems if someone identifies your item as stolen. Always ask for receipts or any other proof of authenticity if you have concerns in this area.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Robbery
 
@@ -104,10 +104,6 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
  Related:[Common eBay Scams and What You Can Do About Them](https://www.makeuseof.com/tag/5-ebay-scams-to-be-aware-of/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Avoid Facebook Marketplace Scams
 
 ![Photo of someone using Facebook on their laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/pexels-luca-sammarco-6162932-(1).jpg)
@@ -117,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 ### Inspect the Product
 
  If you can, meet in person and check out the product beforehand to verify its functionality and quality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Meet in Public Place
 
@@ -134,13 +134,13 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
  Using secure payment methods (like PayPal) is a great way to keep your money safe if the transaction goes wrong.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Don’t Ship Before Payment
 
  PayPal warns you never to ship before payment. They can’t guarantee your money back if you send the item first.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Keep Evidence
 
@@ -165,20 +165,24 @@ thumbnail: https://thmb.techidaily.com/f247ef7a94b421ec0fcafea579ee074c3050225ad
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-total-motion-audit-2023/"><u>[New] Total Motion Audit 2023</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-convenient-youtube-viewing-activate-picture-in-picture-on-iphone/"><u>[Updated] Convenient YouTube Viewing Activate Picture-in-Picture on iPhone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-prime-10-image-repositories-without-costs/"><u>[Updated] Prime 10 Image Repositories Without Costs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-vivo-v30-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Vivo V30 to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/oggmp4-movavi/"><u>直接在线无限制将OGG转换为MP4 - Movavi 免费射频器</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-survival-scenarios-post-fb-demise/"><u>Data Survival Scenarios Post-FB Demise</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/diagnose-and-fix-kernel32dll-problems-tips-and-tricks-for-smooth-windows-operation/"><u>Diagnose and Fix Kernel32.dll Problems: Tips & Tricks for Smooth Windows Operation</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-link-your-social-accounts-on-xbox/"><u>How to Link Your Social Accounts on Xbox</u></a></li>
-<li><a href="https://facebook.techidaily.com/illusion-of-empowerment-interfaces-and-your-choices/"><u>Illusion of Empowerment: Interfaces and Your Choices</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-sweep-up-viewers-the-science-behind-successful-youtube-shorts/"><u>In 2024, Sweep Up Viewers The Science Behind Successful YouTube Shorts</u></a></li>
-<li><a href="https://facebook.techidaily.com/natures-gift-to-facebook-entire-operations-on-renewables/"><u>Nature's Gift to Facebook: Entire Operations on Renewables</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-world-of-social-engagement-using-ripl/"><u>Navigating the World of Social Engagement Using Ripl</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/the-ultimate-how-to-syncing-audio-with-newly-updated-avi-content-for-2024/"><u>The Ultimate How-To Syncing Audio with Newly Updated AVI Content for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/triple-blackout-in-social-media-world/"><u>Triple Blackout in Social Media World</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-digital-media-mapper/"><u>[New] In 2024, Digital Media Mapper</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-melodies-for-memories-music-tips-for-reels-on-instagram/"><u>[New] Melodies for Memories Music Tips for Reels on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-techniques-for-text-overlays-in-igtv-content/"><u>[Updated] In 2024, Techniques for Text Overlays in IGTV Content</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-tactics-in-producing-convincing-customer-testimonial-videos/"><u>[Updated] In 2024, Top Tactics in Producing Convincing Customer Testimonial Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-strategic-mastery-pinpointing-top-7-total-war-battles/"><u>[Updated] Strategic Mastery Pinpointing Top 7 Total War Battles</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-video-channels-face-off-the-monetization-tale-of-two-titles/"><u>2024 Approved Video Channels Face-Off The Monetization Tale of Two Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-on-social-networking-sites-fb/"><u>Ensuring Privacy on Social Networking Sites (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-may-be-forced-to-sell-giphy-heres-why/"><u>Facebook May Be Forced to Sell Giphy: Here's Why</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ipad-video-editing-showdown-lumafusion-vs-davinci-resolve-choosing-the-right-app-for-your-needs/"><u>IPad Video Editing Showdown: LumaFusion Vs DaVinci Resolve - Choosing the Right App for Your Needs</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-direct-messaging-services-exclusively/"><u>Navigating Direct Messaging Services Exclusively</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-language-preferences-in-facebook-advertising/"><u>Navigating Language Preferences in Facebook Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-netiquette-social-media-boundaries-you-must-respect/"><u>Navigating Netiquette: Social Media Boundaries You Must Respect</u></a></li>
+<li><a href="https://facebook.techidaily.com/parental-guide-to-updating-kids-information-in-messengers/"><u>Parental Guide to Updating Kid's Information in Messengers</u></a></li>
+<li><a href="https://win-forum.techidaily.com/step-by-step-guide-mastering-file-deletion-using-the-windows-11-command-prompt/"><u>Step-by-Step Guide: Mastering File Deletion Using the Windows 11 Command Prompt</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-explorers-toolkit-for-fb-social-behavior-tracking/"><u>The Ultimate Explorer's Toolkit for FB Social Behavior Tracking</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-pdf-editing-skills-for-2024/"><u>Ultimate PDF Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-essential-mobile-settings-in-fb-app/"><u>Unlock Potential: Essential Mobile Settings in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebooks-spying-off-facebook-tool-usage-guide/"><u>Unravel Facebook's Spying - Off-Facebook Tool Usage Guide</u></a></li>
 </ul></div>
 

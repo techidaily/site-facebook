@@ -1,7 +1,7 @@
 ---
 title: "Limiting Personal Inbox: A Guide to Minimizing Contacts"
-date: 2024-08-08T11:27:25.003Z
-updated: 2024-08-09T11:27:25.003Z
+date: 2025-01-01T02:19:30.076Z
+updated: 2025-01-05T21:32:10.830Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/ccd36b11fe822cf8edc40f8a572a80b6d8bbf0e62
 
  If you like to remain in touch with only your loved ones and known contacts, consider limiting other people contacting you on Facebook. We discuss the essential tips that can help you stay secure in the long run in this article.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Limiting People Contacting You on Facebook
 
  Limiting people on Facebook is super easy. Here are some tips for prohibiting people from contacting you on Facebook.
@@ -47,8 +44,9 @@ Close
  If you have a business and are trying to get customers through Facebook, we recommend[creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Limit People Who Can Search You
 
 ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
@@ -77,37 +75,37 @@ Close
 
  This feature updates your conversations whenever a contact changes their device, reinstalls Messenger, or resets their phone.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Block Messages or Restrict Someone
 
  Is someone irritating to the extent that you don't want them to message you anymore? If so, consider blocking their messages. This feature enables users to only block their messages on Messenger rather than the person itself.
 
  Simply open the chat of the person and tap**Block** . Choose**Block Messages and Calls** to stop receiving messages from that specific account. You can unblock them by going through the same steps.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Restrict Block or Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Restrict-Block-or-Report.jpg)
 
  Blocking someone’s messages means they will still be added to your Facebook account, and you can communicate with them through comments, but they won’t be able to text you on Messenger.
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Unfriend or Block a Facebook Account
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
 ![Block user on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Block-user-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -124,8 +122,9 @@ Close
  You can also[report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make Facebook a Safe Space for Yourself
 
  Facebook is one of the most widely used applications of all time. Some people like to have some personal space and avoid unwanted messages.
@@ -134,14 +133,11 @@ Close
 
  Multiple safety options make it possible to create a safe space for yourself and your contacts. We recommend reporting any harmful or abusive activity that violates your safety and Facebook policies before blocking that contact.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +146,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-tiktoks-top-10-game-streaming-stars/"><u>[New] 2024 Approved TikTok's Top 10 Game Streaming Stars</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-affordable-pc-screen-recorder-comparisons/"><u>[New] Affordable PC Screen Recorder Comparisons</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-discover-the-joy-of-real-time-broadcasting-with-fb-and-roku/"><u>[New] In 2024, Discover the Joy of Real-Time Broadcasting with FB & Roku</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-frame-by-frame-findings-insightful-recorder-analysis-for-2024/"><u>[Updated] Frame by Frame Findings Insightful Recorder Analysis for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-deep-dive-into-the-top-9-youtube-downloader-apps-for-android/"><u>[Updated] In 2024, A Deep Dive Into the Top 9 YouTube Downloader Apps for Android</u></a></li>
+<li><a href="https://win11.techidaily.com/decoding-network-insights-with-windows-11s-netstat-utility/"><u>Decoding Network Insights with Windows 11'S Netstat Utility</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/envisioning-an-ai-enhanced-future-of-emotional-wellness-care/"><u>Envisioning an AI-Enhanced Future of Emotional Wellness Care</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-top-10-subtitles-tools-srt-file-transformers-for-2024/"><u>Free Top 10 Subtitles Tools SRT File Transformers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealed-the-business-of-streaming-tunes-and-selling-them/"><u>Revealed: The Business of Streaming Tunes and Selling Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-evolution-of-metas-user-confidentiality/"><u>Understanding the Evolution of Meta's User Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-voices-mentioning-full-group-in-social-media/"><u>Uniting Voices: Mentioning Full Group in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+<li><a href="https://win-top.techidaily.com/usb-3/"><u>USBメモリからデータを完全消去・無回復化する手段 - 最新3方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-needed-is-securityfacebookmailcom-a-safe-fb-email/"><u>Validation Needed: Is @security@facebookmail.com a Safe FB Email?</u></a></li>
+</ul></div>
 

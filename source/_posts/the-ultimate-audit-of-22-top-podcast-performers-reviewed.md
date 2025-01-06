@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Audit of '22 - Top Podcast Performers Reviewed
-date: 2024-12-24T18:36:33.782Z
-updated: 2024-12-27T17:31:44.475Z
+date: 2025-01-03T00:13:48.290Z
+updated: 2025-01-06T07:19:40.427Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 Here's everything we discuss in this week's 2022 special:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### High points of 2022
@@ -43,7 +43,7 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Low points of 2022
@@ -56,7 +56,7 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best devices of 2022
@@ -66,7 +66,7 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best games of 2022
@@ -94,19 +94,20 @@ Here's everything we discuss in this week's 2022 special:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-visual-stories-select-the-best-ig-video-editors/"><u>[Updated] In 2024, Crafting Visual Stories Select the Best IG Video Editors</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-simplified-guide-turning-videos-upside-down-with-vlc/"><u>2024 Approved Simplified Guide Turning Videos Upside Down with VLC</u></a></li>
-<li><a href="https://article-posts.techidaily.com/crafting-podcast-descriptions-that-stick-strategies-and-samples-for-2024/"><u>Crafting Podcast Descriptions That Stick Strategies and Samples for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210187012-9781736348116-healing-made-simple/"><u>Healing Made Simple | Free Book</u></a></li>
-<li><a href="https://fox-that.techidaily.com/icloud-photo-sync-issues-heres-how-you-can-fix-them-in-7-ways/"><u>ICloud Photo Sync Issues? Here's How You Can Fix Them in 7 Ways!</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-and-whatsapp-unite-for-stronger-authentication/"><u>Instagram and WhatsApp Unite for Stronger Authentication</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
-<li><a href="https://facebook.techidaily.com/mending-the-social-web-after-an-exclusion/"><u>Mending the Social Web After an Exclusion</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/monetization-showdown-dailymotion-versus-youtube-for-2024/"><u>Monetization Showdown Dailymotion Versus YouTube for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/rebuilding-esxi-hosts-without-using-vcenter-two-effective-strategies/"><u>Rebuilding ESXi Hosts Without Using vCenter: Two Effective Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/stabilizing-your-digital-footprint-after-erratic-snapchat-sign-offs/"><u>Stabilizing Your Digital Footprint After Erratic Snapchat Sign-Offs</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-essential-facebook-mobile-adjustments/"><u>Top 10 Essential Facebook Mobile Adjustments</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-secrets-to-establishing-work-relationships-through-fb/"><u>Unlock Potential: Secrets to Establishing Work Relationships Through FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-am-i-viewed-by-these-specific-fb-ads/"><u>Why Am I Viewed By These Specific FB Ads?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-best-free-webcam-video-capture-software-for-2024/"><u>[New] Best Free Webcam Video Capture Software for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-precision-recording-perfecting-video-captures-on-your-android-phone/"><u>[New] In 2024, Precision Recording Perfecting Video Captures on Your Android Phone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-top-10-action-cameras-for-surfing-2023-update/"><u>[New] Top 10 Action Cameras for Surfing -2023 Update</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-fundamentals-of-crafting-high-quality-videos-for-instagram-audiences/"><u>[Updated] In 2024, The Fundamentals of Crafting High-Quality Videos for Instagram Audiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision.</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-a-facebook-error-expose-our-conversational-numbers-unintentionally/"><u>Did a Facebook Error Expose Our Conversational Numbers Unintentionally?</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-your-phone-number-been-leaked-through-facebook/"><u>Has Your Phone Number Been Leaked Through Facebook?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-vivo-y78plus-t1-edition-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Vivo Y78+ (T1) Edition to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210329765-master-the-art-of-keeping-your-device-alert-no-more-interruptions/"><u>Master the Art of Keeping Your Device Alert: No More Interruptions!</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-discover-the-power-of-video-editing-microsofts-guide-for-windows-users/"><u>New In 2024, Discover the Power of Video Editing Microsofts Guide for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-unlock-the-potential-of-hashtags-for-fb-success/"><u>Social Media Mastery: Unlock the Potential of Hashtags for FB Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-after-deactivating-your-fb-page/"><u>The Quiet After Deactivating Your FB Page</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/verifying-scanner-connection-on-a-windows-pc-a-step-by-step-guide-by-yl-software/"><u>Verifying Scanner Connection on a Windows PC: A Step-by-Step Guide - By YL Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In Plain Sight: Facebook's Upcoming Wearable Device"
-date: 2024-12-20T16:36:51.860Z
-updated: 2024-12-27T16:23:55.275Z
+date: 2025-01-04T18:31:36.706Z
+updated: 2025-01-05T17:59:49.976Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### A Dual-Camera System
@@ -48,21 +48,17 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### LTE Connectivity
 
  Facebook wants its watch to work without the need of pairing it with any smartphone. To that end, Facebook is partnering up with US-based wireless service providers to provide LTE connectivity to its new smartwatch. That partnership means that you’d be able to buy the watch from a wireless carrier's store.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fitness Tracking
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
@@ -78,19 +74,23 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
  These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the[AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Competition and Concerns
 
 ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
 
  One of the key reasons Apple watches have done so well is their privacy protection policies. Wearables collect and store your personal and health information, and this is where privacy greatly matters. Considering Facebook's record of user data handling, it’s interesting to see if Facebook can convince people to buy its new smartwatch.
 
  Related:[Should You Trust Facebook With Oculus Quest 2 Privacy?](https://www.makeuseof.com/should-you-trust-facebook-with-oculus-quest-2-privacy/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Is Getting More Into the Hardware Race
 
@@ -113,21 +113,18 @@ thumbnail: https://thmb.techidaily.com/f4b94a6052a83b6c87620891bae2ef1d10a06ae6e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/avigating-through-the-ultimate-guide-to-top-9-free-logos/"><u>[New] Navigating Through The Ultimate Guide to Top 9 Free Logos</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/movavi-flac-to-aac/"><u>「フリーサービスで音質を最大化: Movavi FLAC to AAC オンデマンド変換ガイド」</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-m6-pro-5g-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of M6 Pro 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/empowering-users-transforming-the-way-you-handle-privacy-on-facebook/"><u>Empowering Users: Transforming the Way You Handle Privacy on Facebook</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-pixel-power-redesigned-radeon/"><u>In 2024, Pixel Power Redesigned Radeon</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209973634-9781503612129-intimate-alien/"><u>Intimate Alien | Free Book</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/master-your-minutes-top-4-chatgpt-strategies-for-time-optimization/"><u>Master Your Minutes: Top 4 ChatGPT Strategies for Time Optimization</u></a></li>
-<li><a href="https://win-forum.techidaily.com/movavi-overvejelsesretor-etsningshistorie-og-fortolkningskompetence/"><u>Movavi Overvejelsesretor: Etsningshistorie Og Fortolkningskompetence</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-a-non-responsive-google-chrome-immediate-reload-options/"><u>Resolving a Non-Responsive Google Chrome: Immediate Reload Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamping-digital-persona-changing-your-name-in-the-virtual-world/"><u>Revamping Digital Persona: Changing Your Name in the Virtual World</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-evolution-from-twitter-to-facebooks-informed-posts/"><u>Social Media Evolution: From Twitter to Facebook's Informed Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-uninterrupted-how-to-turn-off-facebook-responses/"><u>Stay Uninterrupted: How to Turn Off Facebook Responses</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-internet-interrupted-6-hour-tech-takedown/"><u>The Internet Interrupted: 6-Hour Tech Takedown</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-and-vr-at-a-crossroads-six-key-differences-demystified/"><u>The Metaverse and VR at a Crossroads: Six Key Differences Demystified</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-reality-report-exposing-10-common-facebook-misconceptions/"><u>The Reality Report: Exposing 10 Common Facebook Misconceptions</u></a></li>
-<li><a href="https://apple-account.techidaily.com/turning-off-two-factor-authentication-on-apple-iphone-12-pro-5-tips-you-must-know-by-drfone-ios/"><u>Turning Off Two Factor Authentication On Apple iPhone 12 Pro? 5 Tips You Must Know</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-architects-crafting-fantasy-realms-for-marvel/"><u>[New] Architects Crafting Fantasy Realms for Marvel</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-highlight-strategy-guide-10-must-try-tips-for-your-business/"><u>[Updated] 2024 Approved Highlight Strategy Guide 10 Must-Try Tips for Your Business</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-chill-and-thrills-highlighting-olympic-snowboard-cross-winners/"><u>2024 Approved Chill & Thrills Highlighting Olympic Snowboard Cross Winners</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-strategies-to-fix-burn-in-issues-on-your-display-panels/"><u>Comprehensive Strategies to Fix Burn-In Issues on Your Display Panels</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-differences-auto-gpt-versus-chatgpt/"><u>Exploring the Differences: Auto-GPT Versus ChatGPT</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-the-ce-34878-0-eject-tray-issue-on-your-ps4-console/"><u>How to Fix the CE-34878-0 Eject Tray Issue on Your PS4 Console</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-beauty-bliss-essential-tutorials-for-ultimate-style/"><u>In 2024, Beauty Bliss Essential Tutorials for Ultimate Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-lands-market-for-professional-advancement/"><u>Navigating the Digital Lands Market for Professional Advancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/override-algorithmic-decisions-for-a-focused-experience/"><u>Override Algorithmic Decisions for a Focused Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-routes-through-distinct-facebook-user-sessions/"><u>Rapid Routes Through Distinct Facebook User Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-programming-facebooks-new-venture-with-rust/"><u>Revolutionizing Programming: Facebook's New Venture with Rust</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-guide-to-updating-hp-z440-system-driver-packages/"><u>Step-by-Step Guide to Updating HP Z440 System Driver Packages</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrade-to-gold-tier-buy-your-way-in-meta/"><u>Upgrade to Gold Tier: Buy Your Way in Meta</u></a></li>
 </ul></div>
 

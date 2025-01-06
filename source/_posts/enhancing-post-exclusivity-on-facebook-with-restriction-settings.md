@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-12-26T16:25:50.479Z
-updated: 2024-12-27T16:33:15.398Z
+date: 2024-12-30T06:58:35.880Z
+updated: 2025-01-05T23:33:08.556Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Restricted List on Facebook?
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -57,13 +57,13 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -87,18 +87,24 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-cash-flow-of-creative-content-youtubers-earnings-per-sponsored-video/"><u>[New] 2024 Approved The Cash Flow of Creative Content Youtuber's Earnings per Sponsored Video?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-pixel-perfection-combining-computer-photos/"><u>[New] Pixel Perfection Combining Computer Photos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-pocket-guide-retaining-twitter-media-on-your-cellphone-for-2024/"><u>[New] Pocket Guide Retaining Twitter Media on Your Cellphone for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-ideal-tactic-fusing-gopro-footage-into-a-unified-360-video-experience/"><u>[Updated] Ideal Tactic Fusing GoPro Footage Into a Unified 360 Video Experience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-treasure-trove-of-e-commerce-the-hottest-sites-for-mystery-boxes-for-2024/"><u>A Treasure Trove of E-Commerce The Hottest Sites for Mystery Boxes for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-tutorial-for-3d-lut-creators/"><u>In 2024, Ultimate Tutorial for 3D LUT Creators</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-pursuit-aiming-for-a-social-media-revolution-in-europe/"><u>Meta's Pursuit: Aiming for a Social Media Revolution in Europe</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-marketplace-with-confidence-and-caution/"><u>Navigating the Marketplace with Confidence and Caution</u></a></li>
-<li><a href="https://win-info.techidaily.com/redownloading-and-setting-up-windows-operating-system-a-guide-from-yl-software-experts/"><u>Redownloading and Setting Up Windows Operating System: A Guide From YL Software Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-avoiding-intrusive-social-media-popups/"><u>Strategies for Avoiding Intrusive Social Media Popups</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-scale-of-power-governments-vs-techs-mighty-empire/"><u>The Scale of Power: Governments Vs. Tech's Mighty Empire</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-resource-for-creating-professional-impactful-videodumps/"><u>The Ultimate Resource for Creating Professional, Impactful Videodumps</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwinding-the-facebook-tiktok-rivalry-with-reel-innovation/"><u>Unwinding the Facebook-TikTok Rivalry with Reel Innovation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-best-video-makers-with-music-and-photos/"><u>[New] 2024 Approved Best Video Makers with Music and Photos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-rx-heritage-bundle/"><u>[New] 2024 Approved RX Heritage Bundle</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-crafting-your-future-a-guide-to-prosperity-in-graphic-designing-for-2024/"><u>[Updated] Crafting Your Future A Guide to Prosperity in Graphic Designing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-headlines-the-most-important-unspoken-tech-news/"><u>Beyond the Headlines: The Most Important Unspoken Tech News</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-your-site-with-cookiebot-technology-the-smart-choice-for-marketers/"><u>Boost Your Site with Cookiebot Technology – The Smart Choice for Marketers</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-which-facebook-device-benefits-you-most/"><u>Deciphering Which Facebook Device Benefits You Most</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discovering-the-basics-of-instagram-a-step-by-easy-guide/"><u>Discovering the Basics of Instagram: A Step-by-Easy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-shun-apples-in-app-tracking/"><u>Majority Shun Apple's In-App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/pivotal-platform-policies-strategically-managing-your-online-collectives-on-facebook/"><u>Pivotal Platform Policies: Strategically Managing Your Online Collectives on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-duo-enhances-wnba-viewership/"><u>Social Network Duo Enhances WNBA Viewership</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-beginners-guide-to-straightforward-hdr-techniques-for-2024/"><u>The Beginner's Guide to Straightforward HDR Techniques for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-12-viewer-apps-per-photo-su-windows-10-11-e-mac-os/"><u>Top 12 Viewer Apps per Photo Su Windows 10, 11 E Mac OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-mail-service-safety-with-two-factor-authentication-techniques/"><u>Transforming Mail Service Safety with Two-Factor Authentication Techniques</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-fix-for-sea-of-thieves-ending-those-frustrating-game-crashes/"><u>Ultimate Fix for Sea of Thieves: Ending Those Frustrating Game Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-disappearing-features-in-fb-messenger/"><u>Unveiling Disappearing Features in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebooks-oversight-board-and-what-does-it-do/"><u>What Is Facebook's Oversight Board and What Does It Do?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/where-to-find-the-ideal-phone-deals-expert-recommendations/"><u>Where to Find the Ideal Phone Deals: Expert Recommendations</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/yl-softwares-guide-to-confidentially-checking-your-bitcoin-address-balance-the-ultimate-tool-for-digital-security/"><u>YL Software’s Guide to Confidentially Checking Your Bitcoin Address Balance – The Ultimate Tool for Digital Security</u></a></li>
 </ul></div>
 

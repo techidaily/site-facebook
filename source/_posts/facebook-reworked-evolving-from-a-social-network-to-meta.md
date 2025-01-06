@@ -1,7 +1,7 @@
 ---
 title: "Facebook Reworked: Evolving From a Social Network to Meta"
-date: 2024-08-08T11:29:15.010Z
-updated: 2024-08-09T11:29:15.010Z
+date: 2025-01-03T19:35:56.505Z
+updated: 2025-01-06T07:07:41.332Z
 tags:
   - facebook
 categories:
@@ -19,14 +19,8 @@ thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac
 
  Here, we'll take a look at the evolution of the American tech giant, from its humble beginnings in 2004 to its steps into the metaverse today.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## 2004–2006: The Origin Story of Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
 
  Mark Zuckerberg and his friends came up with an idea for a new website that connects all Harvard students. Their inspiration? Harvard's online student directory's "Face books." The technical insights came from his previous project Facemash—a "hot or not" website that compared female Harvard students side by side.
@@ -37,11 +31,12 @@ thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2007–2009: The Inception of the Facebook Like Button
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
@@ -50,11 +45,12 @@ thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2010–2012: Facebook Goes Public
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
@@ -75,12 +71,13 @@ thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac
 
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -92,9 +89,17 @@ thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
@@ -108,9 +113,6 @@ thumbnail: https://thmb.techidaily.com/a0065ec58e14aa7a294fd33338e90d4d15fa577ac
 
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
@@ -121,23 +123,17 @@ What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta Is in a Rough Place, But When Is It Not?
 
  Despite the rebranding and a new vision, Meta is not free from its past. It continues to face countless difficulties in the form of technical, legal, ethical, and social issues.
 
  But operating in challenging environments is not new for the company, and it's likely to continue recovering and growing regardless of its controversies and plunging into new territories. Only time will tell how fast it is actually able to do that, though.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,4 +142,26 @@ What comes next? Massive layoffs.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/levate-your-youtube-shorts-top-10-strategies-for-uniqueness-for-2024/"><u>[New] Elevate Your YouTube Shorts Top 10 Strategies for Uniqueness for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-4-creative-ways-to-insert-youtube-content-in-presentations/"><u>[Updated] 4 Creative Ways to Insert YouTube Content in Presentations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-delving-into-t-series-revenue-generation-on-video-platforms/"><u>[Updated] In 2024, Delving Into T-Series' Revenue Generation on Video Platforms</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-procure-no-cost-media-content-from-prime-4-youtube-vids/"><u>[Updated] Procure No-Cost Media Content From Prime 4 YouTube Vids</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/tsutaya-vs/"><u>「TSUTAYA vs ゲオ: レンタルコストと在庫比較 - お勧めの店をご紹介」</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/creepy-apple-advertisement-challenges-dominant-web-browser-insights-exclusive/"><u>Creepy Apple Advertisement Challenges Dominant Web Browser, Insights Exclusive</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/customizable-expert-level-aomei-onekey-recovery-for-professional-data-restoration-needs/"><u>Customizable Expert-Level AOMEI OneKey Recovery for Professional Data Restoration Needs</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rebrands-as-meta-a-leap-towards-a-new-digital-age/"><u>Facebook Rebrands as Meta: A Leap Towards a New Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-strategy-overshadows-traditional-app-purchase-approaches/"><u>Facebook’s Subscription Strategy Overshadows Traditional App Purchase Approaches</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/humor-haven-the-ultimate-list-of-event-specific-jokes-for-2024/"><u>Humor Haven The Ultimate List of Event-Specific Jokes for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-the-marketing-maze-tips-to-avoid-objectionable-ads/"><u>Steering Clear of the Marketing Maze: Tips to Avoid Objectionable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insight-into-facebook-dating-system/"><u>The Insight Into Facebook Dating System</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pros-and-cons-of-dislike-features-online/"><u>The Pros & Cons of 'Dislike' Features Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-fbcta-in-shaping-digital-experience/"><u>The Role of FBCTA in Shaping Digital Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/transformation-facebook-staff-now-referred-as-metamates/"><u>Transformation: Facebook Staff Now Referred as 'Metamates'</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/twitters-smiley-sweep-linuss-tech-truths-trojans-explained-and-gpt-glitches/"><u>Twitters Smiley Sweep, Linus’s Tech Truths, Trojans Explained, & GPT Glitches.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-mystery-ios-145s-effect-on-social-networks/"><u>Unlocking the Mystery: IOS 14.5'S Effect on Social Networks</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-amds-ryzen-5-9600x-and-ryzen-amo-7-9700x-exceptional-gaming-prowess-with-zen-5-architecture/"><u>Unveiling AMD's Ryzen 5 9600X & Ryzen Amo 7 9700X: Exceptional Gaming Prowess with Zen 5 Architecture</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-you-turn-a-new-leaf-from-fb/"><u>When You Turn a New Leaf From FB</u></a></li>
+</ul></div>
 

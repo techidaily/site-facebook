@@ -1,7 +1,7 @@
 ---
 title: "Protecting Your Privacy: Don't Opt In to Facebook Logging"
-date: 2024-08-08T11:27:46.710Z
-updated: 2024-08-09T11:27:46.710Z
+date: 2024-12-31T06:46:37.227Z
+updated: 2025-01-06T02:41:45.711Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 ---
 
 ## Protecting Your Privacy: Don't Opt In to Facebook Logging
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -29,8 +33,9 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -41,9 +46,6 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -54,19 +56,28 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## How to Disable Link History on Facebook
 
  If you have opted into Link History and now want out, unfortunately, you won't find the option to toggle it off in the same Link History menu. Instead, you'll need to access Facebook's browser settings by following these steps:
@@ -76,22 +87,12 @@ Close
 3. Under the**Browsing data** section, you'll see a toggle for**Allow link history** . Toggle it off.
 4. When prompted for confirmation, tap**Don't allow** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
 Close
@@ -100,14 +101,11 @@ Close
 
 [Meta is notorious for tracking its users](https://www.makeuseof.com/tag/facebook-tracking-stop/) , so if you don't want the company to track the websites you visit while using Facebook, it's best not to enable Link History. However, if you'd rather see ads relevant to you than completely unrelated ones that are of no value, then you should opt in. The key is knowing what the feature does and what implications that has for your privacy and security.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +114,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/best-websites-for-downloading-skype-ringtone-for-2024/"><u>Best Websites For Downloading Skype Ringtone for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/building-a-following-with-stunning-unboxing-content/"><u>Building a Following with Stunning Unboxing Content</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-gionee-f3-pro-to-mac-drfone-by-drfone-android/"><u>How to Mirror Gionee F3 Pro to Mac? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-strategies-downloading-audio-on-iphones/"><u>In 2024, Step-by-Step Strategies Downloading Audio on iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-era-musicians-income-on-facebook-platform/"><u>Navigating the New Era: Musicians' Income on Facebook Platform</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-the-problem-troubleshooting-steps-when-your-mac-app-wont-launch/"><u>Solving the Problem: Troubleshooting Steps When Your Mac App Won't Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-hidden-posts-on-social-media-clans/"><u>Tips for Hidden Posts on Social Media Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-tips-to-enhance-your-social-media-life-using-fb-app/"><u>Top 10 Tips to Enhance Your Social Media Life Using FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-potential-posts-for-every-group-on-facebook/"><u>Unlock the Potential: Posts for Every Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-the-power-of-online-social-groups/"><u>Unlocking Potential: The Power of Online Social Groups</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mov-ogv-movavi/"><u>オンラインで無料 MOV から OGV への優れた変換サービス - Movavi</u></a></li>
+</ul></div>
 

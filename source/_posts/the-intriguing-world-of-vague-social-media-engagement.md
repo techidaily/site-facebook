@@ -1,7 +1,7 @@
 ---
 title: The Intriguing World of Vague Social Media Engagement
-date: 2024-08-08T11:27:26.901Z
-updated: 2024-08-09T11:27:26.901Z
+date: 2024-12-31T23:36:56.020Z
+updated: 2025-01-05T16:15:48.171Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/d8d350936386f188a2d4be816539be2eaee7c3069
 
  In this article, we'll explain what vaguebooking is, and give examples of vaguebooking so that you'll be able to recognize it when you see it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is Vaguebooking?
 
  There was a time when people kept diaries in order to express their innermost thoughts and feelings. Now, while[digital journaling is a thing](https://www.makeuseof.com/tag/the-beginners-guide-to-digital-journaling/) , people mainly post their thoughts on social media. Unfortunately, this often takes the form of vaguebooking, which can be extremely annoying.
@@ -35,11 +32,16 @@ But what is vaguebooking?
  And that's the point of vaguebooking. While the majority of us will only post on social media when we have something specific to say, vaguebookers take great delight in beating around the metaphorical bush. Seeking attention while giving away very little in terms of detail.
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Examples of Vaguebooking
 
  The easiest way to answer the question, "what is vaguebooking?" is to give examples. So here are some examples of vaguebooking which will help you recognize it when you see it. And ultimately avoid doing it yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Expressing an Emotion Without Providing Context
 
@@ -49,16 +51,14 @@ But what is vaguebooking?
 
  This is a classic, and one of the most annoying forms of vaguebooking. It's about as vague as it gets while still using words. With "Why? Only me..." you're imparting the fact that something (likely bad) has happened that you need someone to ask you about.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Question Marks: The Purest Form of Vaguebooking
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
@@ -68,9 +68,9 @@ But what is vaguebooking?
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Is Responsible for Vaguebooking?
 
  So, who's doing all of this vaguebooking? Sadly, everyone seems prone to doing it from time to time. You'll find normally sane and sensible people vaguebooking in order to elicit sympathy or some kind of response from someone, somewhere. Anyone, anywhere. It doesn't really matter who responds, as long as someone notices their cries for attention.
@@ -82,8 +82,9 @@ But what is vaguebooking?
  Related:[Tips to Avoid (Spreading) Fake News During a Crisis](https://www.makeuseof.com/tag/quickly-avoid-fake-news-unfolding-crisis/)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Vaguebooking Harmless or Something More?
 
  Vaguebooking is definitely annoying. Of that there can be no argument. But is it merely annoying or a sign of something more worrying?
@@ -110,14 +111,11 @@ But what is vaguebooking?
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +124,20 @@ But what is vaguebooking?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-sims-chronicles-unplugged-innovative-techniques-to-recording-without-reliance-on-video/"><u>[New] In 2024, Sims Chronicles Unplugged Innovative Techniques to Recording Without Reliance on Video</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-w11-easy-capture-tool-windows-11-screen-recording-for-2024/"><u>[New] W11 Easy Capture Tool Windows 11 Screen Recording for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-become-a-pro-downloading-and-setting-up-vrecord/"><u>2024 Approved Become a Pro Downloading & Setting Up VRecord</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-could-reels-elevate-over-tiktok-struggles/"><u>Facebook, Could Reels Elevate over TikTok Struggles?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-firefoxs-picture-in-picture-capabilities/"><u>In 2024, Navigating Firefox's Picture-in-Picture Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-tutorial-your-facebook-journey-maped-and-analyzed/"><u>In-Depth Tutorial: Your Facebook Journey Maped and Analyzed</u></a></li>
+<li><a href="https://win11.techidaily.com/reboot-routes-for-customizing-windows-11-settings-app/"><u>Reboot Routes for Customizing Windows 11 Settings App</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-your-online-community-engagement/"><u>Revamping Your Online Community Engagement</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/strategic-blending-elevating-video-sequence-harmony-for-2024/"><u>Strategic Blending Elevating Video Sequence Harmony for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ripple-effect-of-your-facebook-actions-on-brands/"><u>The Ripple Effect of Your Facebook Actions on Brands</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-past-a-step-by-step-for-downloadable-facebook-logs/"><u>Unlocking the Past: A Step-by-Step for Downloadable Facebook Logs</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unseen-push-alerts-on-iphone-try-these-7-quick-fixes-to-restore-them/"><u>Unseen Push Alerts on iPhone? Try These 7 Quick Fixes to Restore Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-newsfeed-redefined-4-innovative-approaches-for-content-customization/"><u>Your Newsfeed, Redefined: 4 Innovative Approaches for Content Customization</u></a></li>
+</ul></div>
 

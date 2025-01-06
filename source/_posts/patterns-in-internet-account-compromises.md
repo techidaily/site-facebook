@@ -1,7 +1,7 @@
 ---
 title: Patterns in Internet Account Compromises
-date: 2024-08-08T11:29:26.663Z
-updated: 2024-08-09T11:29:26.663Z
+date: 2024-12-29T16:49:47.925Z
+updated: 2025-01-05T18:01:09.253Z
 tags:
   - facebook
 categories:
@@ -21,12 +21,17 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  So how often are social network accounts actually hacked? How can you limit how susceptible your accounts are?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Common Are Social Media Hacks?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
 
@@ -40,11 +45,12 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Increases the Chances of a Social Media Hack?
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
 
  Certain things can make you more or less likely to experience a social media account hack.
@@ -58,20 +64,16 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Risks Associated With a Social Media Hack?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
 
@@ -83,14 +85,8 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Handle a Social Media Hack
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -105,14 +101,11 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  Social media account hacks occur more often than people might think. Even so, you can take proactive steps to make them less likely to happen to you. Consider applying the tips mentioned here, plus sharing them with people you know.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +114,24 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-four-straightforward-methods-for-lenovo-screenshots-for-2024/"><u>[New] Four Straightforward Methods for Lenovo Screenshots for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-swipe-for-success-the-art-of-flipping-videos-on-instagram/"><u>2024 Approved Swipe for Success The Art of Flipping Videos on Instagram</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/empower-your-world-with-gpt-4-heres-how-it-happens/"><u>Empower Your World with GPT-4 - Here's How It Happens</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-donating-5-million-to-the-whos-covid-19-fundraising-campaign/"><u>Facebook Is Donating $5 Million to the WHO's COVID-19 Fundraising Campaign</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/futuro-dei-videocodecs-perche-av1-supera-hevc-nel-panorama-digitale/"><u>Futuro Dei Videocodecs: Perché AV1 Supera HEVC Nel Panorama Digitale?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/gamers-check-out-the-stylish-and-high-performance-features-of-gigabyte-aorus-fo32u2p-our-full-review-inside/"><u>Gamers, Check Out the Stylish & High-Performance Features of Gigabyte Aorus FO32U2P! Our Full Review Inside</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y28-5g-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo Y28 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-xiaomi-redmi-note-13-proplus-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Xiaomi Redmi Note 13 Pro+ 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-user-id-setup-email-and-number-changes/"><u>New User ID Setup: Email & Number Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-the-birth-of-meta/"><u>Redefining Relationships : The Birth of Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-self-sharing-essential-secrets-for-social-security/"><u>Safeguarding Self-Sharing: Essential Secrets for Social Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/surveying-the-digital-community-for-news-feed-insights/"><u>Surveying the Digital Community for News Feed Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-setting-rules-in-virtual-gatherings-on-fb/"><u>The Art of Setting Rules in Virtual Gatherings on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-the-world-of-online-influence/"><u>Thriving in the World of Online Influence</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/vbrcbr/"><u>VBRからCBRへの高品質な動画・音楽ストリーム変換方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-out-about-facebooks-data-missteps/"><u>Who Spoke Out About Facebook's Data Missteps?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211359636-9798869397607-witches-grimoire-a-comprehensive-collection-of-powerful-spells-for-wicca-practitioners-master-the-art-of-witchcraft-and-spellcasting-enhance-your-magical-skills/"><u>Witches' Grimoire: A Comprehensive Collection of Powerful Spells for Wicca Practitioners - Master the Art of Witchcraft and Spellcasting - Enhance Your Magical Skills | Free Book</u></a></li>
+</ul></div>
 

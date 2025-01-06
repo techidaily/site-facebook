@@ -1,7 +1,7 @@
 ---
 title: "The Next Evolution: Exploring Facebook's VR Frontier"
-date: 2024-12-23T16:32:13.650Z
-updated: 2024-12-27T16:02:35.510Z
+date: 2025-01-02T05:33:10.169Z
+updated: 2025-01-06T01:10:15.878Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is the Facebook Metaverse?
 
 ![Facebook and Other Apps on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-and-Other-Apps-on-iPhone.jpg)
@@ -41,17 +37,21 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Effects of a Granular Customer Profile
 
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
@@ -61,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  Related:[Reasons Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Algorithmic Biases
 
@@ -87,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
@@ -95,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  For this reason, the Facebook Metaverse is stepping up and expanding to other methods of data collection. It’s no longer enough to simply rely on the various data brokers it is affiliated with. As much as possible, Facebook wants to go head-to-head with the other giants in every sense of the word, especially because the war will be won by who can collect the most data from the customers and monetize it.
 
  What makes the Facebook Metaverse a force to be reckoned with is not just that it’s gaining unprecedented access to us online, but that it is also gaining the power to transcend into the physical world. While before, people could just decide to delete apps made by Facebook and call it a day, it’s almost no longer possible to keep your data out of its grasp. It is a curious and terrifying situation, one that, as a society, we are experiencing for the first time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Perils of Being an Ordinary Person
 
@@ -119,21 +119,16 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-most-advanced-virtual-reality-engines-of-2023/"><u>[New] 2024 Approved The Most Advanced Virtual Reality Engines of 2023</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-understanding-youtubes-premier-package/"><u>[New] 2024 Approved Understanding YouTube's Premier Package</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-a-simple-path-to-enhanced-youtube-sign-ups-create-animated-subscription-bar-using-filmora-for-2024/"><u>[New] A Simple Path to Enhanced YouTube Sign-Ups - Create Animated Subscription Bar Using Filmora for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-pro-sniping-on-a-budget-try-these-affordable-pc-tools-for-2024/"><u>[New] Pro Sniping on a Budget? Try These Affordable PC Tools for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/anking-the-top-12-streamlined-screen-swivel-cams-for-content-for-2024/"><u>[New] Ranking the Top 12 Streamlined Screen-Swivel Cams for Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-trending-tutorial-tracker/"><u>2024 Approved Trending Tutorial Tracker</u></a></li>
-<li><a href="https://fox-that.techidaily.com/9-proven-fixes-when-your-ipod-iphone-or-ipad-wont-update/"><u>9 Proven Fixes When Your iPod, iPhone or iPad Won't Update!</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-instagram-accounts-are-becoming-more-connected/"><u>Facebook and Instagram Accounts Are Becoming More Connected</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Honor X9b? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/master-the-art-of-mobile-movie-watching-with-top-10-ios-apps-for-2024/"><u>Master the Art of Mobile Movie Watching with Top 10 iOS Apps for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-online-image-content-via-alt-text-techniques/"><u>Optimizing Online Image Content via Alt Text Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/superior-social-venues-for-senior-interactions/"><u>Superior Social Venues For Senior Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-keeping-like-count-secretive-fbig-edition/"><u>The Art of Keeping Like Count Secretive: FB/IG Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-balance-of-comedy-and-courtesy-online/"><u>The Balance of Comedy and Courtesy Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-quintessential-quest-for-corporate-social-supremacy/"><u>The Quintessential Quest for Corporate Social Supremacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-my-facebook-profile-vanish-top-reasons/"><u>Why Did My Facebook Profile Vanish? Top Reasons</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-symphony-of-selection-assembling-your-best-music-choices-on-youtube/"><u>[New] A Symphony of Selection Assembling Your Best Music Choices on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-discover-the-ultimate-comfort-of-these-top-8-5ks-for-2024/"><u>[New] Discover the Ultimate Comfort of These Top 8 5Ks for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-standard-rgb-versus-srgb-standards/"><u>2024 Approved Standard Rgb Versus Srgb Standards</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-your-youtube-views-with-smart-zoom-practices/"><u>2024 Approved Transform Your YouTube Views with Smart Zoom Practices</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-prominent-social-platforms-facebook-twitter-instagram-and-youtube-explained/"><u>Exploring Prominent Social Platforms: Facebook, Twitter, Instagram & YouTube Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-venture-ray-bans-stories-and-their-cost-analysis/"><u>Facebook's New Venture: Ray-Bans Stories and Their Cost Analysis</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-luts-premiere-pro-essentials-for-2024/"><u>Mastering LUTs Premiere Pro Essentials for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/smarter-social-networking-on-facebook-unfollow-and-follow-strategies-explained/"><u>Smarter Social Networking on Facebook: Unfollow & Follow Strategies Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-personal-insights-from-deactivation/"><u>Unplugging: Personal Insights From Deactivation</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vk-key-facts-on-russias-virtual-network/"><u>Unveiling VK: Key Facts on Russia's Virtual Network</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-unlock-new-possibilities-top-10-free-video-speed-modification-apps/"><u>Updated In 2024, Unlock New Possibilities Top 10 Free Video Speed Modification Apps</u></a></li>
 </ul></div>
 

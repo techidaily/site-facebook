@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-12-20T16:20:01.879Z
-updated: 2024-12-27T17:22:42.007Z
+date: 2025-01-04T16:18:01.856Z
+updated: 2025-01-05T18:59:35.447Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The iOS 14.5 Update: What Does It Do Exactly?
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
@@ -43,16 +43,12 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
 
@@ -64,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
@@ -76,9 +68,17 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's Likely Response
@@ -127,21 +127,18 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-hdr-mastery-for-home-and-professional-pcs-for-2024/"><u>[New] HDR Mastery for Home and Professional PCs for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-hearth-warming-hear-from-happy-customers/"><u>[New] In 2024, Hearth-Warming Hear From Happy Customers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-joyful-journeys-the-ultimate-list-of-familial-classics-for-2024/"><u>[New] Joyful Journeys The Ultimate List of Familial Classics for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/solved-corsair-h115i-driver-issues-in-windows-81011/"><u>[Solved] Corsair H115i Driver Issues in Windows 8/10/11</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-clear-your-vision-overcoming-instagram-footage-issues-for-2024/"><u>[Updated] Clear Your Vision Overcoming Instagram Footage Issues for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-navigating-through-gopro-and-time-lapse-synergy/"><u>[Updated] In 2024, Navigating Through GoPro and Time-Lapse Synergy</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exclusive-access-to-pinnacle-android-viewer-for-2024/"><u>Exclusive Access to Pinnacle Android Viewer for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-and-insights-on-the-minecraft-campfire-tales-apparel-set/"><u>In-Depth Analysis and Insights on the Minecraft Campfire Tales Apparel Set</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-watch-over-your-pc-and-emails-indicators-of-use/"><u>Keeping Watch Over Your PC & Emails: Indicators of Use</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/mastering-instagram-stories-integrating-personalized-graphics-for-2024/"><u>Mastering Instagram Stories Integrating Personalized Graphics for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-your-businesss-profile-with-multilingual-posts/"><u>Optimizing Your Business's Profile with Multilingual Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-identity-online-check-for-fb-intruders/"><u>Protecting Identity Online – Check for FB Intruders</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-identity-what-not-to-post-on-social-media-sites/"><u>Protecting Identity: What Not to Post on Social Media Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-implementing-2fa-for-secure-online-communication/"><u>Step-by-Step: Implementing 2FA for Secure Online Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-fb-career-opportunities-promotion/"><u>Strategies for FB Career Opportunities Promotion</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-escape-to-online-shopping-with-fb-fridays/"><u>The Great Escape to Online Shopping with FB Fridays</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/addressing-hearing-gaps-in-video-content-sharing/"><u>Addressing Hearing Gaps in Video Content Sharing</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/elevate-your-pc-experience-with-new-intel-graphics-driver/"><u>Elevate Your PC Experience with New Intel Graphics Driver</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-realme-narzo-60-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Realme Narzo 60 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-find-x6-pro-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo Find X6 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-image-making-in-a-profile/"><u>Mastering the Art of Image Making in a Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/mission-complete-when-will-e2ee-roll-out-in-fb-messenger/"><u>Mission Complete? When Will E2EE Roll Out in FB Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-social-identity-new-name-same-network-on-fb/"><u>Shifting Social Identity: New Name, Same Network on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-communication-adding-users-to-socialize-on-messenger/"><u>Streamline Communication: Adding Users to Socialize on Messenger</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-vivo-x100-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Vivo X100 FRP Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operational-secrets-with-a-new-hub/"><u>Unraveling Facebook's Operational Secrets with a New Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-facebook-cloning-scam/"><u>What Is a Facebook Cloning Scam?</u></a></li>
 </ul></div>
 

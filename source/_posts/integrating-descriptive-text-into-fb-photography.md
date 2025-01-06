@@ -1,7 +1,7 @@
 ---
 title: Integrating Descriptive Text Into Fb Photography
-date: 2024-08-08T11:28:23.221Z
-updated: 2024-08-09T11:28:23.221Z
+date: 2024-12-31T07:29:16.735Z
+updated: 2025-01-06T01:33:45.817Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/497e0cf4a494c643d111720df0c9d81e356ffb488
 
  While alt text may not be beneficial for everyone, it’s an incredibly helpful feature for specific users. This article will show you how to add alt text to your photos and why you should do.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Why Should I Add Alt Text to My Facebook Photos?
 
  The alt text (full form: alternative text) of a picture is a brief written description of it that makes sense of the image when someone can't see it.
@@ -39,17 +36,15 @@ thumbnail: https://thmb.techidaily.com/497e0cf4a494c643d111720df0c9d81e356ffb488
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 Close
@@ -65,15 +60,13 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ### How to Add Alt Text to Facebook Images on the Web
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -93,7 +86,15 @@ Here’s how you add alt text to images while uploading them:
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -109,23 +110,20 @@ Close
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make Your Facebook Photos More Accessible
 
  Alt text is an important aspect of making your content accessible to people with vision impairments as well as increasing the potential reach of your photos, if that's your aim.
 
  It’s easy enough to add alternative text to images, both new and old, using the Facebook app or web version. So, the next time you upload a photo to Facebook, consider how everyone can best appreciate it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +132,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-quick-windows-surfing-guide-unveiled/"><u>[New] In 2024, Quick Windows Surfing Guide Unveiled</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-thankful-tailings-templates-for-every-dollar-plan/"><u>[New] In 2024, Thankful Tailings Templates for Every Dollar Plan</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-best-5-non-youtube-editing-tools-for-vids/"><u>2024 Approved Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elite-mobile-filming-tech-for-iphones/"><u>Elite Mobile Filming Tech for iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-picky-facebook-video-extraction/"><u>Essential Tips for Picky Facebook Video Extraction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-boundaries-adequate-ban-of-trump-with-time-limit/"><u>Facebook's Boundaries: Adequate Ban of Trump with Time Limit</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-concealed-commentary-in-forums/"><u>Guidelines for Concealed Commentary in Forums</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-a-piece-of-facebooks-725-million-class-action-settlement-pie/"><u>How to Get a Piece of Facebook’s $725 Million Class-Action Settlement Pie</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-lava-agni-2-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Lava Agni 2 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-best-webcam-technology-boosting-audio-fidelity/"><u>In 2024, Best Webcam Technology Boosting Audio Fidelity</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-16-from-huawei-p60-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 16 from Huawei P60 to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-appreciation-fb-likes-anonymity-guide/"><u>Masked Appreciation: FB Likes Anonymity Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-time-treatment-the-message-behind-instagrams-break-encouragement/"><u>Tech-Time Treatment: The Message Behind Instagram’s Break Encouragement</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-to-a-darker-facebook-experience/"><u>Transition to a Darker Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-the-reins-at-facebook/"><u>Who Holds the Reins at Facebook?</u></a></li>
+</ul></div>
 

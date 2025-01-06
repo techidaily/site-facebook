@@ -1,7 +1,7 @@
 ---
 title: How to Optimize Fb Visual Data Control
-date: 2024-12-20T16:45:43.157Z
-updated: 2024-12-21T16:54:28.642Z
+date: 2025-01-02T20:01:40.711Z
+updated: 2025-01-06T03:51:59.005Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -45,13 +41,13 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Inline Privacy Controls
 
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
@@ -69,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -82,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
  You can edit photos on a case-by-case basis in the**Profile Pictures** album, the**Cover Photos** album, the**Mobile Uploads** album, and the**Timeline Photos** album. However, other albums apply the same setting to all the photos within them.
 
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
@@ -97,10 +93,6 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -113,17 +105,25 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Does Facebook Photo Privacy Concern You?
 
@@ -144,14 +144,22 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-pixel-perfect-preservation-the-best-practices-of-recording-games/"><u>[New] Pixel-Perfect Preservation The Best Practices of Recording Games</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-explore-the-best-7-platforms-for-transforming-art-into-nfts/"><u>[Updated] 2024 Approved Explore the Best 7 Platforms for Transforming Art Into NFTs</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-daily-time-reminder-to-take-a-break/"><u>How to Use Facebook's Daily Time Reminder to Take a Break</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-realistic-movement-rendering-for-images/"><u>In 2024, Realistic Movement Rendering for Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/real-life-rewind-what-happens-after-you-unplug/"><u>Real Life Rewind: What Happens After You Unplug</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/smilesketcher-turn-your-ideas-into-memes-and-graphics-for-2024/"><u>SmileSketcher Turn Your Ideas Into Memes & Graphics for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unveiling-premium-displays-the-ultimate-guide-for-xbox-s-series-x-for-2024/"><u>Unveiling Premium Displays The Ultimate Guide for Xbox S Series X for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/ux-guile-in-the-digital-age-a-privacy-perspective/"><u>UX Guile in the Digital Age: A Privacy Perspective</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-best-live-stream-screen-recorders-for-youtube/"><u>[Updated] 2024 Approved Best Live Stream Screen Recorders for YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-navigating-the-features-of-voice-recognition-in-gdoc/"><u>[Updated] 2024 Approved Navigating the Features of Voice Recognition in GDoc</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-android-techniques-old-to-new-video-format/"><u>[Updated] In 2024, Android Techniques Old to New Video Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/assault-on-user-privacy-online/"><u>Assault on User Privacy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-hidden-dangers-in-the-digital-marketplace/"><u>Avoiding Hidden Dangers in the Digital Marketplace</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-oppo-a1-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo A1 5G Fingerprint Lock</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/bypass-samsungs-vr-camera-here-are-your-top-alternatives-for-2024/"><u>Bypass Samsung’s VR Camera - Here Are Your Top Alternatives for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-power-play-in-your-fb-friends-list-management/"><u>Discover the Power Play in Your FB Friends List Management</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-apple-iphone-xr-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot Apple iPhone XR Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia C12? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/including-all-even-the-hidden-faces-of-your-group/"><u>Including All, Even the Hidden Faces of Your Group</u></a></li>
+<li><a href="https://windows11.techidaily.com/never-delay-in-decision-making-terminal-as-admin-instantly/"><u>Never Delay in Decision Making: Terminal as Admin, Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsider-your-approach-to-facebooks-link-record/"><u>Reconsider Your Approach to Facebook's Link Record</u></a></li>
+<li><a href="https://facebook.techidaily.com/share-the-load-collective-effort-in-an-online-community/"><u>Share the Load: Collective Effort in an Online Community</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-phasmophobia-vr-malfunctions-a-step-by-step-guide/"><u>Solving Phasmophobia VR Malfunctions: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pioneering-project-how-spotify-and-facebook-are-building-boombox/"><u>The Pioneering Project: How Spotify and Facebook Are Building Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-followers-into-lifelong-profitable-clients/"><u>Transforming Facebook Followers Into Lifelong Profitable Clients</u></a></li>
 </ul></div>
 

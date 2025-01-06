@@ -1,7 +1,7 @@
 ---
 title: Understanding Telegram's Upswing When FB Was Inaccessible
-date: 2024-08-08T11:26:17.842Z
-updated: 2024-08-09T11:26:17.842Z
+date: 2025-01-01T21:35:03.326Z
+updated: 2025-01-05T23:46:19.105Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
  But how and why did it reap the rewards so spectacularly? Let's take a look.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -35,13 +36,11 @@ thumbnail: https://thmb.techidaily.com/56026dcff0736582c2fe4e321c8c74705a564d75f
 But why did Telegram benefit so much more than any of its rivals?
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
@@ -51,8 +50,9 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Important Is This for Telegram?
 
  Most significantly for Telegram, Facebook's downtime and the rush of refugees that followed marks another major shift in the way people view the app as a service.
@@ -66,8 +66,9 @@ But why did Telegram benefit so much more than any of its rivals?
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -81,23 +82,20 @@ But why did Telegram benefit so much more than any of its rivals?
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can Telegram Continue Its Momentous Rise?
 
  While 70 million new users in a day is impressive, it would be folly to believe that they will all continue to use the service now that WhatsApp and Messenger are back online.
 
  The critical thing from Telegram's perspective is that the app is now installed on more people's handsets than ever before. The company now faces the challenge of retaining them as active users. Only time will tell whether that actually happens.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,4 +104,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-craft-engaging-trailers-that-drive-channels-sales/"><u>[New] How to Craft Engaging Trailers that Drive Channels' Sales</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-screen-capture-tips-for-ios-devices-2023-update-for-2024/"><u>[New] Screen Capture Tips for iOS Devices - 2023 Update for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-best-video-capture-for-iphoneipad-users-for-2024/"><u>[New] The Best Video Capture for iPhone/iPad Users for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/bring-back-the-boom-troubleshooting-missing-sounds-in-fallout-4-for-your-pc/"><u>Bring Back the Boom: Troubleshooting Missing Sounds in Fallout 4 for Your PC</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-s24-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Samsung Galaxy S24?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elite-gear-high-performance-unmatched-style/"><u>Elite Gear High Performance, Unmatched Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-customizes-user-experience-stepping-beyond-app-stores-reach/"><u>Facebook Customizes User Experience, Stepping Beyond App Store's Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-up-uncover-these-top-6-social-advantages/"><u>Group Up! Uncover These Top 6 Social Advantages</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-zte-nubia-flip-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From ZTE Nubia Flip 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-oppo-k11-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Oppo K11 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-brand-strengths-the-case-for-using-company-pages/"><u>Leveraging Brand Strengths: The Case for Using Company Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-privacy-crafting-a-customized-facebook-visibility-list/"><u>Personalize Privacy: Crafting a Customized Facebook Visibility List</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundscapes-of-socialization-facebooks-latest-features/"><u>Soundscapes of Socialization: Facebook's Latest Features</u></a></li>
+</ul></div>
 

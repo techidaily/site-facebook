@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2024-12-23T20:00:59.656Z
-updated: 2024-12-27T16:23:23.832Z
+date: 2025-01-01T05:30:40.784Z
+updated: 2025-01-05T21:21:49.602Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
@@ -37,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -52,12 +48,16 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
@@ -70,7 +70,7 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -82,7 +82,7 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Checking Your Facebook Blocked List
@@ -104,22 +104,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-quick-shift-video-techniques-mastering-transitions/"><u>[New] 2024 Approved Quick-Shift Video Techniques Mastering Transitions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-swiftly-switch-songs-in-yt-playlist-heres-how/"><u>[New] 2024 Approved Swiftly Switch Songs in YT Playlist, Here's How</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-groundbreaking-method-to-insert-gopro-clips-into-virtual-panoramic-movies/"><u>[New] Groundbreaking Method to Insert GoPro Clips Into Virtual Panoramic Movies</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-eight-sources-of-graffiti-fonts-online/"><u>[New] Top Eight Sources of Graffiti Fonts Online</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-honor-70-lite-5g-frp-bypass-by-drfone-android/"><u>About Honor 70 Lite 5G FRP Bypass</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/average-to-exceptional-discover-the-finest-free-intra-designs-for-2024/"><u>From Average to Exceptional Discover the Finest Free Intra Designs for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-nokia-g22-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Nokia G22? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-intertwined-lives-friends-on-facebook-history/"><u>Investigating Intertwined Lives: Friends on Facebook History</u></a></li>
-<li><a href="https://facebook.techidaily.com/love-reimagined-the-role-of-facebook-in-future-dating-practices/"><u>Love Reimagined: The Role of Facebook in Future Dating Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebooks-privacy-constructing-a-restricted-list-for-controlled-visibility/"><u>Mastering Facebook's Privacy: Constructing a Restricted List for Controlled Visibility</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-productivity-with-facebooks-8-essential-workplace-features/"><u>Optimizing Productivity with Facebook's 8 Essential Workplace Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/rescue-your-rusty-social-media-site-with-troubleshooting-aids/"><u>Rescue Your Rusty Social Media Site with Troubleshooting Aids</u></a></li>
-<li><a href="https://facebook.techidaily.com/shielding-shares-use-archiving-for-securing-post-visibility/"><u>Shielding Shares: Use Archiving for Securing Post Visibility</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-essentials-of-seamless-interoperability-via-nearby-share/"><u>The Essentials of Seamless Interoperability via Nearby Share</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-removing-your-fb-watch-history/"><u>Understanding the Impact of Removing Your FB Watch History</u></a></li>
-<li><a href="https://win-bits.techidaily.com/understanding-ts-file-formats-and-strategies-for-restoring-accidentally-deleted-ts-data/"><u>Understanding TS File Formats & Strategies for Restoring Accidentally Deleted TS Data</u></a></li>
-<li><a href="https://facebook.techidaily.com/youtubes-untold-story-on-how-monitoring-keeps-it-free-and-functional/"><u>YouTube's Untold Story on How Monitoring Keeps It Free and Functional</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-an-authentic-evaluation-of-recordcast-services/"><u>[New] In 2024, An Authentic Evaluation of RecordCast Services</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-enhancing-engagement-with-impeccable-ppt-recordings/"><u>2024 Approved Enhancing Engagement with Impeccable PPT Recordings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-step-by-step-the-ultimate-4-methods-for-gameplay-screens/"><u>2024 Approved Step-By-Step The Ultimate 4 Methods for Gameplay Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-important-tech-news-stories-you-might-have-missed/"><u>4 Important Tech News Stories You Might Have Missed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/anticipating-advancasters-in-ai-the-4-features-to-expect-from-upcoming-gpt-5-release/"><u>Anticipating Advancasters in AI: The 4 Features to Expect From Upcoming GPT-5 Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/factory-resetting-your-yl-computing-device-scanners-made-easy-quick-tips-from-yl-software-experts/"><u>Factory Resetting Your YL Computing Device Scanners Made Easy - Quick Tips From YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-tiktok-is-eating-into-facebooks-revenue-and-user-numbers/"><u>How TikTok Is Eating Into Facebook's Revenue and User Numbers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-essential-thumbnail-strategies-for-amplifying-viewership-on-youtube/"><u>In 2024, Essential Thumbnail Strategies for Amplifying Viewership on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/legal-boundaries-redefined-as-germany-restricts-facebook-from-harvesting-whatsapp-data/"><u>Legal Boundaries Redefined as Germany Restricts Facebook From Harvesting WhatsApp Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-daily-rest-with-facebooks-alert-system/"><u>Maximizing Daily Rest with Facebook's Alert System</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-self-safety-marker-on-social-media/"><u>Personalizing Self-Safety Marker on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-anti-tracking-sentiment-among-iphones/"><u>The Surge in Anti-Tracking Sentiment Among iPhones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-solution-to-sticker-removal-on-tiktok/"><u>The Ultimate Solution to Sticker Removal on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unveiling-the-power-of-consistency-in-your-tiktok-clone-journey/"><u>Unveiling the Power of Consistency in Your TikTok Clone Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-did-sheryl-do-that-changed-facebook/"><u>What Did Sheryl Do That Changed Facebook?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/44or44k944kz44oz44go44oi44oq44kk44or56uv5pyr44gn5pya6ygp44gq44ov44os44o844og44os44o844oi44ks5a6f54plusplus44gz44kl44ot44oh44kq5asj5oplusb5pa55rov/"><u>パソコンとモバイル端末で最適なフレームレートを実現するビデオ変換方法</u></a></li>
 </ul></div>
 

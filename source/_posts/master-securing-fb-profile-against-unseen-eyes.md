@@ -1,7 +1,7 @@
 ---
 title: Master Securing FB Profile Against Unseen Eyes
-date: 2024-08-08T11:29:16.922Z
-updated: 2024-08-09T11:29:16.922Z
+date: 2025-01-03T00:05:12.206Z
+updated: 2025-01-06T05:37:44.779Z
 tags:
   - facebook
 categories:
@@ -18,9 +18,9 @@ thumbnail: https://thmb.techidaily.com/e4beac8fff1e6ed1138983bf5a17ed77a249b1784
  The internet brings people together, even when they'd rather it didn't. Maybe you don't want your colleagues to know what you get up to on the weekends, or perhaps you want to prevent your boyfriend's ex-girlfriend from stalking you. Whatever the reason, there ARE ways to stop strangers from seeing your Facebook profile.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Make Your Facebook Profile Private
 
  This is the most obvious way to keep prying eyes out of your Facebook account. You may not want to have anyone and everyone looking through your profile at any given time. You don't necessarily have to open up your profile to the public if you're not an influencer, content creator, celebrity, or public figure.
@@ -38,9 +38,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -65,8 +62,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Change Your Facebook Profile Discovery Settings
 
  Everyone gets the odd invite from random people, like people you went to high school with or mutual friends you don't really want to connect with. You've probably ignored a few invites for so long that you barely notice them on your Facebook account anymore. But it doesn't have to be that way.
@@ -79,14 +77,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 4. Next, click the**drop-down menu** , select**Friends** , and click**Close** .
 5. Now, click**Edit** next to the **Who can look you up using the phone number you provided?** option and do the same thing.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Change Your Facebook Post Settings
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
@@ -101,22 +101,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Keep a Low Profile on Facebook
 
  In the age of influencers and growing your social media accounts is a thing, there exists a group of Facebook users who want to keep a low profile. The benefits being that it comes with less bullying and harassment and makes for an overall pleasant experience.
 
  Connecting with people you know and limiting who can find and view your profile also reduces the chances that someone will steal your photos to impersonate you online. So, for absolute peace of mind, you can stop strangers from seeing your Facebook profile.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,4 +123,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/he-art-of-crafting-youtube-content-expert-tips-with-imovie-integration/"><u>[New] The Art of Crafting YouTube Content Expert Tips with iMovie Integration</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-transforming-trending-searches-into-video-concepts/"><u>[Updated] Transforming Trending Searches Into Video Concepts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-smoothly-lowering-sound-levels-using-garageband/"><u>2024 Approved Smoothly Lowering Sound Levels Using Garageband</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unlock-8-youtube-fitness-ideas-for-viewers-active-participation/"><u>2024 Approved Unlock 8 YouTube Fitness Ideas for Viewers' Active Participation</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-unveiling-todays-drones-tomorrows-promise/"><u>2024 Approved Unveiling Today's Drones Tomorrow's Promise</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-uptime-understanding-and-tracking-status/"><u>Facebook Uptime: Understanding and Tracking Status</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/free-online-converter-transform-mmf-audio-files-into-wav-format/"><u>Free Online Converter: Transform MMF Audio Files Into WAV Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-of-technology-firms-with-new-american-regulations/"><u>Future of Technology Firms with New American Regulations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-circlesmiths-arsenal/"><u>In 2024, Circlesmith's Arsenal</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/legacy-in-pixels-iphone-x-memories-photography-for-2024/"><u>Legacy in Pixels IPhone X Memories Photography for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-friends-start-conversations-crafting-an-avatar-themed-cover-for-facebook/"><u>Make Friends, Start Conversations: Crafting an Avatar-Themed Cover for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivate-facebook-post-phone-loss-quick-2fa-guide/"><u>Reactivate Facebook Post-Phone Loss: Quick 2FA Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-shows-growing-doubt-towards-technology-leaders-facebook-noted/"><u>Survey Shows Growing Doubt Towards Technology Leaders, Facebook Noted</u></a></li>
+</ul></div>
 

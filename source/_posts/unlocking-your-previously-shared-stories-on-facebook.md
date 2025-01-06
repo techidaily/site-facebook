@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Previously Shared Stories on Facebook
-date: 2024-08-08T11:28:49.746Z
-updated: 2024-08-09T11:28:49.746Z
+date: 2024-12-30T05:33:52.944Z
+updated: 2025-01-06T08:43:27.016Z
 tags:
   - facebook
 categories:
@@ -21,35 +21,31 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
 
  So, let's look at the built-in methods that you can use to find old posts on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Find Old Posts on Facebook
 
  You can go about this in four ways, the first two of which work great for searching through your or someone else's timeline. The other two focus mainly on finding posts on your timeline only. These methods include using the default search function, searching on your timeline, using timeline filters, and using the Activity Log.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Finding Old Posts Through Facebook Search
 
  You can use the default search on Facebook's home page to look for old posts on your or someone else's timeline. All you have to do is modify the search term slightly to get the required results. Follow along on your PC or phone to see how it works.
 
  The first thing to remember is that if you search for "My Posts", the search results that pop up are either the ones you've posted yourself or those posted by others that you've seen in the past. You can add a keyword after this search term to refine the results further. For example, we searched for "My Posts Rumi", and the following old posts appeared as a result.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Search Results for My Post Rumi on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Results-for-My-Post-Rumi-on-Facebook.jpg)
 
  However, this is just a basic search with many irrelevant posts included. To refine it more, you have to tinker with some filters.
 
  First, you might want the search results to show only the posts published by you, and to do that, go to**Posts** under**Filters** . Then click on**Posts From** and select**You** in the dropdown menu. Now, all the posts it shows have been posted by you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Selecting the You filter to refine Facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Selecting-the-You-filter-to-refine-Facebook-search.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you still can't find the post you are looking for, you can further refine the search results by year. Again, go to**Posts** under**Filters** , and click on**Date Posted** . Here, you can choose the year of that post, and it will show results from that particular year only.
 
@@ -68,8 +64,9 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Using the Search Option on the Facebook Timeline
 
  If you're finding it hard to filter the search results with the first method, you also have a search option that is somewhat hidden within your or someone else's timeline. To access it, go to the Facebook profile page where you want to find a post, click on the**three-dot** icon just below the**Edit Profile** button, and select**Search** .
@@ -79,24 +76,22 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
  All the results that appear through this search are related to that specific timeline alone, offering a more focused approach. Note that you can directly search for the keyword with this method without typing "My Posts" or "John Doe Posts". The filters you get to refine the search are pretty much the same as you get in the first method.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Using Filters on the Timeline
 
  Sometimes, you won't know what to search for to find a particular post. In such cases, the above two search methods might not help, and you'd be better off using the**Filters** on the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
 
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
  On someone else's timeline, though, you only get to filter the posts by year, making this method not as useful for searching others' posts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Using the Activity Log on Your Timeline
 
@@ -120,14 +115,11 @@ No advertising on the website.
 
  As discussed above, writing captions or descriptions for posts is always a good idea. This helps you find posts easily in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +128,19 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-must-have-mac-frame-captures-handbook-limited-to-156-characters/"><u>[New] Must-Have Mac Frame Captures Handbook (Limited to 156 Characters)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-tips-for-meme-magic-with-kinemaster/"><u>2024 Approved Top Tips for Meme Magic with KineMaster</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/crafting-visual-stories-insights-into-the-vida-app-for-2024/"><u>Crafting Visual Stories Insights Into the Vida App for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-battle-between-ring-and-nest-an-in-depth-user-comparison/"><u>Decoding the Battle Between Ring and Nest: An In-Depth User Comparison</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/"><u>English Soccer Teams Are Boycotting Social Media Over Online Abuse</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-digital-representation-now-with-oculus/"><u>Enhanced Digital Representation Now With Oculus</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-playlists-facebooks-boombox-revelation/"><u>Harmonizing Social Media and Playlists: Facebook's Boombox Revelation</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hassle-free-steps-to-update-your-pc-with-new-corsair-drivers-windows/"><u>Hassle-Free Steps to Update Your PC with New Corsair Drivers (Windows)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-most-reliable-zero-price-online-photo-editors-guide/"><u>In 2024, The Most Reliable Zero-Price Online Photo Editors Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-the-intricacies-of-morphvox-evolution-for-2024/"><u>Navigating the Intricacies of MorphVOX Evolution for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/repairing-a-stand-alone-headphone-for-2024/"><u>Repairing a Stand-Alone Headphone for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-assessment-pros-and-cons-of-facebook-events/"><u>The Impact Assessment: Pros & Cons of Facebook Events</u></a></li>
+</ul></div>
 

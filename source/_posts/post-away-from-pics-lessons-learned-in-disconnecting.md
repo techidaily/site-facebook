@@ -1,7 +1,7 @@
 ---
 title: "Post Away From Pics: Lessons Learned in Disconnecting"
-date: 2024-08-08T11:23:23.414Z
-updated: 2024-08-09T11:23:23.414Z
+date: 2025-01-08T21:57:30.078Z
+updated: 2025-01-12T22:15:06.612Z
 tags:
   - facebook
 categories:
@@ -21,10 +21,11 @@ Speaking from my own experience, here's what you can expect.
 
 ## 1\. Unexpected Reactions
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Woman surprised on computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/surprise.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When I[quit social media](https://www.makeuseof.com/how-to-quit-social-media/) , I encountered extremes of reactions from friends and strangers alike. First, there was genuine concern from people who wondered if something had gone wrong in my digital life. A few people thought I was being contrary and tried to either cajole or coerce me into returning.
 
@@ -34,14 +35,8 @@ Speaking from my own experience, here's what you can expect.
 
  In any case, eventually, those around you will accept your decision or at least, their reactions won't affect you one way or the other. Be sure to have a standard line ready to explain your absence from social media while making small talk.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Feeling Directionless Online
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Social media app icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/curate-social-media-1.jpg)
 
  Every time you open your browser, you might be at a loss to decide what to do. You won't know where to go next, because your go-to web hangouts—Facebook and Twitter—are gone.
@@ -50,12 +45,13 @@ Speaking from my own experience, here's what you can expect.
 
  Planning to quit social media to avoid information overload? Watch out for the continued temptation of social networking sites like Instagram. These sites let you browse their content without an account.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## 3\. Being Out of the Loop
 
 ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You know those moments when everybody knows what's going on and you're the only clueless person around? Expect many more of them.
 
@@ -65,12 +61,17 @@ Speaking from my own experience, here's what you can expect.
 
  To[counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Limited Access to Certain Sites
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the[top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
 
@@ -83,8 +84,9 @@ Speaking from my own experience, here's what you can expect.
  Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more[opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. More Headspace
 
  I have saved the best for last. When you quit social media and get past the first few months of withdrawal symptoms, you'll begin to enjoy the headspace you have reclaimed.
@@ -101,14 +103,11 @@ Speaking from my own experience, here's what you can expect.
 
  Many people thrive on and enjoy the kind of dynamic, fast-paced interaction that social media provides. But for many others, it can have negative effects. As I see it, there's no definitive right or wrong approach to social media. There's only what works for you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +116,22 @@ Speaking from my own experience, here's what you can expect.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-exploring-the-sky-the-syma-x5c-for-drone-beginners/"><u>[New] 2024 Approved Exploring the Sky The Syma X5C for Drone Beginners</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-complete-guide-to-zooms-top-free-and-paid-transcribers-for-virtual-meetings/"><u>[New] The Complete Guide to Zoom's Top Free & Paid Transcribers for Virtual Meetings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-visibility-comprehensive-guide-to-video-marketing-titles-for-2024/"><u>[Updated] Elevate Visibility Comprehensive Guide to Video Marketing Titles for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-follower-deletion-identification/"><u>[Updated] Instagram Follower Deletion Identification</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unlock-your-individuality-a-guide-to-120plus-unique-snapchat-stories/"><u>[Updated] Unlock Your Individuality A Guide to 120+ Unique Snapchat Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-ray-bans-comeback-through-facebook-stories/"><u>Discovering Ray-Ban's Comeback Through Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/ejecting-facebooks-watchfulness-through-off-fb-settings/"><u>Ejecting Facebook's Watchfulness Through Off-FB Settings</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-fb-surveillance-with-off-facebook-activity-controls/"><u>Say No to FB Surveillance with Off-Facebook Activity Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-unlink-your-fb-and-spotify-connections-step-by-step/"><u>Securely Unlink Your FB and Spotify Connections Step-by-Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-detox-kit-remove-regretful-pics-and-posts-easily/"><u>Social Media Detox Kit: Remove Regretful Pics & Posts Easily</u></a></li>
+<li><a href="https://win-blog.techidaily.com/step-by-step-guide-creating-a-project-timeline-with-a-gantt-chart-in-excel/"><u>Step-by-Step Guide: Creating a Project Timeline with a Gantt Chart in Excel</u></a></li>
+<li><a href="https://fox-search.techidaily.com/step-by-step-guide-removing-unwanted-shortcut-icons-from-your-computer-desktop/"><u>Step-by-Step Guide: Removing Unwanted Shortcut Icons From Your Computer Desktop</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-personal-presence-without-excessive-social-browsing/"><u>The Path to Personal Presence Without Excessive Social Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-my-online-life-suddenly-muted/"><u>Why Is My Online Life Suddenly Muted?</u></a></li>
+</ul></div>
 

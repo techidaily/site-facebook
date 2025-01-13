@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2025-01-01T21:55:48.018Z
-updated: 2025-01-06T03:37:16.335Z
+date: 2025-01-07T18:28:20.281Z
+updated: 2025-01-12T16:51:40.830Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Two New Themes Added to Messenger and Instagram
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -83,19 +83,18 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-propel-your-igtv-presence-techniques-to-skyrocket-subscriber-count/"><u>[New] In 2024, Propel Your IGTV Presence Techniques to Skyrocket Subscriber Count</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-the-pathway-to-proficient-league-of-legends-screen-recordings/"><u>[New] In 2024, The Pathway to Proficient League of Legends Screen Recordings</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-optimize-obs-encoding-quick-solutions-for-2024/"><u>[New] Optimize OBS Encoding Quick Solutions for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevate-brand-recognition-optimizing-facebook-with-keywords-and-links/"><u>[Updated] 2024 Approved Elevate Brand Recognition Optimizing Facebook with Keywords and Links</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-resolve-instagram-video-glitches-today/"><u>[Updated] 2024 Approved Resolve Instagram Video Glitches Today</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-comprehensive-list-of-high-quality-game-entrance-makers-online/"><u>[Updated] In 2024, Comprehensive List of High-Quality Game Entrance Makers Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-screen-better-or-worse-life/"><u>Beyond the Screen: Better or Worse Life?</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-your-job-openings-impact-with-fb-strategies/"><u>Boosting Your Job Opening's Impact with FB Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-the-fb-messenger-boundary/"><u>Breaking Free From the FB Messenger Boundary</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-communities-the-7-positive-power-of-social-sites/"><u>Bridging Communities: The 7 Positive Power of Social Sites</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigate-and-dominate-with-youtube-studios-advanced-editing-features/"><u>Navigate and Dominate with YouTube Studio's Advanced Editing Features</u></a></li>
-<li><a href="https://win-updates.techidaily.com/streamlining-development-and-maintenance-how-repackaging-optimizes-the-software-lifecycle-in-corporate-settings/"><u>Streamlining Development and Maintenance: How Repackaging Optimizes the Software Lifecycle in Corporate Settings</u></a></li>
-<li><a href="https://article-helps.techidaily.com/teleport-into-virtuality-top-10-mobile-vr-headsets-reviewed/"><u>Teleport Into Virtuality Top 10 Mobile VR Headsets Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-postponements-whats-behind-oculus-quest-iii-delay/"><u>Unveiling Postponements: What's Behind Oculus Quest III Delay?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-captureclub-bout-for-2024/"><u>[New] CaptureClub Bout for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-ultimate-picture-narrative-craft-pro-edition/"><u>[New] In 2024, Ultimate Picture Narrative Craft - Pro Edition</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-mastering-screen-capture-with-1-5-of-the-best-pc-snipers-for-2024/"><u>[New] Mastering Screen Capture with #1-#5 of the Best Pc Snipers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-focusing-attention-with-eye-catching-intros-in-imovie/"><u>[Updated] 2024 Approved Focusing Attention with Eye-Catching Intros in iMovie</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-obs-vs-wirecast-ultimate-broadcast-showdown/"><u>[Updated] OBS vs Wirecast Ultimate Broadcast Showdown</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-premium-commercial-sky-data-haven/"><u>[Updated] Premium Commercial Sky Data Haven</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-zooming-in-a-guide-to-tight-shots-in-microsoft-teams-for-2024/"><u>[Updated] Zooming In A Guide to Tight Shots in Microsoft Teams for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/elite-virtual-auditoriums/"><u>Elite Virtual Auditoriums</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-harmonies-securing-fb-friendships/"><u>Hidden Harmonies: Securing Fb Friendships</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-facebooks-privacy-fortification-a-comprehensive-overview/"><u>Initiating Facebook’s Privacy Fortification: A Comprehensive Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharpen-life-skills-not-social-media-6-reasons-to-delete/"><u>Sharpen Life Skills, Not Social Media – 6 Reasons to Delete</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unable-to-download-apps-on-your-iphone-here-are-10-fixes-you-can-try/"><u>Unable to Download Apps on Your iPhone? Here Are 10 Fixes You Can Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-phone-without-fbs-app-browser/"><u>Unlocking Your Phone Without FB's App Browser</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: India's IT Decree Faces Stiff Legal Defense by WhatsApp
-date: 2025-01-02T03:12:00.381Z
-updated: 2025-01-06T06:48:32.642Z
+date: 2025-01-08T16:23:03.359Z
+updated: 2025-01-12T20:34:06.120Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India's New IT Rules Threaten User Privacy
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Indian Government Wants to Regulate Social Media Content
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
@@ -99,21 +99,18 @@ thumbnail: https://thmb.techidaily.com/8f0b4518ce0df25393954ab31a3f7f9f5a628c2c9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-from-commonplace-phones-to-cutting-edge-vr-headsets/"><u>[New] From Commonplace Phones to Cutting-Edge VR Headsets</u></a></li>
-<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-iphone-xs-max-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing iPhone XS Max Activation Lock without Previous Owner?</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-metaais-edge-in-ai-dialogue-arena/"><u>Evaluating MetaAI's Edge in AI Dialogue Arena</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-hack-deterrent-the-rise-in-q2-oculus-sales/"><u>Facebook's Hack Deterrent: The Rise in Q2 Oculus Sales</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-iphone-13-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On iPhone 13 in the Best Ways</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-advanced-mobile-mounting-accurate-camera-positioning/"><u>In 2024, Advanced Mobile Mounting Accurate Camera Positioning</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-leveraging-a-3-step-writing-system-for-social-media-success-with-fb-ads/"><u>In 2024, Leveraging a 3-Step Writing System for Social Media Success with FB Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/infinite-pathways-chronicling-every-click-like-share-in-your-facebook-story/"><u>Infinite Pathways: Chronicling Every Click, Like, Share in Your Facebook Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/rise-in-digital-dollars-crypto-promos-on-social-media/"><u>Rise in Digital Dollars: Crypto Promos on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-a-facebook-community/"><u>The Ultimate Guide to Removing a Facebook Community</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-the-missing-system-files-fix-procpsdll-errors-today/"><u>Troubleshooting the 'Missing System Files': Fix Procps.dll Errors Today</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-selection-32-leading-free-backup-tools-evaluated-and-rated/"><u>Ultimate Selection: 32 Leading Free Backup Tools Evaluated and Rated</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/upload-and-share-your-visual-content-on-youtube/"><u>Upload & Share Your Visual Content on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/whens-the-ideal-time-to-swap-your-fb-image/"><u>When's the Ideal Time to Swap Your Fb Image?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-are-you-seeing-certain-ads-on-facebook/"><u>Why Are You Seeing Certain Ads on Facebook?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/be-shorts-money-making-guide-key-requirements-and-potential-income/"><u>Youtube Shorts Money-Making Guide Key Requirements & Potential Income</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-googles-major-press-breakthroughs/"><u>Analyzing Google’s Major Press Breakthroughs</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-public-records-in-online-platforms-ever-cleared/"><u>Are Public Records in Online Platforms Ever Cleared?</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-authenticity-and-relationship-with-ripls-tips/"><u>Building Authenticity and Relationship with Ripl's Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-social-web-mastery-of-facebooks-open-platform-portal/"><u>Clarifying the Social Web: Mastery of Facebook’s Open Platform Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-connectivity-accessing-and-using-facebook-groups/"><u>Community Connectivity: Accessing and Using Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-intentional-facebook-experience-avoiding-reels/"><u>Crafting an Intentional Facebook Experience: Avoiding Reels</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fix-usb-compatibility-issues-by-updating-drivers-in-windows-11-7-and-eight-easily/"><u>Fix USB Compatibility Issues by Updating Drivers in Windows 11, 7 & Eight Easily</u></a></li>
+<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://win-top.techidaily.com/hp-laptop-troubleshooting-how-to-fix-when-it-wont-start-up/"><u>HP Laptop Troubleshooting - How To Fix When It Won’t Start Up</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-12-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 12</u></a></li>
+<li><a href="https://win11.techidaily.com/overriding-windows-update-requests/"><u>Overriding Windows Update Requests</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-visual-vault-techniques-for-capturing-tweets-animated-content-for-2024/"><u>The Visual Vault Techniques for Capturing Tweets’ Animated Content for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-audio-flair-for-video-production-techniques-for-smooth-addition-of-effects-for-2024/"><u>Updated Audio Flair for Video Production Techniques for Smooth Addition of Effects for 2024</u></a></li>
 </ul></div>
 

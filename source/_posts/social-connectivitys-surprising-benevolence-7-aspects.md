@@ -1,7 +1,7 @@
 ---
 title: "Social Connectivity’s Surprising Benevolence: 7 Aspects"
-date: 2025-01-05T06:01:35.477Z
-updated: 2025-01-06T07:57:57.252Z
+date: 2025-01-11T17:44:57.930Z
+updated: 2025-01-12T18:12:34.430Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Social Media Makes It Easier to Make Friends
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -42,9 +42,17 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 **Social media can help you make and keep friends.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Social Media Fosters Empathy
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -72,10 +80,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  **Social media allows you to live a life unhindered by small talk.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Social Media Makes the World Seem Smaller
 
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
@@ -90,12 +94,16 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 **Social media has made the world a much smaller place.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Social Media Helps You Build Relationships
 
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
@@ -111,10 +119,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -142,10 +146,6 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
@@ -165,17 +165,15 @@ thumbnail: https://thmb.techidaily.com/3dc1e13d990f9f4ed1b30979889fa15d157b3da05
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-spotify-turning-off-automatic-podcast-recommendations-for-2024/"><u>[New] Spotify Turning Off Automatic Podcast Recommendations for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-aperture-allstars-the-best-camera-lenses-to-capture-the-moment-ranked-1-10/"><u>2024 Approved Aperture Allstars The Best Camera Lenses to Capture the Moment, Ranked #1-10</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-audiovisual-authority-the-finest-computers-for-professional-edits/"><u>2024 Approved Audiovisual Authority The Finest Computers for Professional Edits</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/beyond-photography-an-exhaustive-review-of-the-toolwiz-app-2023/"><u>Beyond Photography An Exhaustive Review of the Toolwiz App, 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-a-course-to-private-pics-on-facebook/"><u>Charting a Course to Private Pics on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-announcing-new-privacy-policies-by-whatsapp/"><u>Delay in Announcing New Privacy Policies by WhatsApp</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/enhanced-user-engagement-with-cookiebot-technology/"><u>Enhanced User Engagement with Cookiebot Technology</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-best-5-streamlined-online-convertors-for-gifs-to-video/"><u>In 2024, Best 5 Streamlined Online Convertors for GIFs to Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-social-media-dominance-saturated-with-facebook/"><u>Is Social Media Dominance Saturated with Facebook?</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-screen-mirroring-failure-a-guide-to-solutions/"><u>Overcoming Screen Mirroring Failure: A Guide to Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-privacy-conceal-your-likes-on-fb-and-ig/"><u>Social Media Privacy: Conceal Your Likes on FB & IG</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotting-hidden-activity-on-your-pcemails/"><u>Spotting Hidden Activity on Your PC/Emails</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-create-awesome-instagram-videos-templates-and-tips/"><u>[New] How To Create Awesome Instagram Videos [Templates & Tips]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-enriching-meta-descriptions-a-template-transformation-journey/"><u>[Updated] In 2024, Enriching Meta Descriptions A Template Transformation Journey</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/boost-your-phones-speed-by-deleting-the-cache-in-android-systems/"><u>Boost Your Phone's Speed by Deleting the Cache in Android Systems</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-beats-leading-music-distortion-apps/"><u>Buzzing Beats Leading Music Distortion Apps</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-tutorial-on-how-to-erase-your-twitch-account-from-scratch/"><u>Comprehensive Tutorial on How To Erase Your Twitch Account From Scratch</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-personas-facebook-pages-vs-unames/"><u>Deciphering Online Personas: FaceBook Pages vs UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-your-facebook-notification-queue-efficiently/"><u>Delete Your Facebook Notification Queue Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-and-utilizing-facebooks-protection-framework/"><u>Discovering & Utilizing Facebook's Protection Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/disrupting-industry-norms-social-media-incs-5-million-investment-in-writers-platforms/"><u>Disrupting Industry Norms: Social Media Inc.'s $5 Million Investment in Writers' Platforms</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/scope-to-screen-partnerships-for-mcns/"><u>Scope-to-Screen Partnerships for MCNs</u></a></li>
 </ul></div>
 

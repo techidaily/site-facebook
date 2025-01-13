@@ -1,7 +1,7 @@
 ---
 title: Insightful Browsing Through Friends' Facebook Journeys
-date: 2024-08-08T11:24:07.497Z
-updated: 2024-08-09T11:24:07.497Z
+date: 2025-01-07T23:17:13.181Z
+updated: 2025-01-12T20:39:09.427Z
 tags:
   - facebook
 categories:
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/c6048430c1339bc95d70af5b42f06e3231c3552b0
 
 ## Insightful Browsing Through Friends' Facebook Journeys
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Quick Links
 
 * [How to See Your Friendship History on Facebook](#how-to-see-your-friendship-history-on-facebook)
@@ -44,20 +41,19 @@ thumbnail: https://thmb.techidaily.com/c6048430c1339bc95d70af5b42f06e3231c3552b0
 2. Click the**three dots icon** near the message button.
 3. Click**See Friendship** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -72,11 +68,16 @@ Close
 
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -86,8 +87,9 @@ Close
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -96,14 +98,11 @@ Close
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,4 +111,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-organizing-information-mastery-seamless-integration-of-chapters-in-youtube-videos/"><u>[New] In 2024, Organizing Information Mastery Seamless Integration of Chapters in YouTube Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-step-by-step-guide-to-adjust-youtube-video-speeds-on-the-fly/"><u>2024 Approved Step-By-Step Guide to Adjust YouTube Video Speeds on the Fly</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-swift-and-free-eradicate-red-eye-in-iphone-photography-tips/"><u>2024 Approved Swift and FREE Eradicate Red-Eye in iPhone Photography Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/badminton-teams-disconnect-from-screens/"><u>Badminton Teams Disconnect From Screens</u></a></li>
+<li><a href="https://techtrends.techidaily.com/connecting-a-computer-to-a-televison-screen-via-hdmi-cable-a-comprehensive-guide/"><u>Connecting a Computer to a Televison Screen via HDMI Cable: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/he-has-been-working-in-this-industry-for-10-years/"><u>He Has Been Working in This Industry for 10 Years.</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-infinix-gt-10-pro-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Infinix GT 10 Pro Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-quiet-social-media-interaction-minimization/"><u>Keep It Quiet: Social Media Interaction Minimization</u></a></li>
+<li><a href="https://win-updates.techidaily.com/mcafee-uninstallation-issues-discover-the-ultimate-guide-to-completely-remove-it/"><u>McAfee Uninstallation Issues? Discover The Ultimate Guide To Completely Remove It</u></a></li>
+<li><a href="https://fox-that.techidaily.com/tackling-iphone-xs-biggest-irritations-a-step-by-step-guide/"><u>Tackling iPhone X's Biggest Irritations: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fake-news-in-the-time-of-coronavirus-crisis/"><u>Unmasking Fake News in the Time of Coronavirus Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-step-by-step-process-of-severing-spotify-and-fb-ties/"><u>Unraveling the Step-By-Step Process of Severing Spotify and FB Ties</u></a></li>
+<li><a href="https://games-able.techidaily.com/which-elgato-stream-deck-fits-your-needs/"><u>Which Elgato Stream Deck Fits Your Needs?</u></a></li>
+</ul></div>
 

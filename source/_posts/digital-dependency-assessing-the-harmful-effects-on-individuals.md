@@ -1,7 +1,7 @@
 ---
 title: "Digital Dependency: Assessing the Harmful Effects on Individuals"
-date: 2024-07-29T07:40:48.279Z
-updated: 2024-07-30T07:40:48.279Z
+date: 2025-01-11T16:46:43.384Z
+updated: 2025-01-12T19:57:10.091Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
  Unfortunately, the bad effects of social media are all too real for a lot of us. Let's look at the negative impacts of social media on real people, so you can recognize these symptoms and get help if needed.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Social Media Is Bad for You
 
  You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
@@ -29,8 +30,9 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Depression and Anxiety
 
  Do you spend several hours per day browsing through social media? Spending too long on social networking sites could adversely affect your mood. In fact, chronic social users are more likely to report poor mental health, including symptoms of anxiety and depression.
@@ -42,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
@@ -58,9 +61,6 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -86,8 +86,9 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -110,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. General Addiction
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
@@ -122,23 +127,17 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Handle the Negative Effects of Social Media
 
  As with everything else, there are good and bad aspects of social media. We've discussed some of the negative impacts social media has for many, but you're the one who must decide whether there's more help or harm in it for you personally.
 
  If you find that social media is having a negative impact on your life, stop using it. However, if you decide to stay, there are ways to waste less time on social media, and thus maintain a healthier relationship with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +146,24 @@ thumbnail: https://thmb.techidaily.com/8cff42ae0b07628cf47b2fefd624aed56ec467c25
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-become-an-instagram-content-wizard-with-smart-cropping-practices-for-2024/"><u>[New] Become an Instagram Content Wizard with Smart Cropping Practices for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-groundbre-folio-of-gaming-loggers-alternatives-to-fbx/"><u>[New] Groundbre Folio of Gaming Loggers Alternatives to FBX</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-overcoming-the-windows-11-photo-app-hurdles/"><u>[New] Overcoming the Windows 11 Photo App Hurdles</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-establishing-industry-ties-via-facebook/"><u>A Step-by-Step Guide to Establishing Industry Ties via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-robust-account-protection-through-2fa-on-gmail-and-outlook-systems/"><u>Achieving Robust Account Protection Through 2FA on Gmail & Outlook Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-private-chats-in-fb-secure/"><u>Are Private Chats in FB Secure?</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-revised-page-tagging-system/"><u>Breaking Down Facebook's Revised Page Tagging System</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-connotations-of-single-word-via-photos/"><u>Capturing Connotations of Single Word via Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/claim-prestige-metas-verified-status-stamp/"><u>Claim Prestige: Meta’s Verified Status Stamp</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/claude-ai-explained-revolutionizing-communication-in-businesses/"><u>Claude AI Explained: Revolutionizing Communication in Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-counterfeit-digital-dossiers-online/"><u>Crafting Counterfeit Digital Dossiers Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/daily-retrospection-made-simple-with-facebooks-feature/"><u>Daily Retrospection Made Simple with Facebook's Feature</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-watch-espn-plus-on-an-lg-smart-tv/"><u>How to Watch ESPN Plus on an LG Smart TV</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unlocking-engaging-sound-stories-podcast-scriptwriting-demystified/"><u>In 2024, Unlocking Engaging Sound Stories Podcast Scriptwriting Demystified</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-ultimate-guide-to-producing-polished-professional-looking-videos/"><u>New In 2024, The Ultimate Guide to Producing Polished, Professional-Looking Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/solving-zerodxgierordevicelatencyerror-for-win11-users/"><u>Solving ZeroDXGIErorDeviceLatencyError for Win11 Users</u></a></li>
+</ul></div>
 

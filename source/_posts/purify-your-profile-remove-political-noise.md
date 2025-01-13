@@ -1,7 +1,7 @@
 ---
 title: "Purify Your Profile: Remove Political Noise"
-date: 2024-08-08T11:24:42.383Z
-updated: 2024-08-09T11:24:42.383Z
+date: 2025-01-07T23:37:59.279Z
+updated: 2025-01-12T16:36:24.780Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,12 @@ thumbnail: https://thmb.techidaily.com/98b85ce6d797323413c6bf7e018c1d8e6594fdbbf
 
  Here's how you can block political and other annoying content on your Facebook account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Timeline Can Get Swamped With Politics
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
@@ -35,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/98b85ce6d797323413c6bf7e018c1d8e6594fdbbf
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
@@ -44,15 +46,11 @@ thumbnail: https://thmb.techidaily.com/98b85ce6d797323413c6bf7e018c1d8e6594fdbbf
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
@@ -66,8 +64,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Remove Your Political Views From Your Profile
 
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
@@ -84,27 +83,25 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Creating a Facebook Feed You Enjoy
 
  With these tools at your disposal, there's very little reason to get annoyed at Facebook ever again. Facebook doesn't have to be irritating—it can be a legitimate way to keep up with friends and talk about interesting things, without getting bogged down in toxic rants and attention-seeking behavior.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,4 +110,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-radiant-palette-adjuster/"><u>[New] In 2024, Radiant Palette Adjuster</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-perfecting-instagram-stories-adding-and-sharing-custom-emojis/"><u>[Updated] 2024 Approved Perfecting Instagram Stories Adding & Sharing Custom Emojis</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-ethical-engagement-sustainable-strategies-for-content-creeps-for-2024/"><u>[Updated] Ethical Engagement Sustainable Strategies for Content Creeps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-the-call-facebook-orders-ruling-on-prohibited-access/"><u>Awaiting the Call: Facebook Orders Ruling on Prohibited Access</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enabling-quick-boot-mode-to-accelerate-pc-launches-on-windows-11/"><u>Enabling Quick Boot Mode to Accelerate PC Launches on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-policies-in-its-latest-hub-initiative/"><u>Exploring Facebook's Policies in Its Latest Hub Initiative</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-use-a-selfie-light/"><u>How to Use a Selfie Light</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-debunking-the-myths-surrounding-av1-and-vp9/"><u>In 2024, Debunking the Myths Surrounding AV1 and VP9</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-premium-cameras-for-claymation-artists/"><u>In 2024, Premium Cameras for Claymation Artists</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-growth-strategies-incorporating-facebook/"><u>Professional Growth Strategies - Incorporating Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-connectivity-ditching-daily-facebook-use/"><u>Rethinking Connectivity: Ditching Daily Facebook Use</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/revamping-windows-11-the-ultimate-customization-manual/"><u>Revamping Windows 11: The Ultimate Customization Manual</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-public-consciousness-from-pandemic-myths-online/"><u>Safeguarding Public Consciousness From Pandemic Myths Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-facebooks-feed-algorithm/"><u>The Mechanics of Facebook's Feed Algorithm</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-playing-spotify-on-facebook/"><u>The Ultimate Guide to Playing Spotify on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-warnings-metas-media-conquest/"><u>Three Warnings: Meta's Media Conquest</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-pick-for-mac-maintenance-expertly-selected-optimization-tools-reviewed/"><u>Top Pick for Mac Maintenance : Expertly Selected Optimization Tools Reviewed</u></a></li>
+</ul></div>
 

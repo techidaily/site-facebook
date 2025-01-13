@@ -1,7 +1,7 @@
 ---
 title: "The Fall of Forums: Top 6 Social Platform Factors"
-date: 2025-01-02T04:39:46.456Z
-updated: 2025-01-06T05:06:06.849Z
+date: 2025-01-06T18:15:09.139Z
+updated: 2025-01-12T21:55:13.977Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A Lack of Innovation From Forum Owners
 
  Online is a fast-moving place, and while social media tends to adapt and change with the times, forums remain fairly static. Most forums that continue to see regular use still run on myBB or phpBB (amongst other software), which—while solid and likely familiar to you—is fairly old software.
@@ -31,16 +35,12 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Social Media Is Designed to be Attention-Grabbing
 
 ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an[attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Forums Tend to Be Dedicated Around One Subject
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Apps Are More User-Friendly
@@ -74,15 +74,15 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. The Rise of Facebook Groups
 
  Facebook Groups are extremely popular, with over[1.8 billion people using them monthly](https://www.searchenginejournal.com/1-8-billion-people-use-facebook-groups-every-month/397109/) . It's no surprise; they are well-designed and make it simple to keep up with conversations. As they are typically narrowly focused on a certain subject, it means that you can get information or conversation on specific subjects without even having to leave the Facebook app.
 
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Social Media Is the Current-Day Online Forum
 
@@ -105,22 +105,21 @@ thumbnail: https://thmb.techidaily.com/6658e9df1d38e14ee675787c7264985ccf523b4b4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-ultimate-guide-to-professional-gopro-filming/"><u>[New] 2024 Approved The Ultimate Guide to Professional GoPro Filming</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-photographers-choice-compile-of-essential-apps/"><u>2024 Approved Photographers' Choice Compile of Essential Apps</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/crafting-compelling-verses-with-ai-powered-assistance/"><u>Crafting Compelling Verses with AI-Powered Assistance</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-spotify-account-from-your-facebook-space/"><u>Disconnecting Spotify Account From Your Facebook Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-power-of-facebooks-latest-document-leak/"><u>Dissecting the Power of Facebook's Latest Document Leak</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-direct-messages-show-your-spot-to-friends/"><u>FB Direct Messages: Show Your Spot to Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/forgot-your-login-no-worries-we-reset-it-for-you/"><u>Forgot Your Login, No Worries! We Reset It for You</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-enhance-performance-updating-the-driver-for-your-intel-centrino-advanced-n-6239-wireless-card/"><u>How to Enhance Performance: Updating the Driver for Your Intel Centrino Advanced-N 6239 Wireless Card</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo S17? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-se-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone SE Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Lava Storm 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-hues-a-collection-of-the-best-11-video-tutorials/"><u>Mastering Hues A Collection of the Best 11 Video Tutorials</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-those-who-youve-shunned-on-facebook/"><u>Revisiting Those Who You’ve Shunned on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essential-steps-for-sharing-spot-with-fb-chat/"><u>The Essential Steps for Sharing Spot with FB Chat</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-your-business-potential-through-strategic-client-acquisition-on-facebook/"><u>Unlock Your Business Potential Through Strategic Client Acquisition on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unparalleled-subscriber-access-how-facebook-defeats-apples-standard-approach/"><u>Unparalleled Subscriber Access: How Facebook Defeats Apple's Standard Approach</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/updated-and-optimized-gigabyte-ethernet-driver-for-flawless-internet-connection/"><u>Updated and Optimized Gigabyte Ethernet Driver for Flawless Internet Connection</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-skyeconomys-haven-budget-friendly-large-data-space/"><u>[New] In 2024, SkyEconomy's Haven Budget-Friendly Large Data Space</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-virtual-paths-to-fitness-ranking-elite-treadmills/"><u>[Updated] In 2024, Virtual Paths to Fitness Ranking Elite Treadmills</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-gain-foothold-with-instagram-and-facebook-ad-integrations/"><u>Brands Gain Foothold with Instagram and Facebook Ad Integrations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-a-billion-view-empire-your-step-by-step-youtube-strategy/"><u>Building a Billion-View Empire Your Step-by-Step Youtube Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-cash-flow-the-online-money-mechanics/"><u>Connectivity Cash Flow: The Online Money Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructive-approach-to-sidestep-aggressive-advertisements/"><u>Constructive Approach to Sidestep Aggressive Advertisements</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-digital-overload-minimize-suggested-feeds/"><u>Control Digital Overload: Minimize Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-shareholders-of-facebook/"><u>Current Shareholders of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybernetic-cautionary-tales-decode-these-9-indicators-of-a-social-snatch/"><u>Cybernetic Cautionary Tales: Decode These 9 Indicators of a Social Snatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-defenders-guide-skip-three-snooping-apps/"><u>Data Defender's Guide: Skip Three Snooping Apps</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/download-xvideo-converter-convert-and-save-xvideos-as-mp4-free-software-for-pc-and-mac/"><u>Download XVideo Converter: Convert and Save XVideos as MP4 - Free Software for PC & Mac</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/guia-para-herramientas-gratuitas-de-desarrollo-de-imagenes-disco-en-sistemas-windows-versiones-7-8-10-and-11/"><u>Guía Para Herramientas Gratuitas De Desarrollo De Imágenes Disco en Sistemas Windows (Versiones 7, 8, 10 & 11)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guiding-through-utorrent-sync-troubles-on-pcs/"><u>Guiding Through uTorrent Sync Troubles on PCs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-motorola-moto-e13-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Motorola Moto E13 to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/time-travel-for-video-views-youtube-upside-down-guide-for-2024/"><u>Time Travel for Video Views YouTube Upside-Down Guide for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unlocking-hardware-secrets-at-toms-tech-resource-center/"><u>Unlocking Hardware Secrets at Tom's Tech Resource Center</u></a></li>
 </ul></div>
 

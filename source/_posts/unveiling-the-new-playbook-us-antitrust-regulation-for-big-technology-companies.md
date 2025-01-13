@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the New Playbook: U.S. Antitrust Regulation for Big Technology Companies"
-date: 2025-01-04T22:13:35.834Z
-updated: 2025-01-06T05:23:05.043Z
+date: 2025-01-07T00:14:43.605Z
+updated: 2025-01-12T21:45:50.476Z
 tags:
   - facebook
 categories:
@@ -26,33 +26,29 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -65,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/48eb4fc0f083727828418817e7d3c53949a229ffb
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -103,12 +95,16 @@ In essence: leave the selling to the sellers.
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -121,6 +117,10 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,16 +143,18 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-6-video-editing-apps-for-macos-big-sur-11/"><u>[New] 2024 Approved Top 6 Video Editing Apps for macOS Big Sur 11</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-transform-your-social-media-image-best-tools-for-professional-fb-cover-photos/"><u>[New] Transform Your Social Media Image Best Tools for Professional FB Cover Photos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-update-complete-shorts-visibility-restored-for-2024/"><u>[Updated] Update Complete Shorts Visibility Restored for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-world-through-your-lenses-how-ray-bans-latest-upgrade-by-meta-offers-instant-landmark-info-detailed-analysis-on-zdnet/"><u>Discover the World Through Your Lenses: How Ray-Ban's Latest Upgrade by Meta Offers Instant Landmark Info | Detailed Analysis on ZDNET</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-latest-version-of-magiccard-rio-pro-driver-optimized-for-windows-systems/"><u>Download Latest Version of Magiccard Rio Pro Driver - Optimized for Windows Systems</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/easy-to-follow-tips-for-hassle-free-high-dynamic-range-imaging/"><u>Easy-to-Follow Tips for Hassle-Free High Dynamic Range Imaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactivity-or-intrusion-cybersecurity-risks-on-fb-quizzes/"><u>Interactivity or Intrusion? Cybersecurity Risks on FB Quizzes</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-verdict-yet-facebook-board-postpones-judgment/"><u>No Verdict Yet: Facebook Board Postpones Judgment</u></a></li>
-<li><a href="https://facebook.techidaily.com/reclaim-privacy-how-to-avoid-facebooks-stalking/"><u>Reclaim Privacy: How to Avoid Facebook's Stalking</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-security-stress-navigating-the-signals-9-warnings-of-account-breach/"><u>Social Security Stress: Navigating the Signals (9 Warnings) of Account Breach</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-top-viewers-of-the-year-10-most-engaged-tweets-for-2024/"><u>[New] Top Viewers of the Year 10 Most Engaged Tweets for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-fbx-capture-tools-beyond-traditional-recorders-for-2024/"><u>[Updated] Top FBX Capture Tools Beyond Traditional Recorders for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1-simplifying-video-conversion-transform-mov-to-webm-with-these-top-5-methods/"><u>1. Simplifying Video Conversion: Transform MOV to WebM with These Top 5 Methods</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/customize-your-iphone-for-different-geographic-area/"><u>Customize Your iPhone for Different Geographic Area</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-list-of-those-youve-muted-on-facebook/"><u>Deciphering the List of Those You've Muted on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-private-videos-on-facebook/"><u>Decoding the Mystery of Private Videos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dependency-assessing-the-harmful-effects-on-individuals/"><u>Digital Dependency: Assessing the Harmful Effects on Individuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-approval-filters/"><u>Dissecting Facebook's Approval Filters</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-clubs-sever-social-media-links/"><u>Diving Clubs Sever Social Media Links</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/facetime-for-android-the-ten-best-free-alternatives-to-facetime-on-android/"><u>FaceTime for Android The Ten Best Free Alternatives to FaceTime on Android</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/follow-the-flow-of-forum-fancies/"><u>Follow the Flow of Forum Fancies</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-apple-iphone-se-2020-in-lost-mode-drfone-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock Apple iPhone SE (2020) in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/video-invitation-design-made-easy-top-apps-for-iphone-and-android/"><u>Video Invitation Design Made Easy Top Apps for iPhone and Android</u></a></li>
 </ul></div>
 

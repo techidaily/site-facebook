@@ -1,7 +1,7 @@
 ---
 title: Digital Realities Await - 3 Concerns of Facebook's Metaverse
-date: 2024-07-29T07:43:15.617Z
-updated: 2024-07-30T07:43:15.617Z
+date: 2025-01-10T23:07:11.760Z
+updated: 2025-01-12T19:04:23.379Z
 tags:
   - facebook
 categories:
@@ -27,9 +27,6 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 
  If Facebook, Inc.—now called Meta—succeeds, it will hold a winning hand in a tech space that may soon engulf our lives.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  This heightens concerns that a few tech giants will monopolize the metaverse (just as they're doing with Web 2.0), rather than fulfilling the popular utopian[vision of a metaverse](https://www.makeuseof.com/what-is-the-metaverse/) powered by a decentralized ecosystem.
@@ -42,15 +39,13 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. A Privacy Nightmare
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -65,13 +60,11 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Another Digital Addiction for Gen Z
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
@@ -86,9 +79,17 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -101,8 +102,9 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta's Vision of the Metaverse
 
  While many people believe that no single entity will be able to maintain significant control of the metaverse, Big Tech has different ideas. Companies like Meta do not thrive in decentralization. Meta's vision of the metaverse isn't exactly the user-controlled world the larger public envisions; it's an immersive version of its current products and ecosystem.
@@ -111,14 +113,11 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
 
  This doesn't mean you have to throw out your VR gaming devices right now, though. There are still key differences to understand between VR and the metaverse.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,17 @@ thumbnail: https://thmb.techidaily.com/eae25c8cb1f012b237b4735a8d726d09f7b30b165
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-make-every-snap-count-top-15-tips-and-tricks-for-2024/"><u>[New] How to Make Every Snap Count Top 15 Tips & Tricks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-8-youtube-ranks-elevating-your-content-with-premier-applications-for-2024/"><u>[New] Top 8 YouTube Ranks Elevating Your Content with Premier Applications for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-dashboard-directions-entering-google-meet-pcmobile/"><u>[Updated] 2024 Approved Dashboard Directions Entering Google Meet (PC/Mobile)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-restoring-windows-photo-viewer-in-windows-10-step-by-step-guide/"><u>[Updated] In 2024, Restoring Windows Photo Viewer in Windows 10 Step-by-Step Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-huawei-nova-y91-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Huawei Nova Y91 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-gaming-experience-with-social-integration-on-xbox/"><u>Enhancing Your Gaming Experience with Social Integration on Xbox</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-poco-x5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-incidents-social-network-sector/"><u>Hacking Incidents: Social Network Sector</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-facebook-experience-by-mastering-friends-list-management/"><u>Optimize Your Facebook Experience by Mastering Friends List Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-sues-indian-government-against-new-it-rules-that-threaten-users-privacy/"><u>WhatsApp Sues Indian Government Against New IT Rules That Threaten Users' Privacy</u></a></li>
+</ul></div>
 

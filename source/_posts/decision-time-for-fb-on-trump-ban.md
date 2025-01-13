@@ -1,7 +1,7 @@
 ---
 title: Decision Time for FB on Trump Ban
-date: 2024-07-29T07:40:56.862Z
-updated: 2024-07-30T07:40:56.862Z
+date: 2025-01-10T21:15:08.190Z
+updated: 2025-01-12T22:00:57.133Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
  Trump may be completely absent from social media right now, but he might come back (at least, on Facebook and Instagram) just in time for the 2024 US presidential election.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Will Rethink Trump's Ban in Two Years
 
  A new post to[Facebook Newsroom](https://about.fb.com/news/2021/06/facebook-response-to-oversight-board-recommendations-trump/) shares that the platform's ban of former US president Donald Trump will last for two years, effective from the date of the initial suspension (January 7).
@@ -32,23 +33,20 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
 
  The length of Trump's suspension, therefore, is an example of the maximum penalty. And unsurprisingly, the man himself is not happy about it. In a[statement](https://twitter.com/DaveLeeFT/status/1400880616032276480) , Trump called this ruling an "insult."
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook's penalties for politicians that violate policies](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-politicians-penalties.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  "When we assess content for newsworthiness, we will not treat content posted by politicians any differently from content posted by anyone else," writes Nick Clegg, Facebook VP of Global Affairs.
 
  Clegg continues by explaining that Facebook will apply the same "newsworthiness balancing test" to all content. The company will measure a post's public interest value against the potential harm of leaving it up, and decide on what action to take based on which weighs more.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How We Got Here: A Timeline of Trump's Facebook Ban
 
  To understand why Facebook removed Trump from its social media platforms, we have to roll all the way back to the beginning of the year.
@@ -57,10 +55,11 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
 
  Although confident in its actions, Facebook then passed Trump's case to its Oversight Board to review whether the company acted appropriately. After a bit of a delay, the[Oversight Board ultimately ruled that the ban was justified](https://www.makeuseof.com/donald-trump-facebook-ban-upheld-oversight-board/) —though its timeframe wasn't.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Tweaked News Feed Election](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-tweaked-news-feed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook was given six months to reassess Trump's suspension, and yet it has already announced its its action plan after less than one. On top of that, Facebook has also responded to the Oversight Board's 19 recommended policy changes.
 
@@ -69,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
  You can read[Facebook's response](https://about.fb.com/wp-content/uploads/2021/06/Facebook-Responses-to-Oversight-Board-Recommendations-in-Trump-Case.pdf) \[PDF\] in full on Facebook Newsroom.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Did Facebook Really Listen to the Oversight Board?
 
  It may sound like Facebook did as the Oversight Board suggested, but if you take a step back and look at the situation.... you'll find that nothing has changed.
@@ -79,14 +79,11 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
 
  Image Credit: Tia Dufour/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:TrumpAmericanFarmBureau%2719.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +92,26 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boost-your-blogs-imagery-adding-company-logowatermark-to-videos/"><u>[New] 2024 Approved Boost Your Blog's Imagery Adding Company Logo/Watermark to Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-peakrecorder-a-comprehensive-screen-capture-analysis-for-2024/"><u>[Updated] PeakRecorder A Comprehensive Screen Capture Analysis for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-self-balancing-snap-shots-without-supports-for-2024/"><u>[Updated] Self-Balancing Snap Shots Without Supports for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-vocalites-propagating-pandemic-myths/"><u>12 Vocalites Propagating Pandemic Myths</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1725287659890-dvd/"><u>耐久力あるDVDダウニングソフトを見つけよう。セキュアで信頼性高いツール集 - 「窓の杜」オススメリスト</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-pre-fb-account-removal/"><u>A Comprehensive Guide to Pre-FB Account Removal</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-freedom-through-user-data-monitoring-by-snapchat-and-twitter/"><u>App Freedom Through User Data Monitoring by Snapchat & Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-bickering-to-create-calmness-on-fb/"><u>Banishing Bickering to Create Calmness on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-boundaries-investigating-private-fb-spheres/"><u>Beyond Boundaries: Investigating Private FB Spheres</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-social-networks-posting-instagram-reels-on-facebook/"><u>Bridging Social Networks: Posting Instagram Reels on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-the-clan-together-full-group-lists-on-social-network/"><u>Bringing the Clan Together: Full-Group Lists on Social Network</u></a></li>
+<li><a href="https://techtrends.techidaily.com/bypassing-code-28-glitches-on-your-windows-system-expert-advice/"><u>Bypassing Code 28 Glitches on Your Windows System - Expert Advice</u></a></li>
+<li><a href="https://facebook.techidaily.com/custom-facebook-covers-making-use-of-your-digital-doppelganger/"><u>Custom Facebook Covers: Making Use of Your Digital Doppelganger</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-connoisseur-of-funimate-games/"><u>In 2024, From Novice to Connoisseur of Funimate Games</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-removing-background-distractions-in-skype/"><u>In 2024, Removing Background Distractions in Skype</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148939151-introducing-stronger-confidentiality-standards-facebooks-new-chat-encryption-features-rollout/"><u>Introducing Stronger Confidentiality Standards: Facebook’s New Chat Encryption Features Rollout.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/luminance-in-hd-boost-or-bust-in-hdr-world-in-2024/"><u>Luminance in HD Boost or Bust in HDR World, In 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-fixes-for-common-oculus-equipment-failures-in-the-new-year-of-2024/"><u>Ultimate Fixes for Common Oculus Equipment Failures in the New Year of 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ultimate-guide-to-hexacopter-wonders/"><u>Ultimate Guide to HexaCopter Wonders</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2025-01-03T06:05:21.498Z
-updated: 2025-01-06T05:59:52.025Z
+date: 2025-01-10T22:51:13.815Z
+updated: 2025-01-12T22:01:09.037Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
@@ -63,10 +63,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
 * Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the[Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
@@ -75,13 +71,13 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
@@ -102,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Quick Tips
@@ -110,7 +106,7 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
@@ -118,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
 * Under**General Settings** , you should make sure your name and contact details are accurate. If you lose access to your account and need to prove your identity, you'll have to be able to confirm your details.
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Be Facebook Privacy Aware
 
@@ -138,21 +138,18 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-a-step-further-the-revolutionary-lg-360-vr-headset-reviewed/"><u>[New] A Step Further The Revolutionary LG 360 VR Headset Reviewed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mastering-your-marketing-edge-establishing-a-biz-page-on-instagram/"><u>[New] In 2024, Mastering Your Marketing Edge Establishing a Biz Page on Instagram</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-post-production-pro-tailoring-video-content-to-instagram-standards-with-x/"><u>[Updated] In 2024, Post-Production Pro Tailoring Video Content to Instagram Standards with X</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tips-for-crafting-effective-igtv-titles-and-summaries/"><u>[Updated] In 2024, Tips for Crafting Effective IGTV Titles & Summaries</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/50-and-below-a-comprehensive-review-of-iseebells-video-doorbells/"><u>$50 and Below - A Comprehensive Review of ISeeBell's Video Doorbells</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/5-key-strategies-to-boost-your-writing-with-chatgpt-a-content-creators-guide/"><u>5 Key Strategies to Boost Your Writing with ChatGPT: A Content Creator's Guide</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/easy-steps-to-connect-vlc-media-player-with-chromecast-for-hd-content-display-on-tvs/"><u>Easy Steps to Connect VLC Media Player with Chromecast for HD Content Display on TVs</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-norms-in-facebook-connection-inquiries/"><u>Navigating Social Norms in Facebook Connection Inquiries</u></a></li>
-<li><a href="https://facebook.techidaily.com/personal-information-update-guide-on-facebook/"><u>Personal Information Update Guide on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/scrutinizing-securityfbcom-is-it-real-fb-safety-email/"><u>Scrutinizing @security@fb.com: Is It Real FB Safety Email?</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-a-twitchy-phone-screen-discover-7-fixes-to-resolve-the-issue/"><u>Struggling With a Twitchy Phone Screen? Discover 7 Fixes to Resolve the Issue</u></a></li>
-<li><a href="https://facebook.techidaily.com/succeed-with-meta-top-4-business-analytics-tools/"><u>Succeed with META: Top 4 Business Analytics Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-back-control-identifying-and-fixing-your-fb-breach/"><u>Taking Back Control: Identifying and Fixing Your FB Breach</u></a></li>
-<li><a href="https://facebook.techidaily.com/taming-the-trending-political-chaos/"><u>Taming the Trending Political Chaos</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-hashtags-effectiveness-in-building-online-communities-on-facebook/"><u>Understanding Hashtags' Effectiveness in Building Online Communities on Facebook</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-system-health-improvement-via-updates/"><u>Understanding System Health Improvement via Updates</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-effortless-fb-movie-access-top-8-tools-of-23/"><u>[New] Effortless FB Movie Access Top #8 Tools of '23</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-apex-capture-vs-lumen-hub/"><u>[Updated] Apex Capture VS Lumen Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/5m-investment-in-journalists-focused-venture-by-global-social-media-leader/"><u>$5M Investment in Journalists-Focused Venture by Global Social Media Leader</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-navigating-the-seas-of-sponsorships-a-youtubers-playbook/"><u>2024 Approved Navigating the Seas of Sponsorships A Youtuber's Playbook</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-connections-with-3-easy-to-learn-facebook-tag-strategies/"><u>Accelerate Connections with 3 Easy-to-Learn Facebook Tag Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-headlines-examining-metaverse-ownership-claims/"><u>Beyond Headlines: Examining Metaverse Ownership Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-free-delete-disconnect-and-discover/"><u>Break Free: Delete, Disconnect & Discover</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/convertidor-video-online-sin-costo-como-cambiar-contenido-3gpp-a-mpeg-facilmente-con-movavi/"><u>Convertidor Video Online Sin Costo: Cómo Cambiar Contenido 3GPP a MPEG Fácilmente Con Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-purging-possible-consequences-for-social-media-protection/"><u>Data Purging: Possible Consequences for Social Media Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149784631-hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game!</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-redmi-k70-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Redmi K70</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-10-best-final-cut-pro-x-alternatives-free-and-paid/"><u>Updated 10 Best Final Cut Pro X Alternatives Free & Paid</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96031800-9781938289736-wisdom-of-the-shamans/"><u>Wisdom of the Shamans | Free Book</u></a></li>
 </ul></div>
 

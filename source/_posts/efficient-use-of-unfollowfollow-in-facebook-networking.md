@@ -1,7 +1,7 @@
 ---
 title: Efficient Use of Unfollow/Follow in Facebook Networking
-date: 2024-07-29T07:42:03.180Z
-updated: 2024-07-30T07:42:03.180Z
+date: 2025-01-10T17:03:31.433Z
+updated: 2025-01-12T22:57:47.415Z
 tags:
   - facebook
 categories:
@@ -33,9 +33,9 @@ Facebook's follow feature works in two ways:
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is the Follow Feature Necessary?
 
 There are two reasons to use the follow feature.
@@ -48,10 +48,6 @@ There are two reasons to use the follow feature.
 
 ## How to Follow and Unfollow on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
@@ -66,11 +62,12 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![facebook unfollow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-unfollow.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
@@ -91,21 +88,17 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Do Your Facebook Followers See?
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Followers can see any of your public content. Remember, this doesn't only refer to text-based posts, you can also choose to make pictures, albums, videos, and even your likes public knowledge.
 
@@ -113,12 +106,13 @@ This same page contains three other settings you need to be aware of:
 
  To make your likes and follows public, go to your profile then**More > Likes** . Next, click on the three dots icon and choose**Edit the Privacy of Your Likes** . For each category, you can set the desired visibility.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to See Who Follows You on Facebook
 
@@ -130,9 +124,6 @@ This same page contains three other settings you need to be aware of:
 
 ## How Can You Remove Facebook Followers?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
@@ -145,23 +136,17 @@ This same page contains three other settings you need to be aware of:
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Should You Use the Follow Feature on Facebook?
 
  Hopefully, this article has given you a better understanding of the Facebook follow feature. Whether you decide to use the follow feature should depend on how you use Facebook.
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +155,24 @@ This same page contains three other settings you need to be aware of:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-background-beats-guide-tunes-for-visuals/"><u>[Updated] 2024 Approved Background Beats Guide Tunes for Visuals</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-yuneec-typhoon-h-review/"><u>2024 Approved Yuneec Typhoon H Review</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oppo-reno-9a-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Oppo Reno 9A</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-motorola-moto-g14-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Motorola Moto G14 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y55s-5g-2023-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y55s 5G (2023) To Phone | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/is-synthetic-media-from-generative-ai-increasing-disinformation-spread/"><u>Is Synthetic Media From Generative AI Increasing Disinformation Spread?</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-paradigm-shift-top-strategies-for-wealth-building-on-social-media/"><u>Profit Paradigm Shift: Top Strategies for Wealth-Building on Social Media</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-data-entry-with-smartdocument-tech-by-abbyy-and-pegasystems/"><u>Revolutionizing Data Entry with SmartDocument Tech by ABBYY and Pegasystems</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-endless-loop-breaker-deleting-your-account-forever/"><u>The Endless Loop Breaker: Deleting Your Account Forever</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-seo-guide-elevating-your-video-rankings-in-a-digital-age/"><u>Ultimate SEO Guide Elevating Your Video Rankings in a Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-spotify-from-your-fb-account-a-step-by-step-guide/"><u>Unlinking Spotify From Your FB Account: A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unravel-the-best-ps2-emulation-on-ios-devices-for-2024/"><u>Unravel the Best PS2 Emulation on iOS Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwind-with-these-six-reasons-to-let-go-of-facebook/"><u>Unwind with These Six Reasons to Let Go of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-calls-for-judicial-review-on-indian-communication-policy/"><u>WhatsApp Calls for Judicial Review on Indian Communication Policy</u></a></li>
+</ul></div>
 

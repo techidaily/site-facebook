@@ -1,7 +1,7 @@
 ---
 title: "Deep Dive Into Facebook's Metaverse: Three Concerns Raised"
-date: 2024-07-29T07:43:38.155Z
-updated: 2024-07-30T07:43:38.155Z
+date: 2025-01-10T18:02:12.800Z
+updated: 2025-01-13T00:02:17.183Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  Facebook is leading the charge to the metaverse, but you shouldn't get too excited yet. As great as the metaverse sounds, it has several potential consequences to carefully consider.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook and the Metaverse
 
  When it comes to disruptive technologies, the pioneers often end up on top. Few companies understand this as much as Facebook, as the multi-billion-dollar tech behemoth owes much of its success to its pioneering status in social media.
@@ -27,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  If Facebook, Inc.—now called Meta—succeeds, it will hold a winning hand in a tech space that may soon engulf our lives.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This heightens concerns that a few tech giants will monopolize the metaverse (just as they're doing with Web 2.0), rather than fulfilling the popular utopian[vision of a metaverse](https://www.makeuseof.com/what-is-the-metaverse/) powered by a decentralized ecosystem.
 
@@ -42,11 +47,12 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A Privacy Nightmare
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
@@ -61,11 +67,12 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Another Digital Addiction for Gen Z
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
@@ -80,14 +87,8 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. A Dangerous Monopoly
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
@@ -101,8 +102,9 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta's Vision of the Metaverse
 
  While many people believe that no single entity will be able to maintain significant control of the metaverse, Big Tech has different ideas. Companies like Meta do not thrive in decentralization. Meta's vision of the metaverse isn't exactly the user-controlled world the larger public envisions; it's an immersive version of its current products and ecosystem.
@@ -111,14 +113,11 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
 
  This doesn't mean you have to throw out your VR gaming devices right now, though. There are still key differences to understand between VR and the metaverse.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,19 @@ thumbnail: https://thmb.techidaily.com/ffa6265ad1a6a848473605e7aedcfa3ec46ffbe39
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-fade-to-black-in-premiere-pro/"><u>[New] Fade To Black In Premiere Pro</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-top-10-web-based-subtitle-editor-tools-for-2024/"><u>[New] Top 10 Web-Based Subtitle Editor Tools for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-banish-buffering-repair-facebook-videos-on-phonestablets/"><u>[Updated] In 2024, Banish Buffering – Repair Facebook Videos on Phones/Tablets</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-elevate-vlogging-select-best-handheld-and-tripod-systems/"><u>[Updated] In 2024, Elevate Vlogging Select Best Handheld and Tripod Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-new-possibilities-in-relationships-via-facebooks-platform/"><u>Discovering New Possibilities in Relationships via Facebook's Platform</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-samsung-galaxy-a14-4g-frp-by-drfone-android/"><u>Full Guide to Bypass Samsung Galaxy A14 4G FRP</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/how-to-build-circles-and-spheres-in-minecraft-for-2024/"><u>How to Build Circles and Spheres in Minecraft for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-change-in-online-communities-with-new-admin-resources-from-fb/"><u>Leading Change in Online Communities with New Admin Resources From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-facebooks-emoji-expressions/"><u>Navigating the Nuances of Facebook’s Emoji Expressions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reversal-techniques-a-new-perspective-on-youtube-videos/"><u>Reversal Techniques A New Perspective on YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-steps-how-to-disassociate-from-facebook-tags/"><u>Simplified Steps: How to Disassociate From Facebook Tags</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-the-art-of-discretion-blurring-faces-in-video-editing/"><u>Updated 2024 Approved The Art of Discretion Blurring Faces in Video Editing</u></a></li>
+</ul></div>
 

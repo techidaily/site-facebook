@@ -1,7 +1,7 @@
 ---
 title: Disabling Facebook's Notification System Entirely
-date: 2024-07-29T07:42:42.721Z
-updated: 2024-07-30T07:42:42.721Z
+date: 2025-01-10T19:35:00.808Z
+updated: 2025-01-12T16:12:45.601Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85
 
  This has led to many people exceeding their desired screen time. Are you looking for a way to reduce the use of Facebook? If so, turning off notifications with a few simple steps can benefit you greatly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Benefits of Turning Off Facebook Notifications
 
  Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
@@ -29,18 +33,12 @@ thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85
 
  That’s why people should turn off their notifications every couple of days to give themselves time to relax and refresh for the coming days. Releasing stress away from the screen can have a number of mental health and productivity benefits.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Better Concentration
 
  Let’s face it—we run to grab our mobile phone the second its screen brightens for a notification. This can be really distracting if you’re trying to work or study.
 
  By stopping Facebook notifications on your mobile and desktop, it is possible to concentrate on the task at hand.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Healthy Lifestyle
 
  Addiction to social media apps can lead to a sedentary lifestyle and lack of activity. Instead of spending time clicking every notification you receive on Facebook, we recommend going out to grab some fresh air and refrain from using the phone.
@@ -50,20 +48,13 @@ thumbnail: https://thmb.techidaily.com/2e153e0e621bce9ac8484d65d8c4dd2eb6f5a3b85
  Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Block Facebook Notifications
 
 Users can block notifications from their desktops and mobile devices.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Blocking Mobile Notifications From Facebook
 
  First, let’s talk about blocking Facebook notifications from your mobile device. Since our phones are always at hand, it can be hard to avoid the notifications coming in.
@@ -75,8 +66,9 @@ Users can block notifications from their desktops and mobile devices.
 ![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
@@ -98,11 +90,20 @@ Close
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -112,9 +113,6 @@ Close
 4. Navigate to**Notifications** . This list contains settings of how notifications appear on your phone.
 5. Toggle the tab to turn off**Show notifications,** which will revoke the app's access to display alerts. You can change them by revisiting the settings or changing**Where you receive notifications** from the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Blocking Desktop Notifications From Facebook
 
  Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
@@ -122,11 +120,13 @@ Close
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
 4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -137,9 +137,6 @@ Close
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Focus on Your Tasks By Blocking Facebook Notifications
 
  Facebook's notifications can be a distraction and can reduce your concentration and confidence.
@@ -150,14 +147,11 @@ Close
 
  We hope that blocking all Facebook notifications improves your productivity, reduces stress, and helps you embrace a healthy and active lifestyle.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +160,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-digital-footprint-and-interactive-iconography-honors/"><u>[New] 2024 Approved Digital Footprint and Interactive Iconography Honors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-vibrant-visuals-5-advanced-color-correction-methods/"><u>[New] 2024 Approved Vibrant Visuals 5 Advanced Color Correction Methods</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twit-favorites-of-the-year-amazon-primes-peak-series/"><u>[Updated] In 2024, Twit-Favorites of the Year Amazon Prime's Peak Series</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-role-of-extras-in-creating-dynamic-storytelling-for-2024/"><u>[Updated] The Role of Extras in Creating Dynamic Storytelling for 2024</u></a></li>
+<li><a href="https://win-premium.techidaily.com/1-restoring-your-lost-obs-footage-a-step-by-step-guide/"><u>1. Restoring Your Lost OBS Footage: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-review-significant-tech-failures/"><u>A Review: Significant Tech Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-fortified-facebooks-implementation-of-end-to-point-encryption-on-instagrammessenger/"><u>Digital Dialogues Fortified: Facebook's Implementation of End-To Point Encryption on Instagram/Messenger.</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-retrieve-your-lost-fb-passcode/"><u>Easy Steps to Retrieve Your Lost FB Passcode</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-navigating-peak-hours-best-times-for-instagram-posts/"><u>In 2024, Navigating Peak Hours Best Times for Instagram Posts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unbeatable-freebie-subtitle-services-our-top-picks/"><u>In 2024, Unbeatable Freebie Subtitle Services Our Top Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-social-spaces-with-facebooks-audio-innovation/"><u>Reimagining Social Spaces with Facebook's Audio Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-recruitment-via-social-media-platforms/"><u>Step-by-Step Guide to Recruitment via Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-privacy-price-avoid-facebooks-web-logging-feature/"><u>The Privacy Price: Avoid Facebook’s Web Logging Feature</u></a></li>
+</ul></div>
 

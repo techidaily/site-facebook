@@ -1,7 +1,7 @@
 ---
 title: "Debunking the Digital Dossiers: Unraveling Facebook's Misconits"
-date: 2024-07-29T07:43:28.387Z
-updated: 2024-07-30T07:43:28.387Z
+date: 2025-01-06T20:56:34.345Z
+updated: 2025-01-12T22:29:32.390Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/0c8f696950ea736c2174f2d7e8a74906124afdbd8
 Let's bust some common Facebook myths that are floating around.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. People Can See Who Viewed Their Profile
 
 ![A phone with Facebook logo laying next to scrabble letters spelling out social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/social-media-for-socialization.jpg)
@@ -38,19 +39,17 @@ Pixabay free image
 
 ## 2\. Facebook Messages From My Friends Are Safe to Click
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![woman in a christmas sweater holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-christmas-sweater.jpg)
 
  Your friends would never want to harm you, and you're right about that. Unfortunately, online miscreants try to take advantage of this trust. Sometimes, you'll get a weird message from your friend asking you to click a link. Don't do it![Facebook scams are becoming all too common](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , so you need to exercise the same precautions here as you would elsewhere on the internet. If you have received a message from a friend with a link, before you click it, ask them whether they intended to send that to you. If it's a public post, go through the comments and see if anyone has warned that this is a hoax or a virus.
 
 ## 3\. Facebook Is Going to Charge You Money
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Cybersecurity measures of sites with payment methods](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Cybersecurity-measures-of-sites-with-payment-methods.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
 
@@ -67,19 +66,25 @@ Pixabay free image
  Also, it means that if you've liked a certain page, your friends might see a photo of your face showing as a supporter of the page when the page is advertising on Facebook. So be careful what you "like".
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. You Can Post Other People's Content on Facebook
 
 ![Woman's hand handling a phone with a cup of coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/My-project-(4)-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When it comes to content ownership on Facebook, there are some things you need to know. Facebook is a place where you can post and share content, however, you need to make sure that the content you post is yours. If you post other people's content without their permission, you could be infringing copyright.
 
  In other words, don't share content you don't own or have a right to share. You can use a[Rights Manager](https://www.facebook.com/formedia/tools/rights-manager) to protect your own intellectual property if you are a content creator.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. It's Easy to Quit Facebook
 
 ![Person holding phone with social media apps as icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(53).jpg)
@@ -91,17 +96,26 @@ Pixabay free image
  You'll also need to manually disconnect any app you have connected to Facebook, uninstall the Facebook app from your phone and tablet, as well as clear out your browser history.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. If I Don't Use Facebook, It Doesn't Know Anything About Me
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook is a social network, and if you know a lot of people who use it, chances are that the social network has information about you. It's called a "[shadow profile](https://www.makeuseof.com/tag/facebook-shadow-profiles/) ". When your friends use Facebook, they give it access to their contact book and personal information. Now let's say one of your friends has you and your phone number in their contact book. Facebook stores this. Now let's say another friend has you, your phone number, and your email address in their contact book. Facebook will also store that and match it to the existing information.
 
  Let's say your boss has stored your name with your phone number and home address. Facebook gets that too. And without you ever knowing it, Facebook makes a "shadow profile" for you, which contains your name, your phone number, your address, and your email—even though you never gave it any of that information. That's a simplistic example of how data comes together. Facebook has much more complex algorithms running that can match more sensitive information.
 
  In today's connected world, unfortunately, there is almost nothing you can do to stop this other than to go completely off the grid and make sure no-one takes any photos of you. But that's easier said than done these days.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Facebook Is Getting a Dislike Button
 
@@ -113,14 +127,8 @@ Pixabay free image
 
  If you see a Facebook app that adds a Dislike button or even a third-party browser extension, don't install it. It's not made by Facebook and there is a chance some of these have malware.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## 9\. Facebook Is Overcrowded and Needs to Delete Inactive Accounts
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![A group of people engaged on their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-8088495.jpg)
 
  Have you ever seen a message saying that if you are not using your account, it will be deleted? The message goes on to ask you to prove you're active by copy-pasting that message or downloading something, otherwise your account will be deleted. There is a high chance that what you received was spam.
@@ -131,24 +139,8 @@ Pixabay free image
 
  The bottom line is that if you ever see something on your timeline asking you to download or copy-paste something to keep your account active, don't do it. If it looks really serious, report spam and malicious content directly to Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## 10\. Facebook Requires ID Proof
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
 
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
@@ -164,14 +156,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  You can protect yourself from a lot of Facebook myths if you understand how they work. For anything else, check if it has been mentioned on some sites where people report scams and malicious internet activities.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +169,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-precision-in-storyboard-planning/"><u>[Updated] In 2024, Precision in Storyboard Planning</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaching-privacy-boundaries-safely/"><u>Breaching Privacy Boundaries Safely</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-consumers-with-companies-via-facebook-innovation/"><u>Connecting Consumers with Companies via Facebook Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-significance-of-leaked-social-media-data/"><u>Deciphering the Significance of Leaked Social Media Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/disengage-from-discussions-apolitical-facebook-life/"><u>Disengage From Discussions: Apolitical Facebook Life</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/efficiently-reduce-file-size-with-h265-conversion-from-h2-64-without-sacrificing-video-quality/"><u>Efficiently Reduce File Size with H.265 Conversion From H.2 64 Without Sacrificing Video Quality</u></a></li>
+<li><a href="https://win-great.techidaily.com/guide-activating-windows-parental-control-features-via-the-control-panel-yl-computing-solutions/"><u>Guide: Activating Windows Parental Control Features via the Control Panel - YL Computing Solutions</u></a></li>
+<li><a href="https://common-error.techidaily.com/hp-laptop-camera-issues-in-windows-11-heres-how-to-get-it-working-again/"><u>HP Laptop Camera Issues in Windows 11? Here's How to Get It Working Again!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/kyocera-printer-drivers-download-and-install-for-windows/"><u>KYOCERA Printer Drivers Download and Install for Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/locked-out-of-your-account-lets-fix-it/"><u>Locked Out of Your Account? Let's Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-friday-fbs-enhanced-online-retail-hours/"><u>New Friday: FB's Enhanced Online Retail Hours</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-fix-list-for-11-windows-11-problems/"><u>The Ultimate Fix-List for 11 Windows 11 Problems</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-online-potential-mastering-the-art-of-thumbnail-sizing-for-2024/"><u>Unlocking Online Potential Mastering the Art of Thumbnail Sizing for 2024</u></a></li>
+</ul></div>
 

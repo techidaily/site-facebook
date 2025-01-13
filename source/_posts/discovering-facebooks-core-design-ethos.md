@@ -1,7 +1,7 @@
 ---
 title: Discovering Facebook's Core Design Ethos
-date: 2024-07-29T07:40:44.837Z
-updated: 2024-07-30T07:40:44.837Z
+date: 2025-01-07T17:28:53.802Z
+updated: 2025-01-12T20:03:08.835Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 
  Here, we'll help you understand whether Facebook Blueprint is right for your career journey and how it can add value to your side hustles or full-time work.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Facebook Blueprint?
 
  It’s one of the best online learning and certification platforms if you’re into social media branding, advertising, and marketing. The platform has a large[collection of online courses](https://www.makeuseof.com/top-platforms-create-sell-online-courses-2021/) that you can complete at your own pace. The duration for most of the courses falls in the range of 15 to 50 minutes.
@@ -34,13 +38,11 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
  It's a modular e-learning platform. It has separate sections for walk-in learners and certification-oriented learners. The following are the two separate modules of Facebook Blueprint:
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Programs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![An image showing the Facebook Blueprint Programs portal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Programs-Page.jpg)
 
 [Facebook](https://www.facebook.com/business/learn/digital-skills-programs)
@@ -58,12 +60,17 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 5. For brands & agencies.
 6. For small businesses.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Certification
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![A visual showing Facebook Blueprint Certification page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Certification-Page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Facebook](https://www.facebook.com/business/learn/certification)
 
@@ -97,9 +104,6 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 
  You might want to complete the online courses first before scheduling an exam and paying fees. Let’s say that you want to start as an associate in social media marketing.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![An image showing the registration link for Facebook Blueprint certification](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Blueprint-Certification-Example.jpeg)
 
 [Facebook](https://www.facebook.com/business/learn/certification/exams/100-101-exam)
@@ -117,9 +121,6 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 
  Related:[The Best Google Online Courses You Should Be Taking](https://www.makeuseof.com/tag/best-google-online-courses/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Display Facebook Blueprint Badges in Your Portfolio
 
  The platform will award you with a verifiable digital badge to showcase that you’re a Facebook Blueprint Certified Professional. It distinguishes you from others who strive for a career in branding and marketing in social media.
@@ -138,9 +139,6 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 
  Additionally, this is a trusted source of resource as Facebook itself are creating the learning materials.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![An image showing the Facebook Certification Career Network portal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Blueprint-Who-Is-It-For.jpeg)
 
 [Facebook Certification Career Network](https://www.facebookcertificationjobs.com/)
@@ -160,22 +158,20 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
 5. Most of the certification exams support multiple languages.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Pursue a Successful Career on Social Media
 
  Social media has become a key platform for brand promotion and marketing. Therefore, whether you’re a freelancer or full-timer, learning about brand promotion on Facebook is a skill that will help you grow your client base or career.
 
  While you’re at it, you may also want to know more about personal branding and how to do it right.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +180,24 @@ thumbnail: https://thmb.techidaily.com/6a5ef0f96e3143e13628bf5caeebc60a8c5be5cea
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-building-an-audience-on-ig-steps-to-reach-1k-in-one-month/"><u>[New] Building an Audience on IG Steps to Reach 1K in One Month</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-top-5-instagram-strategies-for-aspiring-influencers-real-success-stories/"><u>[New] In 2024, Top 5 Instagram Strategies for Aspiring Influencers Real Success Stories</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-iphone-hacks-for-minimalist-video-presentation/"><u>[New] IPhone Hacks for Minimalist Video Presentation</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-clean-up-your-facebook-account/"><u>5 Ways to Clean Up Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusation-facebook-forbids-authentic-ads/"><u>Accusation: Facebook Forbids Authentic Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-algorithm-10-compelling-arguments-for-quitting-social-media/"><u>Beyond the Algorithm: 10 Compelling Arguments for Quitting Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brand-image-with-standout-timeline-images/"><u>Building a Brand Image with Standout Timeline Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-connectivity-a-new-era-for-fb-groups/"><u>Channel Connectivity: A New Era for FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/command-center-expansion-recruiting-a-dedicated-fb-administrator/"><u>Command Center Expansion: Recruiting a Dedicated FB Administrator</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivitys-perks-uncovering-the-benefits-of-social-media/"><u>Connectivity's Perks: Uncovering the Benefits of Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-methods-to-reset-and-protect-your-fb-password/"><u>Critical Methods to Reset and Protect Your Fb Password</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-the-features-of-asuss-proart-pa-329q-the-ultimate-professional-display-for-2024/"><u>Exploring the Features of Asus's ProArt PA 329Q – The Ultimate Professional Display for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210974314-9798888328545-finished/"><u>Finished | Free Book</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-epson-gt-s50-printer-driver-on-windows-7-8-or-10-download-now/"><u>Install Epson GT S50 Printer Driver on Windows 7, 8 or 10 - Download Now!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-android-settings-how-to-reassign-primary-app-functionality/"><u>Mastering Android Settings: How to Reassign Primary App Functionality</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/podcast-production-perfection-from-draft-to-audio-bliss-for-2024/"><u>Podcast Production Perfection From Draft to Audio Bliss for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+</ul></div>
 

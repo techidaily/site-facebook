@@ -1,7 +1,7 @@
 ---
 title: Online Interaction as an Income Source
-date: 2025-01-05T03:12:18.395Z
-updated: 2025-01-06T02:51:52.875Z
+date: 2025-01-12T00:28:48.459Z
+updated: 2025-01-12T19:48:22.863Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Venture capital is a form of private financing and it's how a lot of social media companies get their start.
 
  Venture capital is when an investor, such as a wealthy individual or investment bank, believes that a start-up business has potential. They then invest money (or sometimes their time and expertise), usually in return for a share of the business. The larger their share in the business, the more influence they have over its decisions. The hope for the investors is that they make their money back and more when the business is larger and becomes profitable.
@@ -38,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
  You can see it everywhere you go. Promoted posts on Reddit's front page, videos within Instagram's Stories, sponsored tweets on Twitter's timeline, and so on.
@@ -47,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Social media platforms charge companies money so they can advertise on their site. The exact cost of that depends on many factors. For example, companies can pay more for their advert to be seen by more people or promoted for a longer period of time.
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. User Data
 
@@ -67,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Premium Memberships
@@ -75,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
@@ -90,19 +94,11 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
  For example, on Facebook you can raise money for charity. Facebook used to charge a transaction fee for this, but no longer does. However, it does still charge for personal fundraisers, which it claims is to "cover payment processing" and "taxes".
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Diversifying
 
@@ -111,6 +107,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  It's why Meta owns Facebook, WhatsApp, Instagram, and Oculus. It's also why Twitter has acquired companies like Gnip, MoPub, and Periscope. Not only do they get the technologies and user data that these companies possess, but they can also use them as an additional revenue source to fund their social media platform.
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
 
@@ -133,20 +133,22 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-best-8-filter-packs-for-dynamic-video-streaming-for-2024/"><u>[New] Best 8 Filter Packs for Dynamic Video Streaming for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-taste-the-trend-top-tiktok-food-challenges/"><u>[New] In 2024, Taste the Trend Top TikTok Food Challenges</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-influencer-marketing-5-steps-to-conquer-it/"><u>[Updated] In 2024, Instagram Influencer Marketing 5 Steps to Conquer It</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-protection-in-mail-applications-implementing-robust-2fa-systems/"><u>Boosting Protection in Mail Applications - Implementing Robust 2FA Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/containing-cyber-cheats-metas-commitment-to-confidentiality/"><u>Containing Cyber Cheats: Meta's Commitment to Confidentiality</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-resolve-windows-keyboards-with-sticky-keys-dilemma/"><u>How to Resolve Windows Keyboards with Sticky Keys Dilemma</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-oppo-a58-4g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Oppo A58 4G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ls-showdown-tech-titans-clashing-in-real-time/"><u>In 2024, The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/leading-sources-for-stunning-sky-hd-imagery-online/"><u>Leading Sources for Stunning Sky HD Imagery Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-copyright-after-sharing-a-selfie/"><u>Navigating Copyright After Sharing a Selfie</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-social-sphere-oversight-with-facebooks-modern-moderators/"><u>Strategic Social Sphere Oversight with Facebook's Modern Moderators</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-oneplus-by-fonelab-android-recover-music/"><u>The way to get back lost music from OnePlus</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-microsoft-flight-simulator-2020-persistent-pc-crashes/"><u>Troubleshooting Tips for Microsoft Flight Simulator 2020 Persistent PC Crashes</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-friends-may-be-leaving-social-media-today/"><u>Why Friends May Be Leaving Social Media Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152117996-will-the-verdict-fall-soon-facebooks-governance-on-trump-ban/"><u>Will the Verdict Fall Soon? Facebook's Governance on Trump Ban.</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhance-your-video-meetings-with-snap-shots-on-zoom-for-2024/"><u>[New] Enhance Your Video Meetings with Snap Shots on Zoom for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-enhancing-digital-presence-with-vimeo-sharing/"><u>[New] Enhancing Digital Presence with Vimeo Sharing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-prodigy-strategies-for-enthusiasts-in-seo/"><u>[Updated] Unveiling Prodigy Strategies for Enthusiasts in SEO</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-and-its-boundaries-a-look-into-the-reasons-behind-inaccessible-jailbreaks/"><u>ChatGPT and Its Boundaries: A Look Into the Reasons Behind Inaccessible Jailbreaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/deactivate-2fa-on-facebook-after-losing-phone-access-quickly/"><u>Deactivate 2FA on Facebook After Losing Phone Access Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-your-facebook-echo-show/"><u>Deciding on Your Facebook Echo Show</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-metas-decision-postponing-full-e2e-encryption-rollout/"><u>Delving Into Meta’s Decision: Postponing Full E2E Encryption Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-wellbeing-maintaining-balance-with-reduced-network-usage/"><u>Digital Wellbeing: Maintaining Balance with Reduced Network Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-honesty-from-hoodwinked-havens-online/"><u>Discerning Honesty From Hoodwinked Havens Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-facebooks-home-and-feed-redesign/"><u>Diving Into Facebook's Home and Feed Redesign</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-managing-downtinas-in-social-media-apps/"><u>Efficiently Managing Downtinas in Social Media Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-social-identity-with-a-new-page-title/"><u>Elevate Social Identity with a New PAGE Title</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/expert-guide-to-resolving-steam-vr-error-code-308/"><u>Expert Guide to Resolving Steam VR Error Code 308</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-ultimate-2023-tweet-video-roundup/"><u>In 2024, Ultimate 2023 Tweet Video Roundup</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-rocket-league-wont-open-effective-fixes-and-tips/"><u>Overcoming 'Rocket League Won't Open': Effective Fixes & Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/y-guide-image-to-youtube-thumbnail-conversion-made-easy/"><u>Snappy Guide Image to YouTube Thumbnail Conversion Made Easy</u></a></li>
 </ul></div>
 

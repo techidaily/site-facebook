@@ -1,7 +1,7 @@
 ---
 title: "Echoes of Friendship: Retrospective on FB Connections"
-date: 2024-07-29T07:41:18.717Z
-updated: 2024-07-30T07:41:18.717Z
+date: 2025-01-08T19:43:35.305Z
+updated: 2025-01-12T21:13:49.729Z
 tags:
   - facebook
 categories:
@@ -15,13 +15,6 @@ thumbnail: https://thmb.techidaily.com/e703390679e2e9d8302a199135d745cf8f0f1e644
 
 ## Echoes of Friendship: Retrospective on FB Connections
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### Quick Links
 
 * [How to See Your Friendship History on Facebook](#how-to-see-your-friendship-history-on-facebook)
@@ -38,9 +31,6 @@ No advertising on the website.
 
  Here's all you need to know about accessing your friendship history on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Your Friendship History on Facebook
 
  By viewing your friendship history on Facebook, you'll see a list of things you have in common and photos or posts you're both tagged in. There are two ways to view your Facebook friendship history: through a button on the friend's page or a custom URL.
@@ -54,11 +44,20 @@ No advertising on the website.
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -71,16 +70,14 @@ Close
 
  You should now be looking at a page that shows any posts, events, photos, and videos the two people are tagged in. At the top it will say,**You and \[Your Friend\]** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -90,9 +87,9 @@ Close
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -101,14 +98,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +111,20 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-integrating-youtube-videos-into-your-instagram-story/"><u>[New] 2024 Approved Integrating YouTube Videos Into Your Instagram Story</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-strategic-sharing-spoken-engagement-for-youtube-viewers/"><u>[New] Strategic Sharing Spoken Engagement for YouTube Viewers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-three-budget-friendly-strategies-for-audio-amplification-in-ios-films/"><u>[New] Three Budget-Friendly Strategies for Audio Amplification in iOS Films</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-expert-tips-for-maximizing-vscos-potential/"><u>[Updated] 2024 Approved Expert Tips for Maximizing VSCO's Potential</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-expert-methods-for-win10-game-screen-recording/"><u>[Updated] In 2024, Expert Methods for Win10 Game Screen Recording</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-secrets-to-precision-in-picking-drone-power-units/"><u>2024 Approved Secrets to Precision in Picking Drone Power Units</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resuscitate-a-non-responsive-facebook-profile/"><u>How to Resuscitate a Non-Responsive Facebook Profile</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-ultimate-list-top-game-clones-to-gta-v/"><u>In 2024, Ultimate List Top Game Clones to GTA V</u></a></li>
+<li><a href="https://facebook.techidaily.com/minimizing-visibility-of-post-endorsements/"><u>Minimizing Visibility of Post Endorsements</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflecting-on-2022s-biggest-tech-gaffes/"><u>Reflecting on 2022'S Biggest Tech Gaffes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-seamless-way-clearing-your-facebook-shared-content/"><u>The Seamless Way: Clearing Your Facebook Shared Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-the-endless-scroll-might-be-more-than-just-an-inconvenience-on-facebook/"><u>Why the 'Endless Scroll' Might Be More Than Just an Inconvenience on Facebook</u></a></li>
+</ul></div>
 

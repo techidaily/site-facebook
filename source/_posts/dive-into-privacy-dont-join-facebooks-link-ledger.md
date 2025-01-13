@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Privacy: Don't Join Facebook's Link Ledger"
-date: 2024-07-29T07:43:05.126Z
-updated: 2024-07-30T07:43:05.126Z
+date: 2025-01-05T20:12:21.753Z
+updated: 2025-01-12T23:53:18.568Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/be26802ef5bb50783815300426404d3fea7e0b5a3
 ---
 
 ## Dive Into Privacy: Don't Join Facebook's Link Ledger
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -38,9 +42,6 @@ thumbnail: https://thmb.techidaily.com/be26802ef5bb50783815300426404d3fea7e0b5a3
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -49,14 +50,8 @@ thumbnail: https://thmb.techidaily.com/be26802ef5bb50783815300426404d3fea7e0b5a3
 2. Tap the**three lines** in the bottom-right corner (iOS), or upper-right corner (Android) to head to the**Menu** section of the app.
 3. Expand the**Settings & privacy** option and tap**Link history** .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
@@ -67,9 +62,6 @@ Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Disable Link History on Facebook
 
  If you have opted into Link History and now want out, unfortunately, you won't find the option to toggle it off in the same Link History menu. Instead, you'll need to access Facebook's browser settings by following these steps:
@@ -82,16 +74,26 @@ Close
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -99,14 +101,11 @@ Close
 
 [Meta is notorious for tracking its users](https://www.makeuseof.com/tag/facebook-tracking-stop/) , so if you don't want the company to track the websites you visit while using Facebook, it's best not to enable Link History. However, if you'd rather see ads relevant to you than completely unrelated ones that are of no value, then you should opt in. The key is knowing what the feature does and what implications that has for your privacy and security.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,4 +114,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-igtv-video-placement-to-facebook-networks-5-ways/"><u>[New] In 2024, IGTV Video Placement to Facebook Networks (5 Ways)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-noobs-manual-to-saving-streaming-radio-lines/"><u>[Updated] In 2024, The Noob's Manual to Saving Streaming Radio Lines</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-the-ultimate-blueprint-for-seamless-eco-screen-integration/"><u>2024 Approved The Ultimate Blueprint for Seamless Eco-Screen Integration</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/best-pre-built-gaming-computers-find-your-perfect-match/"><u>Best Pre-Built Gaming Computers: Find Your Perfect Match</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-the-dots-finding-pages-profiles-and-groups-on-fb/"><u>Connect the Dots: Finding Pages, Profiles, and Groups on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-social-network-understanding-vk-in-russia/"><u>Decoding the Social Network: Understanding VK in Russia</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-12-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-breathtaking-judgment-and-variant-proposals/"><u>In 2024, Breathtaking Judgment & Variant Proposals</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-samsung-galaxy-a05-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Samsung Galaxy A05? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-protection-system-activation-process/"><u>Mastering Facebook's Protection System: Activation Process</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-100-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebrand-yourself-with-a-new-facebook-profile-pic/"><u>Rebrand Yourself with a New Facebook Profile Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-the-future-of-chat-when-will-fb-introduce-e2ee/"><u>Securing the Future of Chat: When Will FB Introduce E2EE?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/silver-tongues-senior-brains-and-new-languages/"><u>Silver Tongues: Senior Brains & New Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/using-spotify-directly-through-facebook-interface/"><u>Using Spotify Directly Through Facebook Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-choice-your-style-simplified-feed-management-on-social-media/"><u>Your Choice, Your Style: Simplified Feed Management on Social Media</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2025-01-04T18:40:51.271Z
-updated: 2025-01-05T17:27:19.538Z
+date: 2025-01-08T21:04:18.485Z
+updated: 2025-01-12T20:48:26.147Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Surveillance Capitalism?
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
@@ -44,9 +40,17 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -61,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
@@ -83,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
@@ -100,23 +104,19 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -145,17 +145,19 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ot-list-todays-youtube-sensations/"><u>[New] Hot List Today's YouTube Sensations</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-luminous-upgrades-5-must-try-online-video-tools/"><u>[New] In 2024, Luminous Upgrades 5 Must-Try Online Video Tools</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-aural-alchemy-the-essence-of-crossfade-techniques/"><u>[Updated] Aural Alchemy The Essence of Crossfade Techniques</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-expert-guide-to-optimal-tripod-setup-for-high-quality-vlogs/"><u>[Updated] Expert Guide to Optimal Tripod Setup for High-Quality Vlogs</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-privacy-vulnerability-fixing-it-now/"><u>Facebook Privacy Vulnerability: Fixing It Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-unhook-yourself-from-fb-on-android-phones/"><u>How to Unhook Yourself From FB on Android Phones</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo Reno 10 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-will-your-local-marketplace-adapt-if-fb-stores-pop-up-here/"><u>How Will Your Local Marketplace Adapt if FB Stores Pop Up Here?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-x100-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Vivo X100 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/inhibiting-the-apps-browser-functionality/"><u>Inhibiting the App's Browser Functionality</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/troubleshooting-vlc-media-player-dvd-issues-in-windows-10-and-11/"><u>Troubleshooting VLC Media Player DVD Issues in Windows 10 and 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/uk-sport-groups-pledge-no-online-presence/"><u>UK Sport Groups Pledge No Online Presence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-deep-dive-into-instagrams-daily-narrative-components-for-2024/"><u>[New] Deep Dive Into Instagram's Daily Narrative Components for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-video-partition-prowess-ultimate-recorder-ranking/"><u>[Updated] 2024 Approved Video Partition Prowess Ultimate Recorder Ranking</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-swiftly-seek-and-find-discarded-reddit-posts/"><u>[Updated] Swiftly Seek and Find Discarded Reddit Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-journey-for-vanishing-from-facebooks-world/"><u>A Step-by-Step Journey for Vanishing From Facebook's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-economics-how-twitter-tracks-users-for-zero-cost-access/"><u>App Economics: How Twitter Tracks Users for Zero Cost Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-assessment-for-(securityfacebookmailcom)-as-a-secure-mail-service/"><u>Authenticity Assessment for @<security@facebookmail.com> as a Secure Mail Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-vk-russias-alternative-to-facebook-revealed/"><u>Breaking Down VK: Russia’s Alternative to Facebook Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/cricket-associations-cut-ties-with-social-sites/"><u>Cricket Associations Cut Ties with Social Sites</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-apple-iphone-6s-plus-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling Apple iPhone 6s Plus Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-diminuendo-film-narrative/"><u>In 2024, Diminuendo Film Narrative</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-v29-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo V29 Pro Phone?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlock-your-iphones-sim-without-the-ejector-tool-hacks-and-tricks-revealed/"><u>Unlock Your iPhone's SIM Without the Ejector Tool - Hacks and Tricks Revealed</u></a></li>
 </ul></div>
 

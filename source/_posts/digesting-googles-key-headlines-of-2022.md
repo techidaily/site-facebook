@@ -1,7 +1,7 @@
 ---
 title: Digesting Google's Key Headlines of 2022
-date: 2024-07-29T07:43:32.850Z
-updated: 2024-07-30T07:43:32.850Z
+date: 2025-01-11T23:31:43.492Z
+updated: 2025-01-12T22:49:42.355Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
 ## 1\. The $400 Million Location Tracking Settlement
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
 
  Some people don't mind location tracking features, while others find them highly concerning. Either way, one should always know if or when a service is tracking their location.
@@ -34,9 +31,6 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
 ## 2\. The UK Ads Revenue Lawsuit
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
 
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
@@ -46,11 +40,16 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. The End of YouTube Originals
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In October 2006, when social media was still in its early days, Google announced that it had acquired YouTube for $1.65 billion. Sixteen years later, in January 2022,[Google decided to shut down YouTube Originals](https://www.makeuseof.com/why-google-killed-youtube-originals/) .
 
@@ -58,19 +57,8 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## 4\. The Violation of Sonos Patents
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
@@ -79,13 +67,13 @@ No advertising on the website.
 
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. A "Secret" Facebook Deal
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
@@ -97,15 +85,20 @@ No advertising on the website.
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. The $25B UK and Netherlands Lawsuits
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
@@ -116,14 +109,11 @@ No advertising on the website.
 
  There's no doubt that Google has seen its fair share of trials and tribulations throughout 2022, with various lawsuits, rumors, and changes to services giving it plenty of reasons to be featured in the news. But Google is no stranger to legal disputes and criticism, so we may see more similar headlines in 2023.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +122,24 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-elegant-aesthetics-mastering-youtubes-beauty-landscape-for-2024/"><u>[New] Elegant Aesthetics Mastering YouTube's Beauty Landscape for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-downloading-youtube-playlists-made-simple-and-easy/"><u>[New] In 2024, Downloading YouTube Playlists Made Simple & Easy</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-unlocking-video-editing-on-windows-11-for-professionals/"><u>[Updated] In 2024, Unlocking Video Editing on Windows 11 for Professionals</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/m4a-movavi-3gppm4a/"><u>在線即時 M4A 轉換服務 – 以 Movavi 技術支持的 3GPP到M4A 自動化過程</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-professional-icons-with-pre-made-graphic-elements/"><u>Crafting Professional Icons with Pre-Made Graphic Elements</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-in-the-limelight-without-ads-a-comprehensive-guide-to-youtube-income-for-2024/"><u>Earning in the Limelight without Ads A Comprehensive Guide to YouTube Income for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-entry-after-forgotten-or-revoked-login-credentials/"><u>How to Regain Entry After Forgotten or Revoked Login Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-report-300-investment-in-headsets-for-account-security/"><u>Insight Report: $300 Investment in Headsets for Account Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-mobile-facebook-exploration/"><u>Mastery Over Mobile Facebook Exploration</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-encryption-truthful-or-not/"><u>Messenger Encryption: Truthful or Not?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-best-mkv-video-cutters-for-mac-users-for-2024/"><u>New Best MKV Video Cutters for Mac Users for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-top-rated-mts-video-editors-expert-reviews/"><u>New Top-Rated MTS Video Editors Expert Reviews</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revive-your-internet-connection-the-ultimate-guide-to-mac-network-resets/"><u>Revive Your Internet Connection: The Ultimate Guide to Mac Network Resets</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-saga-tracing-facebooks-footprints/"><u>The Metaverse Saga: Tracing Facebook's Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-metrics-and-tools-for-thriving-businesses/"><u>Top 4 Metrics & Tools for Thriving Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-full-featured-spotify-use-in-facebook/"><u>Unlocking Full-Featured Spotify Use in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-a-storm-of-negative-headlines-for-fb/"><u>Watch Out! A Storm of Negative Headlines for FB</u></a></li>
+</ul></div>
 

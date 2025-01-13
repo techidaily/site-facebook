@@ -1,7 +1,7 @@
 ---
 title: Disabling Facebook App's Browsing Function
-date: 2024-07-29T07:41:34.454Z
-updated: 2024-07-30T07:41:34.454Z
+date: 2025-01-08T22:44:52.519Z
+updated: 2025-01-12T21:01:57.887Z
 tags:
   - facebook
 categories:
@@ -16,16 +16,18 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
 ## Disabling Facebook App's Browsing Function
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Quick Links
 
 * [Can You Disable Facebook's In-App Browser?](#can-you-disable-facebook-39-s-in-app-browser)
 * [How to Turn Off Facebook's Mobile Browser](#how-to-turn-off-facebook-39-s-mobile-browser)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Only message links in Facebook can be opened in external browser by using privacy settings.
@@ -35,9 +37,9 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
  The Facebook app opens links in its built-in browser by default. But what if you want to use your own preferred browser app instead? Here's what you need to know about disabling Facebook's in-app browser.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Disable Facebook's In-App Browser?
 
  Facebook used to give app users more control over the links they opened, allowing you to open most links in an external browser. However, when we tested the feature in 2024, we saw that this is no longer the case on both the Android and iOS apps.
@@ -47,10 +49,9 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
  So, while you can turn off Facebook's in-app browser for message links, other links will continue to open in the app's browser.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off Facebook's Mobile Browser
 
  Disabling Facebook's in-app browser is simple. However, the privacy setting to open up links externally only works for links sent in messages.
@@ -82,14 +83,11 @@ Close
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -98,4 +96,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-players-showcase-top-rated-oculus-devices-for-2024/"><u>[New] The Ultimate Players Showcase Top-Rated Oculus Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-reasons-to-quit-facebook-for-good/"><u>10 Reasons to Quit Facebook for Good</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/cliquez-pour-des-tutoriels-simples-5-techniques-denregistrement-decran-musicaux-sur-mac-par-movavi/"><u>Cliquez Pour Des Tutoriels Simples - 5 Techniques D'enregistrement D'écran Musicaux Sur Mac Par Movavi!</u></a></li>
+<li><a href="https://fox-http.techidaily.com/creating-a-softer-focus-iphone-image-blurring-explained/"><u>Creating a Softer Focus IPhone Image Blurring Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-older-friends-listings-on-facebook/"><u>Exploring Older Friends Listings on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-motorola-moto-g04-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Motorola Moto G04 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-social-footprint-tracking-all-facebook-interactions/"><u>Maximizing Your Social Footprint: Tracking All Facebook Interactions</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/schnell-zur-losung-probleme-mit-der-dell-migration-losen-einfachste-methoden/"><u>Schnell Zur Lösung: Probleme Mit Der Dell-Migration Lösen - Einfachste Methoden</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-complete-guide-to-drone-racing-plus-high-speed-fpv-drones-for-2024/"><u>The Complete Guide to Drone Racing + High-Speed FPV Drones for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tune-into-success-understanding-facebooks-music-revenue-model/"><u>Tune Into Success: Understanding Facebook's Music Revenue Model</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/variables-of-interest/"><u>Variables of Interest</u></a></li>
+</ul></div>
 

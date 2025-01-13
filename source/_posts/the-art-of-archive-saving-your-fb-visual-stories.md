@@ -1,7 +1,7 @@
 ---
 title: "The Art of Archive: Saving Your Fb Visual Stories"
-date: 2024-12-30T23:29:47.452Z
-updated: 2025-01-06T07:45:25.194Z
+date: 2025-01-11T22:23:13.580Z
+updated: 2025-01-12T22:46:02.630Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,13 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Download Facebook Photos
 
 ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -52,13 +52,13 @@ Follow these steps to download your Facebook album:
 ![Facebook's album page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-albums-page-web.jpg)
 3. Open the album that you want to download.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. In the top-right corner, click the**three-dot icon** and select**Download album** .  
 ![Downloading an album on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-facebook-album.jpg)
 5. Next, select**Continue** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Facebook will get to work creating a zipped folder. Depending on the size of the album, this can take some time. Once it's done, you will get a notification telling you that the album is ready to download. Click the notification, enter your Facebook password, and select**Continue** . Your album will immediately start downloading.
 
@@ -76,10 +76,6 @@ Follow these steps to download your Facebook album:
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
 4. Click**Request a download** from the pop-up.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
 
@@ -87,26 +83,26 @@ Follow these steps to download your Facebook album:
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-information-download-option.jpg)
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After submitting the request, Facebook will take you back to the**Download your information** page, indicating you have a pending request.
 
  Facebook will take some time to get the ZIP file ready, depending on how many photos and videos you have on Facebook. Once it's done, you will get a notification to download it from**Available Files** .
 
  Download and unzip the file to see all of your posts and images, with albums as sub-folders.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Which Is the Best Facebook Photo Downloader App?
 
@@ -135,6 +131,10 @@ Here's how to use it:
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Other Facebook Download Tools
 
  Apart from photos and videos, Facebook has a ton of other information about you. The company is also notorious for its data collection.
@@ -156,22 +156,18 @@ Here's how to use it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-vids-to-mp4-download-made-easy/"><u>[New] In 2024, Facebook Vids to MP4 - Download Made Easy</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-immersive-storytelling-harnessing-top-10-text-innovations-in-videos/"><u>[Updated] 2024 Approved Immersive Storytelling Harnessing Top 10 Text Innovations in Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-the-power-of-seamless-youtube-content-flow-onto-facebook/"><u>[Updated] 2024 Approved Unlocking the Power of Seamless YouTube Content Flow Onto Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/becoming-an-expert-in-facebooks-visual-communication/"><u>Becoming an Expert in Facebook’s Visual Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-moment-to-update-your-fb-avatar/"><u>Best Moment to Update Your FB Avatar</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypassreset-infinix-phone-screen-passcodepatternpin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Infinix Phone Screen Passcode/Pattern/Pin</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-using-the-transparency-hub-for-greater-understanding/"><u>Decoding Facebook: Using the Transparency Hub for Greater Understanding</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-best-free-bootable-antivirus-applications-top-15-recommended-picks/"><u>Discover the Best Free Bootable Antivirus Applications – Top 15 Recommended Picks</u></a></li>
-<li><a href="https://facebook.techidaily.com/erasing-facial-recognition-data-a-security-risk-for-social-platform-users/"><u>Erasing Facial Recognition Data – A Security Risk for Social Platform Users?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-says-it-isnt-dying-heres-why/"><u>Facebook Says It Isn't Dying: Here's Why</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-resident-evil-village-performance-lags-on-pc-a-comprehensive-guide/"><u>Fixing Resident Evil Village Performance Lags on PC: A Comprehensive Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-video-transfer-youtube-to-dailymotion-conversion-for-2024/"><u>Mastering Video Transfer YouTube to Dailymotion Conversion for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-landscapes-reimagined-by-facebook/"><u>Networking Landscapes Reimagined by Facebook</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/snag-exclusive-game-deals-during-octobers-prime-day-save-up-to-1000-before-time-runs-out-get-insights-today/"><u>Snag Exclusive Game Deals During October's Prime Day: Save Up To $1,000 Before Time Runs Out | Get Insights Today!</u></a></li>
-<li><a href="https://facebook.techidaily.com/uk-sports-titans-forfeit-social-media-presence-amid-abuse-backlash/"><u>UK Sports Titans Forfeit Social Media Presence Amid Abuse Backlash</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-triple-nation-bans-facebook-find-out/"><u>Which Triple Nation Bans Facebook? Find Out</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-insight-on-effortless-photo-and-video-importers-in-windows-10/"><u>2024 Approved In-Depth Insight on Effortless Photo & Video Importers in Windows 10</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-inside-stardust-a-complete-exploration-of-stardew-and-its-hidden-gem-ginger-isle/"><u>2024 Approved Inside Stardust A Complete Exploration of Stardew and Its Hidden Gem, Ginger Isle</u></a></li>
+<li><a href="https://win-forum.techidaily.com/boost-your-computers-speed-by-deleting-unnecessary-files-on-windows-11/"><u>Boost Your Computer's Speed by Deleting Unnecessary Files on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-an-impactful-social-media-narrative/"><u>Designing an Impactful Social Media Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-fbs-security-on-lost-phones-in-minutes/"><u>Disabling FB's Security on Lost Phones in Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-a-life-beyond-facebook-10-compelling-reasons-to-quit/"><u>Discovering a Life Beyond Facebook: 10 Compelling Reasons to Quit</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-shared-passions-via-chatting-game-surveys/"><u>Discovering Shared Passions via Chatting Game Surveys</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-f25-pro-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Oppo F25 Pro 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/quickly-move-and-edit-your-android-pictures-using-windows-11-a-simple-guide/"><u>Quickly Move & Edit Your Android Pictures Using Windows 11: A Simple Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/quiet-filming-techniques-to-consider-first/"><u>Quiet Filming Techniques to Consider First</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-lower-fps-in-dota-2-across-win10-and-win11-platforms/"><u>Troubleshooting: Lower FPS in Dota 2 Across Win10 & Win11 Platforms</u></a></li>
 </ul></div>
 

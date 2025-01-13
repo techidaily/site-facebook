@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-12-30T00:14:15.008Z
-updated: 2025-01-06T09:12:28.444Z
+date: 2025-01-10T19:45:31.702Z
+updated: 2025-01-12T16:13:21.998Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
@@ -43,7 +43,7 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -79,21 +79,16 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earnings-demystified-youtube-shorts-revenue-split-explained/"><u>[New] In 2024, Earnings Demystified YouTube Shorts Revenue Split Explained</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-quickly-snag-and-store-gifs-from-your-favorite-social-networks/"><u>[New] Quickly Snag and Store GIFs From Your Favorite Social Networks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-detailed-guide-to-advanced-usage-in-macs-preview-app/"><u>2024 Approved Detailed Guide to Advanced Usage in Mac's Preview App</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-tips-for-effective-hashtag-utilization-in-instagram-marketing/"><u>2024 Approved Essential Tips for Effective Hashtag Utilization in Instagram Marketing</u></a></li>
-<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismantling-facebooks-surveillative-approach-via-off-fb-settings/"><u>Dismantling Facebook's Surveillative Approach via Off-FB Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-and-gifpedia-face-possible-disentanglement-why-now/"><u>FB and Gifpedia Face Possible Disentanglement; Why Now?</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-severing-spotify-facebook-ties-completely/"><u>Guide to Severing Spotify-Facebook Ties Completely</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-add-edit-and-optimize-youtube-tagstitledescription-for-more-views/"><u>How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/karaoke-cloud-pro-upgrade-alert-from-february-3rd-2017-a-fresh-batch-of-50-songs-weekly-for-your-subscription-service-delight/"><u>Karaoke Cloud Pro Upgrade Alert: From February 3Rd, 2017 - A Fresh Batch of 50 Songs Weekly for Your Subscription Service Delight!</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-social-landscapes-identifying-facebook-connections/"><u>Navigating Social Landscapes: Identifying Facebook Connections</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/screencast-strategies-unleashed-powerful-ideas-inside-for-2024/"><u>Screencast Strategies Unleashed Powerful Ideas Inside for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-virtual-networking-hub/"><u>Streamlining Your Virtual Networking Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-facebook-view-more-simplified-now/"><u>Tailoring Facebook View More Simplified Now!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pre-deletion-dilemma-balancing-connectivity-and-privacy/"><u>The Pre-Deletion Dilemma: Balancing Connectivity and Privacy</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-3d-animation-on-a-budget-free-and-affordable-software-options-you-need-to-know/"><u>Updated 2024 Approved 3D Animation on a Budget Free and Affordable Software Options You Need to Know</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-ultimate-guide-to-screen-recording-on-a-dell-workstation-for-2024/"><u>[Updated] The Ultimate Guide to Screen Recording on a Dell Workstation for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/claude-2-demystified-how-it-works-and-what-you-can-do/"><u>Claude 2 Demystified: How It Works & What You Can Do</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-controversial-content-of-facebook-papers/"><u>Deciphering the Controversial Content of Facebook Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/decline-the-update-and-you-keep-full-access-to-your-whatsapp/"><u>Decline the Update, and You Keep Full Access to Your WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-endorsed-content/"><u>Decoding Meta's Endorsed Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-hidden-norms-and-etiquette-for-friend-requests-on-facebook/"><u>Decoding the Hidden Norms and Etiquette for Friend Requests on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-fbs-silent-post-selection-process/"><u>Demystifying Fb's Silent Post Selection Process</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-from-apple-iphone-6-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID From Apple iPhone 6 Making It Possible</u></a></li>
+<li><a href="https://extra-information.techidaily.com/professional-tips-for-capturing-audio-in-audacity/"><u>Professional Tips for Capturing Audio in Audacity</u></a></li>
+<li><a href="https://games-able.techidaily.com/revealing-the-veiled-web-experience-in-ps5-console/"><u>Revealing the Veiled Web Experience in PS5 Console</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/tailoring-your-windows-11-experience-a-step-by-step-guide-to-personalizing-your-desktop-expert-tips-by-yl-computing/"><u>Tailoring Your Windows 11 Experience: A Step-by-Step Guide to Personalizing Your Desktop - Expert Tips by YL Computing</u></a></li>
 </ul></div>
 

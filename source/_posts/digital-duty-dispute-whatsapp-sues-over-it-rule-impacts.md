@@ -1,7 +1,7 @@
 ---
 title: "Digital Duty Dispute: WhatsApp Sues Over IT Rule Impacts"
-date: 2024-07-29T07:42:06.108Z
-updated: 2024-07-30T07:42:06.108Z
+date: 2025-01-06T16:59:10.928Z
+updated: 2025-01-12T17:48:57.279Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
  The regulations would compel WhatsApp to break end-to-end encryption on its platform and compromise the privacy of its users.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## India's New IT Rules Threaten User Privacy
 
 [Reuters](https://www.reuters.com/world/india/exclusive-whatsapp-sues-india-govt-says-new-media-rules-mean-end-privacy-sources-2021-05-26) reports that Facebook-owned WhatsApp has issues with one of the new IT regulations in India, which states that social media platforms must identify the "first originator of information" when requested by government authorities.
@@ -29,18 +30,20 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Indian Government Wants to Regulate Social Media Content
 
  The Information Technology (Intermediary Guidelines and Digital Media Ethics Code) Rules, 2021, was[first announced](https://www.meity.gov.in/content/notification-dated-25th-february-2021-gsr-139e-information-technology-intermediary) by the Indian government on February 25, 2021\. It aims to regulate social media and messaging platforms using a code of ethics.
 
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
 
@@ -56,37 +59,31 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 
  Facebook has agreed with most of the new regulations, though it is also in talks with the Indian government over certain aspects.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## India Is One of WhatsApp's Key Markets
 
  India is one of WhatsApp's largest markets, with over 400 million users. The messaging platform is even used for business dealings in the country. Its usage has only increased during the ongoing pandemic due to social distancing norms that have been enforced.
 
  WhatsApp generally adheres to all regulations from the Indian government, but it is pushing back this time around as it believes the new rules are unfair and pose a privacy risk for its users.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +92,22 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-leveraging-google-for-precise-speech-to-text-conversion/"><u>[New] 2024 Approved Leveraging Google for Precise Speech-to-Text Conversion</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-prime-picks-for-live-tv-access-and-streaming/"><u>[Updated] Prime Picks for Live TV Access and Streaming</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-top-10-spotify-recorders-for-2024/"><u>[Updated] Top 10 Spotify Recorders for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/android-app-installation-enabling-voice-commands-for-chatgpt-with-voicegpt-technology/"><u>Android App Installation: Enabling Voice Commands for ChatGPT with VoiceGPT Technology</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-methods-to-download-and-improve-your-intel-hd-graphics-5500-software/"><u>Easy Methods to Download & Improve Your Intel HD Graphics 5500 Software</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/efficient-charging-meets-multimedia-a-dual-usbhdmi-hub-review-by-zdnet-experts/"><u>Efficient Charging Meets Multimedia: A Dual USB/HDMI Hub Review by ZDNet Experts</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-the-ecoflow-mobile-power-station-saved-my-household-from-the-latest-energy-crisis-insights-on-widespread-outages/"><u>How the EcoFlow Mobile Power Station Saved My Household From the Latest Energy Crisis - Insights on Widespread Outages</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-fix-facebook-notifications-not-loading/"><u>How to Fix Facebook Notifications Not Loading</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-picks-microphones-for-diverse-online-audiences-for-2024/"><u>Perfect Picks Microphones for Diverse Online Audiences for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinpointing-exact-time-i-joined-facebook/"><u>Pinpointing Exact Time I Joined Facebook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-guide-to-overcoming-the-missing-battery-issue-on-your-device/"><u>Quick Guide to Overcoming the 'Missing Battery' Issue on Your Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-login-info-for-facebook/"><u>Rebooting Login Info for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triple-threat-of-metas-social-supremacy/"><u>The Triple Threat of Meta's Social Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-wont-limit-account-functionality-if-you-dont-accept-its-new-privacy-policy/"><u>WhatsApp Won't Limit Account Functionality If You Don't Accept Its New Privacy Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/withholding-uninvited-network-suggestions-in-fb/"><u>Withholding Uninvited Network Suggestions in FB</u></a></li>
+</ul></div>
 

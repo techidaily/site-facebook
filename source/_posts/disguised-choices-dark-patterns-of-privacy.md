@@ -1,7 +1,7 @@
 ---
 title: "Disguised Choices: Dark Patterns of Privacy"
-date: 2024-07-29T07:42:44.369Z
-updated: 2024-07-30T07:42:44.369Z
+date: 2025-01-05T23:37:55.931Z
+updated: 2025-01-12T23:42:13.419Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
  Let's take a look at how dark patterns use psychological biases to manipulate the choices you make, even if those decisions aren't in your best interest.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Are Dark Patterns?
 
 [DarkPatterns.org](https://darkpatterns.org/) defines dark patterns as "tricks used in websites and apps that make you buy or sign up for things that you didn't mean to."
@@ -49,15 +46,16 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![NordVPN Sneak Into Basket Dark Pattern](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/NordVPN-Sneak-Into-Basket-Dark-Pattern.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
 
  You can read more about these tactics on the Dark Patterns website, as well as our[list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## How Companies Trick You Into Giving Up Your Privacy
 
 ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
@@ -66,9 +64,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Default Settings
 
  This dark pattern is pretty obvious. Nobody is surprised that major companies default to collecting a lot of your data. They make money by using your data to show you more relevant ads, as well as selling your information to third parties, so they want as much info as possible.
@@ -79,9 +74,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  A GDPR-compliant setup, without dark patterns, would have no default settings and let everyone choose whatever options they want from the start.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ### 2\. Ease of Changing Settings
 
  How simple do these companies make it to change privacy settings? If you've ever used Facebook or Google's privacy settings, you won't be surprised to find out that it's hard to turn data-sharing off. These services often choose images and text placement to encourage users to share more data.
@@ -93,9 +85,9 @@ The site lists 12 types of dark patterns to watch out for:
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Framing
 
  A huge part of dark patterns concerns how options are presented. Companies tell you the positives of letting them sell your data to advertisers, but not the negatives. And they tell you all the reasons you shouldn't increase your privacy options, but none of the privacy concerns you might face without them.
@@ -109,8 +101,9 @@ The site lists 12 types of dark patterns to watch out for:
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
@@ -128,8 +121,9 @@ The site lists 12 types of dark patterns to watch out for:
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Forced Action and Timing
 
  Do you make good decisions when you're rushed? Do you weigh all the options carefully, thinking about the pros and cons of each choice? Of course not. Under pressure, you feel that you have to pick a suitable option as quickly as possible.
@@ -156,20 +150,21 @@ The site lists 12 types of dark patterns to watch out for:
 
  You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called[Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dark Patterns Are Rough for Privacy
 
  Companies want you to part with your data so they can take advantage of it. If you won't do that willingly, they'll use every psychological trick they have to manipulate you into giving your info away. You must be vigilant to spot, and avoid falling for, these tactics.
 
  It would be great if we could just stop using the services that treated users this way, but since it's a widespread problem, you wouldn't be able to use almost anything with that strategy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,4 +173,24 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-quick-and-easy-skype-calls-to-mp3-files-free-for-2024/"><u>[New] Quick & Easy Skype Calls to MP3 Files (Free) for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unique-concepts-for-enhancing-fb-video-marketing-impact/"><u>[New] Unique Concepts for Enhancing Fb Video Marketing Impact</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/aim-for-perfection-selecting-superior-hd-live-streaming-equipment-for-2024/"><u>Aim for Perfection Selecting Superior HD Live-Streaming Equipment for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-why-a-user-may-disappear-from-chat-listings/"><u>Analyzing Why a User May Disappear From Chat Listings</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-oppo-a18-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Oppo A18? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/color-consistency-comparing-srgb-and-rgb-formats/"><u>Color Consistency Comparing Srgb and Rgb Formats</u></a></li>
+<li><a href="https://review-topics.techidaily.com/does-tecno-spark-10c-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Tecno Spark 10C Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-community-bonds-using-channels/"><u>Enhancing Online Community Bonds Using Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secret-data-the-new-headline-maker/"><u>Facebook's Secret Data: The New Headline-Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150171652-fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track!</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/how-to-restore-your-laptop-to-factory-settings-on-windows-10-8-or-7/"><u>How to Restore Your Laptop to Factory Settings on Windows 10, 8 or 7</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-itel-a05s-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Itel A05s</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-essential-techniques-for-yt-video-tweaking-with-wm-maker/"><u>In 2024, Essential Techniques for YT Video Tweaking with WM Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-photo-update-a-step-by-step-guide/"><u>Mastering Facebook Photo Update: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-customer-service-a-facebook-refund-journey/"><u>Navigating Customer Service: A Facebook Refund Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout.</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-transfer-facebook-posts-and-notes-to-three-popular-services/"><u>You Can Now Transfer Facebook Posts and Notes to Three Popular Services</u></a></li>
+</ul></div>
 

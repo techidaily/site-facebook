@@ -1,7 +1,7 @@
 ---
 title: "From Harvard to Facebook: Sheryl's Journey"
-date: 2024-08-08T11:23:58.045Z
-updated: 2024-08-09T11:23:58.045Z
+date: 2025-01-11T19:56:17.493Z
+updated: 2025-01-12T23:20:48.323Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/2a29084ef28c5d6ebf693615660d627bf6405cc5a
  Sandberg has seen Meta, previously Facebook, through noteworthy events—including several controversies. So, let's take a run-down of her resignation and a brief history of her role at Meta over the years.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Sheryl Sandberg Resigns From Meta
 
  Meta's second-in-command is stepping down from her position after 14 years at the helm of its operations. She announced her resignation in a lengthy Facebook post on May 2, 2022.
@@ -34,16 +35,13 @@ thumbnail: https://thmb.techidaily.com/2a29084ef28c5d6ebf693615660d627bf6405cc5a
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## A Brief History of Sheryl Sandberg's Role at Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -53,11 +51,11 @@ thumbnail: https://thmb.techidaily.com/2a29084ef28c5d6ebf693615660d627bf6405cc5a
 
  For instance, there were allegations that Facebook helped Trump win the 2016 US presidential election by allowing his camp to spread fake news on the platform. However, Sandberg denied Facebook's role in Trump's win.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![President Trump Delivering Remarks in New Orleans](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/trump-at-ideag.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Tia Dufour/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:TrumpAmericanFarmBureau%2719.jpg)
 
@@ -72,15 +70,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Sheryl Sandberg Is Leaving Meta
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
@@ -94,14 +93,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Sandberg admitted she does not know what comes next for her in her Facebook post. However, she said she wants to focus on her foundation and philanthropic efforts, marriage, and blended family.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,4 +106,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-identifying-the-optimal-cloud-data-vaults-for-2024/"><u>[New] Identifying the Optimal Cloud Data Vaults for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-studio-techniques-decoded-xvideostudio-edition/"><u>[New] In 2024, Studio Techniques Decoded XVideoStudio Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-key-tactics-procuring-premium-media-backdrops-with-ease/"><u>[New] Key Tactics Procuring Premium Media Backdrops with Ease</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-balancing-act-managing-your-off-facebook-activity-displays-for-2024/"><u>[New] The Balancing Act Managing Your Off-Facebook Activity Displays for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-enhanced-experience-of-movavi-video-pro-for-2024/"><u>[New] The Enhanced Experience of Movavi Video Pro for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-captures-of-apples-hd-display-shots-under-156-characters/"><u>[Updated] Top Captures of Apple's HD Display Shots (Under 156 Characters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/cracking-the-code-how-many-are-quitting-facebook/"><u>Cracking the Code: How Many Are Quitting Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-secure-social-media-options/"><u>Exploring Secure Social Media Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/friends-across-platforms-embodying-your-social-media-self-on-whatsapp/"><u>Friends Across Platforms: Embodying Your Social Media Self on WhatsApp</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722875584214-get-ahead-of-the-curve-with-insider-details-on-googles-next-streaming-marvel-budget-availability-and-tech-breakdown/"><u>Get Ahead of the Curve with Insider Details on Google's Next Streaming Marvel - Budget, Availability & Tech Breakdown</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v11-document-with-electronic-signature-service-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.1 document with electronic signature service</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/postpone-pruning-saving-chatgpt-talks/"><u>Postpone Pruning: Saving ChatGPT Talks</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-a-tool-against-piracy/"><u>Understanding PhotoDNA: A Tool Against Piracy</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150126533-unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-digital-hangout-vote-here/"><u>Your Ultimate Digital Hangout - Vote Here</u></a></li>
+</ul></div>
 

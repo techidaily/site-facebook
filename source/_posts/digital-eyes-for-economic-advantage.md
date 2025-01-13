@@ -1,7 +1,7 @@
 ---
 title: Digital Eyes for Economic Advantage
-date: 2024-07-29T07:42:20.684Z
-updated: 2024-07-30T07:42:20.684Z
+date: 2025-01-09T16:58:17.629Z
+updated: 2025-01-12T23:10:02.012Z
 tags:
   - facebook
 categories:
@@ -19,12 +19,13 @@ thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace
 
  Surveillance capitalism is slowly becoming the norm. But what is surveillance capitalism, and why is it really a problem?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is Surveillance Capitalism?
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
@@ -34,16 +35,21 @@ thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace
 
  It's important to understand that while surveillance capitalism has its advantages, it essentially thrives in an environment where human beings are not believed to have intrinsic value. In layman's terms, it creates a system wherein a person's value is directly equated to their expected profitability.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Surveillance Capitalism Work?
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
 ### Granular Data Gathering
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -54,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
@@ -64,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
@@ -77,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ease of Transactions
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
@@ -98,15 +99,13 @@ thumbnail: https://thmb.techidaily.com/aa75ccceb27df582eb4900ae099d99b1731677ace
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The Commodification of Personal Experiences
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -126,14 +125,11 @@ In fact, we are already running out of ways to opt out.
 
  Thankfully, there are still some things you can do to make it harder for them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +138,26 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-the-perfect-sound-for-stories-and-reels-on-instagram/"><u>[New] Crafting the Perfect Sound for Stories & Reels on Instagram</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-use-igtv-hashtags-to-get-more-followers/"><u>2024 Approved How to Use IGTV Hashtags to Get More Followers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2024s-ultimate-guide-to-magsafe-power-solutions-expert-ratings-and-in-depth-analysis/"><u>2024'S Ultimate Guide to MagSafe Power Solutions: Expert Ratings and In-Depth Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-dissolving-instagram-facebook-association/"><u>A Guide to Dissolving Instagram-Facebook Association</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-online-safety-features-by-sites/"><u>Assessing Online Safety Features by Sites</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/becoming-a-wealthy-beauty-channel-host-for-2024/"><u>Becoming a Wealthy Beauty Channel Host for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/behavior-tracked-data-sold-the-new-trend/"><u>Behavior Tracked, Data Sold: The New Trend</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/choosing-the-right-laptop-essential-tips-yl-computings-guide/"><u>Choosing the Right Laptop: Essential Tips - YL Computing's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-growth-essential-meta-strategies-for-success/"><u>Empowering Growth: Essential Meta Strategies for Success</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oppo-reno-11-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Oppo Reno 11 5G Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-secure-a-share-from-facebooks-lawsuit-settlement/"><u>Methods to Secure a Share From Facebook's Lawsuit Settlement</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/seamless-integration-of-emulated-titles-in-playnite/"><u>Seamless Integration of Emulated Titles in Playnite</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-connecting-your-samsung-remote-with-your-television/"><u>Step-by-Step Guide: Connecting Your Samsung Remote with Your Television</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-troubleshooting-tips-why-isnt-my-iphones-alarm-working/"><u>Step-by-Step Troubleshooting Tips: Why Isn't My iPhone's Alarm Working?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-three-nations-where-facebook-fails/"><u>The Three Nations Where Facebook Fails</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/trailblazing-top-zooid-beginnings-list/"><u>Trailblazing Top Zooid Beginnings List</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-fb-photos-the-power-of-alt-text/"><u>Unlocking FB Photos: The Power of Alt-Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-postpones-update-on-new-privacy-rules/"><u>WhatsApp Postpones Update on New Privacy Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-revitalize-your-facebook-identity-snapshot/"><u>When to Revitalize Your Facebook Identity Snapshot</u></a></li>
+</ul></div>
 

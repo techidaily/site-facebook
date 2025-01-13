@@ -1,7 +1,7 @@
 ---
 title: "Digital Drought: Six Hours of No Facebook/WhatsApp/Instagram"
-date: 2024-07-29T07:41:20.367Z
-updated: 2024-07-30T07:41:20.367Z
+date: 2025-01-09T20:22:53.824Z
+updated: 2025-01-12T17:37:38.512Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/e8b3883133d6f512c5920076f733b9da53c8a6ea2
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/e8b3883133d6f512c5920076f733b9da53c8a6ea2
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -56,22 +58,20 @@ thumbnail: https://thmb.techidaily.com/e8b3883133d6f512c5920076f733b9da53c8a6ea2
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +80,20 @@ thumbnail: https://thmb.techidaily.com/e8b3883133d6f512c5920076f733b9da53c8a6ea2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-answers.techidaily.com/1722998035369-fixed-you-do-not-have-permission-to-play-fortnite-error/"><u>[FIXED] You Do Not Have Permission to Play Fortnite Error</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-speaking-through-screens-effective-communication-on-youtube/"><u>[New] Speaking Through Screens Effective Communication on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-identifying-affordable-cloud-providers-for-businesses/"><u>[Updated] In 2024, Identifying Affordable Cloud Providers for Businesses</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-streamerease-screen-recording-on-win11/"><u>[Updated] StreamerEase Screen Recording on Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-trust-in-facebooks-safety-email-securityfbcom/"><u>Evaluating Trust in Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-photodna-works-to-protect-intellectual-property/"><u>How PhotoDNA Works to Protect Intellectual Property</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-xiaomi-redmi-k70-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Xiaomi Redmi K70 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-xiaomi-13t-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Xiaomi 13T</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-your-film-scenes-with-precision-zooming-on-kinemaster/"><u>In 2024, Elevate Your Film Scenes with Precision Zooming on Kinemaster</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-optimal-series-premium-webcam-grips/"><u>In 2024, Optimal Series Premium Webcam Grips</u></a></li>
+<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-ungrouping-from-facebook-pages/"><u>The Do's and Don'ts of Ungrouping From Facebook Pages</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2025-01-01T02:16:58.110Z
-updated: 2025-01-06T03:35:31.228Z
+date: 2025-01-06T16:00:22.105Z
+updated: 2025-01-12T22:44:19.210Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,18 +51,20 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-friendly-frenemies-top-social-vr-games/"><u>[New] Friendly Frenemies Top Social VR Games</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-finalized-choices-best-10-video-editing-tools-for-reels/"><u>[Updated] Finalized Choices Best 10 Video Editing Tools for Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-user-needs-in-choosing-a-facebook-portal/"><u>Analyzing User Needs in Choosing a Facebook Portal</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-platforms-share-instagram-reels-with-facebook-audience/"><u>Connecting Platforms: Share Instagram Reels with Facebook Audience</u></a></li>
-<li><a href="https://facebook.techidaily.com/holding-fire-social-media-giant-waits-for-ruling/"><u>Holding Fire: Social Media Giant Waits for Ruling</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/how-does-memory-malfunction-lead-to-computer-shutdowns-insights-from-yl-computings-experts/"><u>How Does Memory Malfunction Lead to Computer Shutdowns? - Insights From YL Computing's Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/podcast-platform-grows-on-facebooks-auditory-upgrade/"><u>Podcast Platform Grows on Facebook’s Auditory Upgrade</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/resolve-page-missing-issue-with-printers/"><u>Resolve Page Missing Issue with Printers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/schnell-und-einfach-sichere-methode-zum-aufnehmen-von-videodateien-auf-eine-neue-oder-alte-dvd-in-weniger-als-5-minuten-ohne-bild-tonqualitat-zu-beeintracht29/"><u>Schnell Und Einfach Sichere Methode Zum Aufnehmen Von Videodateien Auf Eine Neue Oder Alte DVD in Weniger Als 5 Minuten - Ohne Bild-/Tonqualität Zu Beeinträchtigen</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-intricacies-behind-facebooks-policy-to-support-multi-profiles-per-user-account/"><u>The Intricacies Behind Facebook's Policy to Support Multi-Profiles per User Account</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/1722882231103-toshiba-55lf711u20-55-smart-tv-with-alexa-built-in-perfect-for-prime-video-lovers/"><u>Toshiba 55LF711U20 55 Smart TV with Alexa Built-In - Perfect for Prime Video Lovers</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-auto-gpt-key-features-that-set-it-apart-from-chatgpt/"><u>Understanding Auto-GPT: Key Features That Set It Apart From ChatGPT</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-video-tweeting-on-phones-avoid-retweets/"><u>[New] 2024 Approved Direct Video Tweeting on Phones - Avoid Retweets</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-streamlining-office-communication-which-favors-teams-more-slack-or-discord-for-2024/"><u>[New] Streamlining Office Communication Which Favors Teams More, Slack or Discord for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-perfectly-polished-pictures-top-grid-tools-revealed/"><u>[Updated] 2024 Approved Perfectly Polished Pictures Top Grid Tools Revealed</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-exploring-whether-itop-fits-your-tech-needs-for-2024/"><u>[Updated] Exploring Whether ITop Fits Your Tech Needs for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-decoding-instagrams-reels-and-stories-differences/"><u>[Updated] In 2024, Decoding Instagram's Reels and Stories Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-downtime-in-social-media-landscapes/"><u>Deciphering Downtime in Social Media Landscapes</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-prep-navigate-your-facebook-break-with-ease/"><u>Delete Prep: Navigate Your Facebook Break With Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-authorship-in-online-visual-content/"><u>Determining Authorship in Online Visual Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-if-(securityfbcom)-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if <security@fb.com> Is a Secure and Legitimate Mail Service From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-friends-who-stay-hidden-on-facebook/"><u>Disable Friends Who Stay Hidden on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-function-of-facebooks-regulatory-panel/"><u>Dissecting the Function of Facebook's Regulatory Panel</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-13-proplus-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 13 Pro+ 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-ace-the-art-of-editing-say-goodbye-to-overflowing-tiktok-drafts/"><u>In 2024, Ace the Art of Editing Say Goodbye to Overflowing TikTok Drafts</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/trade-in-tactics-apples-smartphone-upgrade-program/"><u>Trade-In Tactics: Apple’s Smartphone Upgrade Program</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/understanding-the-windows-10-battery-status-screen-a-comprehensive-guide/"><u>Understanding the Windows 10 Battery Status Screen - A Comprehensive Guide</u></a></li>
 </ul></div>
 

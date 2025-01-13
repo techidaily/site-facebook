@@ -1,7 +1,7 @@
 ---
 title: "Eco-System: New Era of Renewable Power at FB"
-date: 2024-07-29T07:43:22.483Z
-updated: 2024-07-30T07:43:22.483Z
+date: 2025-01-09T17:42:02.311Z
+updated: 2025-01-12T22:23:57.901Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/9639571683ee2faea594be2c39567620326555f8b
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
  Climate change presents risks for everyone and everything—from plant species to human beings. Google, Apple, Amazon, as well as Facebook, understand how serious the issues are and have all created environmental targets to eliminate carbon emissions.
@@ -39,14 +40,16 @@ thumbnail: https://thmb.techidaily.com/9639571683ee2faea594be2c39567620326555f8b
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -58,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +74,20 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-integrating-your-podcast-into-apple-music/"><u>[New] 2024 Approved Integrating Your Podcast Into Apple Music</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-hit-the-jackpot-of-humor-craft-top-tier-youtube-reaction-videos-3-techniques/"><u>[New] In 2024, Hit the Jackpot of Humor – Craft Top-Tier YouTube Reaction Videos (3 Techniques)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-visual-vaults-expert-tips-on-capturing-and-storing-twitter-video/"><u>[New] In 2024, Visual Vaults Expert Tips on Capturing and Storing Twitter Video</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-b-roll-basics-strategies-for-creative-video-editing-for-2024/"><u>[Updated] B Roll Basics Strategies for Creative Video Editing for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-depth-tutorial-for-gameplay-recorders-on-win10-for-2024/"><u>[Updated] In-Depth Tutorial for Gameplay Recorders on Win10 for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-unlocking-creative-potential-best-tiktok-intros-on-a-mac/"><u>[Updated] Unlocking Creative Potential Best TikTok Intros on a Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-facebooks-tactile-engagement-value/"><u>Assessing Facebook's Tactile Engagement Value</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-iphone-13-pro-maxipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from iPhone 13 Pro Max/iPad/iPod</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-home-network-integration-with-facebook-portals-features/"><u>Mastering Home Network Integration with Facebook Portals' Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-sharing-content-across-various-fb-groups/"><u>Maximizing Engagement: Sharing Content Across Various FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-potential-a-solution-for-tiktok-and-facebook/"><u>Reel Potential: A Solution for TikTok and Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-posts-artificinas-tech-for-fb-image-descriptions/"><u>Revolutionizing Posts: Artificinas Tech for FB Image Descriptions</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/tablet-meets-notebook-a-detailed-look-at-ipad-pro-vs-macbook-air-for-optimal-user-experience-zdnet/"><u>Tablet Meets Notebook: A Detailed Look at iPad Pro vs MacBook Air for Optimal User Experience | ZDNet</u></a></li>
+</ul></div>
 

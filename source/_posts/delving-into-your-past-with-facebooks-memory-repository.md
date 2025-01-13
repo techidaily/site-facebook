@@ -1,7 +1,7 @@
 ---
 title: Delving Into Your Past with Facebook's Memory Repository
-date: 2024-07-29T07:42:51.657Z
-updated: 2024-07-30T07:42:51.657Z
+date: 2025-01-11T19:34:55.443Z
+updated: 2025-01-12T22:26:16.102Z
 tags:
   - facebook
 categories:
@@ -28,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use the On This Day Feature
 
  Users can access the On This Day feature on Facebook by the following method.
@@ -40,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/48994c9ff35faf512b4c69833faf0e7ff28b80b0d
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Share Memories
 
  The first thing that most users discover is the option to share their memories with others. You can post it on your timeline, send them in messages, and even tag specific people.
@@ -53,14 +51,8 @@ To share a memory from the On This Day feature:
 2. Select the memory you wish to share.
 3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
 Close
@@ -68,8 +60,9 @@ Close
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Save and Delete Memories
 
  Another great thing about the On This Day feature is the ability to save memories. This takes the memories to a separate**Save** section, intended for content you wish to view later.
@@ -83,6 +76,10 @@ You can save your On This Day posts with the following steps:
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -108,6 +105,10 @@ Close
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Customization Options for the On This Day Feature
 
  If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
@@ -118,16 +119,14 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Set the Time Duration of Memories
 
  In this section, users get to pick the number of times they receive the On This Day notification.
@@ -138,29 +137,27 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
  The On This Day feature of Facebook is a great way to stay in touch with your past and recall memories that have been a part of your life over the years.
 
  Users can effectively use the feature to share and save media. You can customize Facebook’s On This Day feature and only access memories of choice. We hope you will be able to manage your On This Day memories in a much better and more convenient way.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +166,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-iphones-finest-photo-tools-for-objection-erasure-for-2024/"><u>[New] IPhone's Finest Photo Tools for Objection Erasure for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-game-on-the-ultimate-guide-to-superior-offline-ios-fun-for-2024/"><u>[Updated] Game On The Ultimate Guide to Superior Offline iOS Fun for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-ink-your-photos-leading-apps-for-captioning-iosandroid/"><u>[Updated] Ink Your Photos Leading Apps for Captioning (iOS/Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/collective-charisma-cultivating-a-thriving-online-band/"><u>Collective Charisma: Cultivating a Thriving Online Band</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-conquest-raising-the-bar-for-your-fb-group/"><u>Community Conquest: Raising the Bar for Your Fb Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/dial-down-mobile-browsing-capabilities-fb/"><u>Dial Down Mobile Browsing Capabilities: FB</u></a></li>
+<li><a href="https://program-issues.techidaily.com/effective-solutions-for-eliminating-football-manager-20-crash-problems-on-your-pc-or-console/"><u>Effective Solutions for Eliminating Football Manager '20 Crash Problems on Your PC or Console</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-the-sign-up-date-that-marked-my-facebook-experience/"><u>Finding The Sign-Up Date That Marked My Facebook Experience</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oppo-k11-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo K11 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210470919-9789354621055-meditations/"><u>Meditations | Free Book</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/review-of-amplifi-hd-say-goodbye-to-wi-fi-dead-spots-with-this-mesh-network-solution/"><u>Review of Amplifi HD - Say Goodbye to Wi-Fi Dead Spots with This Mesh Network Solution!</u></a></li>
+<li><a href="https://facebook.techidaily.com/tethered-to-trust-a-dive-into-cryptocurrency-stability-coins/"><u>Tethered to Trust: A Dive Into Cryptocurrency Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-culprits-behind-chat-and-social-outages/"><u>The Invisible Culprits Behind Chat and Social Outages</u></a></li>
+</ul></div>
 

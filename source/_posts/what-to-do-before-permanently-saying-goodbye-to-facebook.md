@@ -1,7 +1,7 @@
 ---
 title: What to Do Before Permanently Saying Goodbye to Facebook
-date: 2024-08-08T11:24:30.829Z
-updated: 2024-08-09T11:24:30.829Z
+date: 2025-01-08T20:01:16.949Z
+updated: 2025-01-12T19:35:32.573Z
 tags:
   - facebook
 categories:
@@ -21,19 +21,11 @@ thumbnail: https://thmb.techidaily.com/114b6bfca9f928095e8da2f7f3417492afac50bf3
 
 ## 1\. Inform Your Close Contacts About Your Decision
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You might think of ending your journey on Facebook, but it doesn't mean leaving your friends uninformed about the decision. Start by informing your close contacts that you are deleting your Facebook account.
 
@@ -42,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/114b6bfca9f928095e8da2f7f3417492afac50bf3
  Informing your close contacts about such decisions builds better relationships and keeps them close to you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Save the Media You Wish to Keep
 
  Regular Facebook users upload pictures and videos on the app. Before deciding to delete your Facebook account, you must have shared memorable media with friends. The ideal practice is to save the memories that actually mean something in your life.
@@ -52,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/114b6bfca9f928095e8da2f7f3417492afac50bf3
 
  Facebook does not have an in-built feature to save videos; however, Android phones support[Facebook video downloaders](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) that enable you to save your videos to your phone’s gallery. You can[download Facebook videos on your PC](https://www.makeuseof.com/tag/download-private-facebook-videos/) as well.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## 3\. Decide What to Do With Messenger
 
 ![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
@@ -69,38 +59,31 @@ thumbnail: https://thmb.techidaily.com/114b6bfca9f928095e8da2f7f3417492afac50bf3
 4. Select**Deactivate** .
 5. Messenger will ask you to re-enter your password to deactivate your account.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Facebook Messenger profile image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Messenger-profile-image.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Messenger Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Messenger-Account-Settings.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Personal information on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-information-on-Messenger.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![Manage account of Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Manage-account-of-Messenger.JPG)
 
 ![Deactivate Messenger account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-Messenger-account.JPG)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Change Your Page Admins
 
  Your Facebook pages also get affected when you delete your Facebook account. Pages with sole owners and no other admins get unpublished once the account is deleted. This implies that the page is no longer visible to the public and its members. Also, it loses all the progress, engagement, and likes.
 
  If you want your page to strive towards a successful and engaging journey even after your account deletion,[consider adding another Facebook page admin](https://www.makeuseof.com/how-to-add-admin-to-facebook-page/) . Once your account is deleted, that person will automatically take charge of the page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Edit or Delete Groups
 
@@ -108,12 +91,13 @@ Close
 
  Once you have talked to someone and promoted them as an admin of your group, they will manage the group, even after you’re gone.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Wind Up Any Professional Business
 
 ![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook has become a hub of professional businesses where everyone can thrive equally. We understand that leaving all that can be difficult if you are among those people. What will happen to your customers? Can you survive without your business?
 
@@ -124,8 +108,9 @@ Close
  Those who feel their business should continue can pick another admin to manage things. It can be any trustworthy person or even a business partner.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Save and Download Your Facebook Data and History
 
  Before leaving Facebook, saving your data and history is a wise choice. It includes everything from your comments to posts, friends, messages, photos, and the history of other Facebook activities.
@@ -154,14 +139,11 @@ Close
 
  You have the option to wind up or pass on any Facebook pages and groups to someone equally passionate about them as you were. If Facebook isn't your thing, try something else. Maybe you’ll find an app that accurately represents your social media presence.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +152,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-ultimate-3-fb-movie-extractors/"><u>[New] In 2024, Ultimate 3 Fb Movie Extractors</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-quintessential-radio-narrative-craftsmanship/"><u>[Updated] Quintessential Radio Narrative Craftsmanship</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/1-step-by-step-guide-saving-live-channels-from-younow-for-later-viewing/"><u>1. Step-by-Step Guide: Saving Live Channels From YouNow for Later Viewing</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-amplify-your-online-presence-with-fb-groups/"><u>A Guide to Amplify Your Online Presence with FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/behavior-for-sale-the-economy-exposed/"><u>Behavior for Sale: The Economy Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/comparing-features-of-the-free-vs-premium-versions-of-3gp-video-converter-factory/"><u>Comparing Features of the Free Vs. Premium Versions of 3GP Video Converter Factory</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-off-social-buttons-on-fb-nostalgia-feature/"><u>Cut Off Social Buttons on FB Nostalgia Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-framework-understanding-its-governance-entity/"><u>Facebook's Framework: Understanding Its Governance Entity</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-vivo-x100-pro-frp-bypass-by-drfone-android/"><u>In 2024, About Vivo X100 Pro FRP Bypass</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-amplify-engagement-unique-ig-questions-for-lives/"><u>In 2024, Amplify Engagement Unique IG Questions for Lives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-top-8-pitfalls-for-novice-youtube-creators/"><u>In 2024, Top 8 Pitfalls for Novice YouTube Creators</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/journey-through-podcast-land-iphoneipad-edition/"><u>Journey Through Podcast Land IPhone/iPad Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-opportunities-5-facebook-strategies-for-careers/"><u>Maximizing Opportunities: 5 Facebook Strategies for Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-fumbles-of-the-current-era/"><u>The Biggest Tech Fumbles of the Current Era</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-realme-c51-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Realme C51 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+</ul></div>
 

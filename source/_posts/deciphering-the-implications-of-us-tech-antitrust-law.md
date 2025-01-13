@@ -1,7 +1,7 @@
 ---
 title: Deciphering the Implications of U.S. Tech Antitrust Law
-date: 2024-07-29T07:42:25.090Z
-updated: 2024-07-30T07:42:25.090Z
+date: 2025-01-09T18:04:45.912Z
+updated: 2025-01-12T22:51:11.529Z
 tags:
   - facebook
 categories:
@@ -21,29 +21,32 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 
  Marketplace owners, Amazon being one very clear example, will no longer be allowed to promote their own products over others using their platform. Other concerns, such as the eradication of nascent competition by winner-take-all acquisition, are also on the table for discussion.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. The American Choice and Innovation Online Act
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
@@ -58,6 +61,10 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -70,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/97d4b7a24e4095203ce78f6219b92226bf6791663
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -93,12 +97,13 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -112,23 +117,17 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,24 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/updated-iconic-writings-distinguishing-film-types/"><u>[Updated] Iconic Writings Distinguishing Film Types</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-crafting-powerful-instagram-content-top-strategies-for-video-marketing/"><u>[Updated] In 2024, Crafting Powerful Instagram Content Top Strategies for Video Marketing</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-leading-online-tools-select-your-new-photo-background/"><u>2024 Approved Leading Online Tools Select Your New Photo Background</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-navigating-the-transition-of-zip-to-subrip-srt-formats/"><u>2024 Approved Navigating the Transition of Zip to SubRip (SRT) Formats</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-operation-principles-behind-photodna/"><u>Discovering the Operation Principles Behind PhotoDNA</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722976206382-download-the-latest-fixed-killerwireless-1535-driver-here/"><u>Download the Latest Fixed KillerWireless 1535 Driver Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-video-annoyance-solutions-to-get-them-playing/"><u>Facebook Video Annoyance: Solutions to Get Them Playing</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-embracing-100-clean-renewable-energy/"><u>FB Embracing 100% Clean, Renewable Energy</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-for-justice-pal-activist-efforts-impact-fb-store-scores/"><u>Hacking for Justice? Pal-Activist Efforts Impact FB Store Scores</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stay-ahead-finding-the-most-trendy-fb-groups/"><u>How to Stay Ahead: Finding the Most Trendy FB Groups</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y27-4g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y27 4G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-realme-10t-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Realme 10T 5G FRP</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-zte-axon-40-lite-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from ZTE Axon 40 Lite to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insight-into-vk-russias-social-network-explained/"><u>The Insight Into VK: Russia's Social Network Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-strategies-for-elevating-content-exposure-on-fb/"><u>The Key Strategies for Elevating Content Exposure on FB</u></a></li>
+<li><a href="https://some-tips.techidaily.com/understanding-torrenting-with-bittorrent-a-comprehensive-guide-on-its-functions-legality-and-operational-mechanics-techbrief-by-zdnet/"><u>Understanding Torrenting with BitTorrent: A Comprehensive Guide on Its Functions, Legality, and Operational Mechanics | TechBrief by ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-connectivity-unveiling-six-revolutionary-facts-of-facebooks-future-sphere/"><u>Virtual Connectivity: Unveiling Six Revolutionary Facts of Facebook's Future Sphere</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Determining Authorship in Online Visual Content
-date: 2024-07-29T07:41:27.583Z
-updated: 2024-07-30T07:41:27.583Z
+date: 2025-01-11T22:49:30.477Z
+updated: 2025-01-12T18:20:34.194Z
 tags:
   - facebook
 categories:
@@ -17,9 +17,6 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
 
  When you upload a photo or video online, it's natural not to think about where that photo is going, and who now has their hands on it. It takes mere seconds to upload media online, and millions of people do so every day, but who really has authority over this content? Who actually owns the photos and videos you upload online?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Where Are Your Online Pictures Stored?
 
  There are many websites and apps that may need to store your photos, including those specializing in:
@@ -39,10 +36,11 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
 
  Facebook also uses data centers to store user photos. In Sweden, Facebook has a large facility known as the Luleå Data Center that keeps huge swathes of the social media outlet's information, including photos and videos uploaded by users. This isn't the only data center Facebook has, but stands as an example of how the company handles data.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![digital graphic of three storage servers on a white background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/data-hardware-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  But it's not just social media you need to consider here. There are many other platforms that handle your photos and videos, including cloud storage services like Google Drive. Cloud storage services typically store your data on remote servers in data centers, too.
 
@@ -51,9 +49,9 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
  So, once these photos are uploaded and stored, do you still own them, or does someone else get first dibs?
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Owns Your Uploaded Photos and Videos?
 
  In general, whoever created the image or video you uploaded is the official owner. For example, if you take a picture on your smartphone and then upload it to Twitter, Google Drive, Facebook, or any other website, that picture belongs to you. No website can claim that it owns the content you upload if you, yourself, created it.
@@ -67,14 +65,16 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
  But there is another element to be considered here, and that's the use of your photos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Can Use the Photos You Upload?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![person using instagram on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/instagram-phone-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Even if you own the photos you upload, can websites and apps still use them? Some photographers upload their images for free use on[stock image websites](https://www.makeuseof.com/tag/free-stock-image-sites/) like Pixabay and Unsplash. On such sites, you can use a given image or video in whatever way you'd like without having to credit the creator.
 
@@ -83,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
  Each platform has its own policy on user photo usage, but the general consensus is that your permission is required before another entity can use anything you upload. Instagram, for example, has stated in its[Help Centre](https://help.instagram.com/206875879493855) that, if an[advertiser wants to use your photos](https://www.makeuseof.com/i-saw-my-picture-in-an-ad-now-what/) , it must receive express permission from you. Otherwise, your media is off-limits. However, Facebook has an extra caveat here: if your profile or selected photos are listed as "Public" in your privacy settings, then the platform can use them, i.e. essentially viewing your privacy settings as having your permission.
 
  If you're worried about someone taking your social media photo and using it elsewhere, there are also laws in place for this. If your images or videos are not classified as license free, a person or company needs your permission before using them. If they do not seek your consent, using your content would be a breach of copyright law.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Keep Your Photos and Videos Safe
 
@@ -94,21 +98,15 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
 
  Lastly, it's important to check the storage and privacy policy of the platforms you upload photos to, so that you know how a given company is going to handle your content.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## You Own Uploaded Content if You Created It
 
  In short, the photos and videos you take and upload online belong to you, so long as you do not sell the rights to someone else. If anyone claims to own your content or uses it without your permission, this is very likely a copyright infringement. So: the photos and videos you upload online are yours and yours only!
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +115,24 @@ thumbnail: https://thmb.techidaily.com/25b0e40b25535b4355b8cca4194992e02cab9c78a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-cost-free-camera-screen-capture-tools/"><u>[New] In 2024, The Ultimate Guide to Cost-Free Camera Screen Capture Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-leveraging-hdrs-potential-for-ultimate-video-visualization/"><u>[Updated] 2024 Approved Leveraging HDR's Potential for Ultimate Video Visualization</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-the-social-media-elite-playbook-cultivate-your-stardom-in-9-easy-steps-for-2024/"><u>[Updated] The Social Media Elite Playbook Cultivate Your Stardom in 9 Easy Steps for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-hitting-the-high-notes-in-instagram-photography/"><u>2024 Approved Hitting the High Notes in Instagram Photography</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-video-recording-devices-for-quality/"><u>2024 Approved Premium Video Recording Devices for Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-your-facebook-interactions-with-these-3-tag-tactics/"><u>Accelerate Your Facebook Interactions with These 3 Tag Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/controversial-features-in-todays-websites/"><u>Controversial Features in Today's Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-data-unraveling-misconceptions-about-facebook-reports/"><u>Decoding Data: Unraveling Misconceptions About Facebook Reports</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-complexity-of-german-studies/"><u>Decoding the Complexity of German Studies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/demystifying-artificial-intelligence-for-beginners/"><u>Demystifying Artificial Intelligence for Beginners</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-techniques-for-refreshing-lenovo-system-management-software/"><u>Effortless Techniques for Refreshing Lenovo System Management Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-downtime-tips-to-check-availability/"><u>Navigating Facebook Downtime – Tips to Check Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-covered-dont-spill-essential-online-non-disclosures/"><u>Stay Covered, Don't Spill: Essential Online Non-Disclosures</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/the-best-contenders-against-easeus-data-recovery-detailed-reviews-and-picks/"><u>The Best Contenders Against EaseUS Data Recovery: Detailed Reviews & Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-virtual-world-why-it-calls-for-attention/"><u>The Facebook Virtual World - Why It Calls for Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-success-sheryls-story-at-facebook/"><u>The Path to Success: Sheryl's Story at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-significance-behind-facebooks-renaming-decision/"><u>The Significance Behind Facebook's Renaming Decision</u></a></li>
+</ul></div>
 

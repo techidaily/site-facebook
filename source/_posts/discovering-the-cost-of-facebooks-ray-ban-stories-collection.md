@@ -1,7 +1,7 @@
 ---
 title: Discovering the Cost of Facebook's Ray-Ban Stories Collection
-date: 2024-07-29T07:40:30.627Z
-updated: 2024-07-30T07:40:30.627Z
+date: 2025-01-11T23:23:07.787Z
+updated: 2025-01-12T16:50:34.674Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  So, what does the social media giant have up its sleeves (or rather, resting on its nose)? Let's find out.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are Ray-Ban Stories?
 
  Ray-Ban released the above trailer to show off the new Ray-Ban Stories. These glasses were the result of the luxury sunglasses company teaming up with the tech giant Facebook. The idea behind the Ray-Ban Stories is that they can help you capture events going on around you without needing to reach for your phone.
@@ -35,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Ray-Ban Stories Specifications
 
  The Ray-Ban Stories captures the world around you using two 5-megapixel cameras. You activate them by pressing a small button on the side of the glasses frame: a brief tap to record video and a long press for a photo. If you’re feeling brave, you can also say, “Hey Facebook, take a video” to start the process, but be prepared to record nothing but people staring at you in confusion.
@@ -54,35 +56,34 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
  The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Much Are the Ray-Ban Stories?
 
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Will the Ray-Ban Stories Come Out?
 
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A New Chapter in the Story of Smart Glasses
 
  If you love capturing those precious moments, but you'd rather not experience it through a phone screen, the Ray-Ban Stories may just be up your alley. They're out now, so be sure to grab a pair ASAP if this sounds like something you want.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +92,21 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[New] How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-gain-recovery-of-personal-snapshots/"><u>[Updated] 2024 Approved Gain Recovery of Personal Snapshots</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-ultimate-tips-for-capturing-sporting-events-live-online/"><u>[Updated] 2024 Approved Ultimate Tips for Capturing Sporting Events Live Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-best-sandbox-games-titles-you-shouldnt-be-missing/"><u>[Updated] Best Sandbox Games Titles You Shouldn’t Be Missing</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-restored-full-screen-in-obs/"><u>[Updated] In 2024, Restored Full Screen in OBS</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-pioneering-facebook-platforms-for-team-driven-projects/"><u>8 Pioneering Facebook Platforms for Team-Driven Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-dive-into-my-early-social-media-days-with-facebook/"><u>A Dive Into My Early Social Media Days with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-privacy-and-usefulness-facebook-apps-and-webs/"><u>Balancing Privacy and Usefulness: Facebook Apps & Webs</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-(securityfbcom)/"><u>Checking the Legitimacy of FB's Safety Mail Address: <security@fb.com></u></a></li>
+<li><a href="https://facebook.techidaily.com/curing-slow-or-no-fb-notification-updates/"><u>Curing Slow or No FB Notification Updates</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722011383584-embrace-the-newly-free-gpt-4-era-dont-overlook-these-6-persuasive-benefits-for-upgrading-to-chatgpt-plus/"><u>Embrace the Newly Free GPT-4 Era - Don't Overlook These 6 Persuasive Benefits for Upgrading to ChatGPT Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152816501-enhance-your-conversation-security-with-end-to-end-encrypted-services-on-facebook/"><u>Enhance Your Conversation Security with End-to-End Encrypted Services on Facebook.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-safely-procure-pure-photography-collections/"><u>How to Safely Procure Pure Photography Collections</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-definitive-guide-to-fugeteks-high-end-selfie-stick-ft-568-reviewed/"><u>The Definitive Guide to Fugetek's High-End Selfie Stick - FT-568 Reviewed</u></a></li>
+</ul></div>
 

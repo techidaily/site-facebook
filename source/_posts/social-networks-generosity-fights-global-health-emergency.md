@@ -1,7 +1,7 @@
 ---
 title: Social Network's Generosity Fights Global Health Emergency
-date: 2025-01-02T22:06:23.859Z
-updated: 2025-01-06T09:17:49.272Z
+date: 2025-01-10T17:32:38.144Z
+updated: 2025-01-12T19:14:03.883Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image Credit: Facebook
@@ -45,7 +45,7 @@ Image Credit: Facebook
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Also Aims to Highlight "Trusted Messengers"
@@ -57,7 +57,7 @@ Image Credit: Facebook
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
@@ -69,7 +69,7 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
@@ -91,20 +91,21 @@ Image Credit: Facebook
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-brief-but-impactful-which-social-platform-leads-for-short-video-content-for-2024/"><u>[Updated] Brief but Impactful Which Social Platform Leads for Short Video Content for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boost-your-network-with-tp-link-re505x-a-detailed-wi-fi-range-extender-evaluation/"><u>Boost Your Network with TP-Link RE505X: A Detailed Wi-Fi Range Extender Evaluation</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/easy-update-techniques-to-optimize-your-epson-wf-7620-driver-on-pc/"><u>Easy Update Techniques to Optimize Your Epson WF-7620 Driver on PC</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oneplus-11-5g-lock-screen-password-by-drfone-android/"><u>How To Change OnePlus 11 5G Lock Screen Password?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-frontier-gadgets-galore-top-10-vr-accessories/"><u>In 2024, Frontier Gadgets Galore Top 10 VR Accessories</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-discretion-in-digital-artistry/"><u>Mastering Discretion in Digital Artistry</u></a></li>
-<li><a href="https://windows11.techidaily.com/mastering-windows-11-simultaneous-folder-creation-techniques/"><u>Mastering Windows 11: Simultaneous Folder Creation Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-fb-posts-maximizing-hd-video-and-image-impact/"><u>Optimizing Fb Posts: Maximizing HD Video and Image Impact</u></a></li>
-<li><a href="https://facebook.techidaily.com/principles-of-producing-potent-online-partnerships-fb/"><u>Principles of Producing Potent Online Partnerships (FB)</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamp-your-social-media-identity-with-a-new-birthday-fb/"><u>Revamp Your Social Media Identity with a New Birthday (FB)</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-shenanigans-detection-of-fraudulent-entities/"><u>Social Media Shenanigans: Detection of Fraudulent Entities</u></a></li>
-<li><a href="https://facebook.techidaily.com/stall-on-trump-suspension-by-facebook-oversight-entity/"><u>Stall on Trump Suspension by Facebook Oversight Entity</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-understated-like-tactic-in-digital-social-circles/"><u>The Understated Like Tactic in Digital Social Circles</u></a></li>
-<li><a href="https://facebook.techidaily.com/trump-targets-social-media-giants-in-free-speech-lawsuit/"><u>Trump Targets Social Media Giants in Free Speech Lawsuit</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-top-9-choices-for-video-auto-translate/"><u>Updated 2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-guide-to-instagram-video-advancement-a-planning-primer/"><u>[New] 2024 Approved The Guide to Instagram Video Advancement A Planning Primer</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-boosting-team-engagement-with-zoom-techniques-on-msteams/"><u>[New] Boosting Team Engagement with ZOOM Techniques on MSTEAMS</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-in-depth-the-art-of-photo-editing-workflow/"><u>[New] In-Depth The Art of Photo Editing Workflow</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-innovative-methods-for-time-loop-illusions/"><u>[Updated] 2024 Approved Innovative Methods for Time Loop Illusions</u></a></li>
+<li><a href="https://facebook.techidaily.com/adding-text-to-social-photos-effectively/"><u>Adding Text to Social Photos Effectively</u></a></li>
+<li><a href="https://article-tips.techidaily.com/altering-game-console-tones-ps5ps4-guide/"><u>Altering Game Console Tones PS5/PS4 Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-legal-strategy-targeting-fb-group-managers/"><u>Amazon's Legal Strategy Targeting FB Group Managers</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/comment-recouvrer-votre-mondo-minecraft-elimine-guide-exhaustif-et-pratique/"><u>Comment Recouvrer Votre Mondo Minecraft Éliminé : Guide Exhaustif Et Pratique</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-friends-through-visual-identification-on-whatsapp/"><u>Connecting with Friends Through Visual Identification on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-inviting-online-persona-with-a-new-page/"><u>Crafting an Inviting Online Persona with a New PAGE</u></a></li>
+<li><a href="https://facebook.techidaily.com/curate-with-confidence-facebook-eases-your-newsfeed-edit/"><u>Curate with Confidence: Facebook Eases Your Newsfeed Edit</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-the-unseen-hazards-in-linkedins-new-gaming-section/"><u>Explore the Unseen Hazards in LinkedIn’s New Gaming Section</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152998849-flip-the-script-on-sharing-seamless-transfer-of-fb-content-available/"><u>Flip the Script on Sharing: Seamless Transfer of FB Content Available</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-infinix-smart-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-oppo-reno-11-pro-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Oppo Reno 11 Pro 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153152787-privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages.</u></a></li>
 </ul></div>
 

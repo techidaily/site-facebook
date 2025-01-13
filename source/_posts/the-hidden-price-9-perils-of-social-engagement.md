@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2025-01-05T00:12:05.528Z
-updated: 2025-01-06T01:08:52.751Z
+date: 2025-01-09T00:21:37.654Z
+updated: 2025-01-12T20:24:21.304Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Depression and Anxiety
 
  Do you spend several hours per day browsing through social media? Spending too long on social networking sites could adversely affect your mood. In fact, chronic social users are more likely to report poor mental health, including symptoms of anxiety and depression.
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Cyberbullying
@@ -49,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
@@ -70,13 +74,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -102,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Unhealthy Sleep Patterns
 
  On top of increasing the cases of anxiety and depression, another bad thing about social media is that spending too much time on it can lead to poor sleep. Numerous studies have shown that increased use of social media has a negative effect on your sleep quality.
@@ -116,13 +116,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. General Addiction
 
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -153,22 +153,18 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-crafting-viral-videos-on-youtube-a-strategic-plan/"><u>[Updated] Crafting Viral Videos on YouTube A Strategic Plan</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-enhance-your-livestreams-on-mac-with-these-elite-software/"><u>[Updated] Enhance Your Livestreams on Mac with These Elite Software</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mjolnirs-legacy-new-era-dawned/"><u>[Updated] In 2024, Mjolnir's Legacy New Era Dawned</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-transforming-images-with-ar-a-guide-to-free-lut-downloads/"><u>[Updated] Transforming Images with AR A Guide to Free LUT Downloads</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-unmarked-image-accumulation-essentials/"><u>[Updated] Unmarked Image Accumulation Essentials</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-how-superior-the-latest-apple-watch-series-4-really-is/"><u>Discover How Superior, the Latest Apple Watch Series 4 Really Is</u></a></li>
-<li><a href="https://facebook.techidaily.com/explore-the-ethernet-finding-friendly-face-connections-on-fb/"><u>Explore the Ethernet: Finding Friendly Face Connections on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-assistance-unveiling-its-capabilities/"><u>Facebook Assistance: Unveiling Its Capabilities</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-v29e-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo V29e Is Unlocked</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-sports-season-with-fb-and-twt/"><u>Interactive Sports Season with FB & Twt</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-11-typical-facebook-snags-and-their-fixes/"><u>Overcoming 11 Typical Facebook Snags and Their Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/rift-as-a-password-facebook-users-spending-big-on-rewriting-history/"><u>Rift as a Password: Facebook Users Spending Big on Rewriting History</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-generosity-fights-global-health-emergency/"><u>Social Network's Generosity Fights Global Health Emergency</u></a></li>
-<li><a href="https://fox-that.techidaily.com/stumped-by-iphones-wireless-charging-malfunctions-discover-these-seven-resolving-strategies/"><u>Stumped by iPhone's Wireless Charging Malfunctions? Discover These ^Seven Resolving Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-new-realm-how-facebook-is-shaping-our-future-online-world/"><u>The New Realm: How Facebook Is Shaping Our Future Online World</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-secret-to-riches-5-innovative-money-making-methods-on-social-networks/"><u>The Secret to Riches: 5 Innovative Money-Making Methods on Social Networks</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/yl-software-presents-the-ultimate-set-of-kim-kardashian-backgrounds-and-imagery-for-your-screen/"><u>YL Software Presents: The Ultimate Set of Kim Kardashian Backgrounds and Imagery for Your Screen</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-prime-data-keepers-expert-top-10-selections/"><u>[New] 2024 Approved Prime Data Keepers Expert Top 10 Selections</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-enhance-your-messaging-keywords-that-drive-marketing/"><u>[Updated] In 2024, Enhance Your Messaging Keywords that Drive Marketing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-expert-mp3-creation-guide-top-video-to-audio-devices/"><u>[Updated] In 2024, Expert MP3 Creation Guide Top Video-to-Audio Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-crafting-viral-video-content-on-youtube/"><u>[Updated] The Art of Crafting Viral Video Content on YouTube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-soloists-path-to-trending-podcasts/"><u>2024 Approved The Soloist's Path to Trending Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-practical-approach-to-ending-a-fb-assembly/"><u>A Practical Approach to Ending a Fb Assembly</u></a></li>
+<li><a href="https://facebook.techidaily.com/bracing-for-impact-expecting-tough-news-on-fb/"><u>Bracing for Impact: Expecting Tough News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-free-how-to-leave-facebook-behind-on-androids/"><u>Break Free - How to Leave Facebook Behind on Androids</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-hearts-and-eyes-top-6-profile-pic-ideas/"><u>Capturing Hearts and Eyes: Top 6 Profile Pic Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-cloaked-space-for-online-dialogues/"><u>Creating a Cloaked Space for Online Dialogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/"><u>Customizing Profile Information: Email/Phone Switch</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-samsung-galaxy-s23-ultra-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Samsung Galaxy S23 Ultra For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-samsung-galaxy-a14-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Samsung Galaxy A14 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 </ul></div>
 

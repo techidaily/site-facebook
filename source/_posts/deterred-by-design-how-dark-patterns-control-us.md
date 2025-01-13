@@ -1,7 +1,7 @@
 ---
 title: "Deterred by Design: How Dark Patterns Control Us"
-date: 2024-07-29T07:40:54.289Z
-updated: 2024-07-30T07:40:54.289Z
+date: 2025-01-11T22:53:18.178Z
+updated: 2025-01-12T23:33:45.772Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30
 
  Let's take a look at how dark patterns use psychological biases to manipulate the choices you make, even if those decisions aren't in your best interest.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## What Are Dark Patterns?
 
 [DarkPatterns.org](https://darkpatterns.org/) defines dark patterns as "tricks used in websites and apps that make you buy or sign up for things that you didn't mean to."
@@ -35,10 +32,6 @@ The site lists 12 types of dark patterns to watch out for:
 * **Bait and switch:** You mean to do something, but the site changes it so something else happens instead.
 * **Confirmshaming:** You're guilted into accepting something because the decline option is worded to make you feel stupid.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![Pay Full Price Dark Pattern](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Pay-Full-Price-Dark-Pattern.png)
 
 * **Disguised ads:** Advertisements that pretend to be legitimate content, like fake download buttons.
@@ -53,25 +46,27 @@ The ultimate burning program for all your needs!</a>
 
 ![NordVPN Sneak Into Basket Dark Pattern](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/NordVPN-Sneak-Into-Basket-Dark-Pattern.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
 
  You can read more about these tactics on the Dark Patterns website, as well as our[list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## How Companies Trick You Into Giving Up Your Privacy
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Default Settings
 
@@ -93,9 +88,6 @@ The ultimate burning program for all your needs!</a>
 
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Framing
 
  A huge part of dark patterns concerns how options are presented. Companies tell you the positives of letting them sell your data to advertisers, but not the negatives. And they tell you all the reasons you shouldn't increase your privacy options, but none of the privacy concerns you might face without them.
@@ -108,18 +100,12 @@ The ultimate burning program for all your needs!</a>
 
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
 
  The site hopes you won't want to lose all the information you've shared on it, so this is supposed to scare you into staying on Facebook. This deception is further illustrated by a flowchart showing Facebook's GDPR privacy update options (which is, in itself, likely a form of punishment).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook GDPR Flowchart](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-GDPR-Flowchart.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
@@ -129,6 +115,10 @@ The ultimate burning program for all your needs!</a>
  Companies tell you all the time that you'll get better service if you share your data. They warn that if you turn off data sharing, you might miss out on some features, get fewer personalized recommendations, and similar. You're warned with a stick when you stray off the "recommended" path.
 
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Forced Action and Timing
 
@@ -141,6 +131,10 @@ The ultimate burning program for all your needs!</a>
  Facebook is especially bad at this; it locked people out of their profiles until they accepted the GDPR updated documentation. Most people would be in a rush to get back into their Facebook account, so they would hastily accept the default options. See how these problems feed into each other?
 
  Don't be surprised to see companies use the same tactics that get you to spend more money, like counting down the hours until a limited-time promotion ends, to goad you into giving up more of your data.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fighting Back Against Dark Patterns
 
@@ -156,20 +150,21 @@ The ultimate burning program for all your needs!</a>
 
  You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called[Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dark Patterns Are Rough for Privacy
 
  Companies want you to part with your data so they can take advantage of it. If you won't do that willingly, they'll use every psychological trick they have to manipulate you into giving your info away. You must be vigilant to spot, and avoid falling for, these tactics.
 
  It would be great if we could just stop using the services that treated users this way, but since it's a widespread problem, you wouldn't be able to use almost anything with that strategy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,4 +173,26 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-screen-recording-on-imac-with-ease-for-2024/"><u>[New] Mastering Screen Recording on iMac with Ease for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-mastering-stream-selection-a-top-10-tips-guide/"><u>[Updated] 2024 Approved Mastering Stream Selection A Top 10 Tips Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-digital-media-hacks-top-5-online-techniques-for-video-trimming-on-vimeo/"><u>2024 Approved Digital Media Hacks Top 5 Online Techniques for Video Trimming on Vimeo</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-srt-to-video-leading-10-free-online-conversion-tools/"><u>2024 Approved Seamless SRT to Video - Leading 10 Free Online Conversion Tools</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-windows-best-video-talks-ranked-1-8/"><u>2024 Approved Windows' Best Video Talks Ranked #1-8</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjust-facebook-friend-views-privacy-control/"><u>Adjust Facebook Friend Views Privacy Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-facebook-games-a-camouflaged-threat-to-our-security/"><u>Are Facebook Games a Camouflaged Threat to Our Security?</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-numbers-why-we-shouldnt-sweat-facebook-users/"><u>Beyond Numbers: Why We Shouldn't Sweat Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-control-dark-patterns-and-data-dossiers/"><u>Bypassing Control: Dark Patterns and Data Dossiers</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparative-insight-metaai-vs-ordinary-bot-systems/"><u>Comparative Insight: MetaAI vs Ordinary Bot Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-devices-smartphone-and-television/"><u>Connecting Devices: Smartphone & Television</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-kings-discovering-todays-most-trending-digital-places/"><u>Connectivity Kings: Discovering Today's Most Trending Digital Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptic-compliments-concealing-your-facebook-like/"><u>Cryptic Compliments: Concealing Your Facebook Like</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-excessive-facebook-communications/"><u>Cutting Down Excessive Facebook Communications</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-the-mmi2-no-active-subscriber-error-effectively/"><u>How To Resolve The 'MMI2: No Active Subscriber' Error Effectively</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/imessage-compatibility-with-android-how-to-set-up-now/"><u>IMessage Compatibility with Android – How to Set Up Now!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-gionee-f3-pros-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Gionee F3 Pros Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+</ul></div>
 

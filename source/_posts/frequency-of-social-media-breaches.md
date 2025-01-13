@@ -1,7 +1,7 @@
 ---
 title: Frequency of Social Media Breaches
-date: 2025-01-04T21:06:06.209Z
-updated: 2025-01-05T20:15:59.649Z
+date: 2025-01-09T22:43:50.180Z
+updated: 2025-01-12T23:58:38.301Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Common Are Social Media Hacks?
 
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
 
@@ -46,13 +46,13 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Certain things can make you more or less likely to experience a social media account hack.
 
@@ -64,17 +64,9 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Risks Associated With a Social Media Hack?
 
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
 
@@ -86,12 +78,16 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Handle a Social Media Hack
 
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -101,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -121,24 +121,20 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-ultimate-obs-studio-guide-to-facebook-live-broadcasts/"><u>[New] The Ultimate OBS Studio Guide to Facebook Live Broadcasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1-easy-setup-colorful-karaoke-by-singing-machine-unboxing-and-in-depth-review/"><u>1 Easy Setup Colorful Karaoke by Singing Machine: Unboxing and In-Depth Review</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-get-your-twitter-video-feed-ready-aspect-ratio-key/"><u>2024 Approved Get Your Twitter Video Feed Ready Aspect Ratio Key</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-gionee-f3-pro-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Gionee F3 Pro.</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-online-presence-through-effective-facebook-strategies/"><u>Enhancing Online Presence Through Effective Facebook Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-symbol-meanings-explained-and-how-to-use-them-properly/"><u>Facebook Symbol Meanings, Explained (and How to Use Them Properly)</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hasty-drivers-update-gtx-750-ti-edition/"><u>Hasty Drivers Update: GTX 750 Ti Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-factors-in-social-media-content-selection/"><u>Hidden Factors in Social Media Content Selection</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-optimize-fb-visual-data-control/"><u>How to Optimize Fb Visual Data Control</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-sony-xperia-1-v-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Sony Xperia 1 V Data? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on Apple iPhone 11 Pro</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-top-digital-picks-free-alarm-ringtones-download/"><u>In 2024, Top Digital Picks Free Alarm Ringtones Download</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mac-reinstallation-made-easy-entering-and-using-recovery-mode/"><u>Mac Reinstallation Made Easy: Entering and Using Recovery Mode</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-crypto-trades-with-chatgpt-explore-5-innovative-uses-for-better-returns/"><u>Mastering Crypto Trades with ChatGPT: Explore 5 Innovative Uses for Better Returns</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-gen-image-sharing-autocaption-tech-for-enhanced-engagement-on-fb/"><u>Next-Gen Image Sharing: AutoCaption Tech for Enhanced Engagement on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventing-personal-photos-from-pervading-public-domain-at-meta/"><u>Preventing Personal Photos From Pervading Public Domain at Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/quintessential-destinations-to-find-freelancing-work/"><u>Quintessential Destinations to Find Freelancing Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-noticing-and-acting-upon-minor-user-details-fb/"><u>Strategies: Noticing and Acting upon Minor User Details, FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-mystery-behind-invisible-contacts/"><u>Unraveling the Mystery Behind Invisible Contacts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-climbing-the-viewership-ladder-with-igtv-strategies-to-succeed-for-2024/"><u>[New] Climbing the Viewership Ladder with IGTV Strategies to Succeed for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-zoomed-in-filming-with-precision-and-clarity/"><u>[Updated] 2024 Approved Zoomed In Filming with Precision and Clarity</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-donation-boosts-worldwide-covid-19-fight/"><u>$5 Million Donation Boosts Worldwide COVID-19 Fight</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/1728477754424-windows-11/"><u>逆转Windows 11文件删除：免费恢复策略</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-preserving-your-digital-self-narrative-on-facebook/"><u>A Guide to Preserving Your Digital Self-Narrative on Facebook</u></a></li>
+<li><a href="https://fox-making.techidaily.com/access-the-most-recent-update-for-action-available-for-download/"><u>Access The Most Recent Update for 'Action!' Available For Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-social-media-fluency-shortcuts-mastery-guide/"><u>Boost Your Social Media Fluency: Shortcuts Mastery Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-dissemination-strategies-sending-reels-from-instagram-to-facebook/"><u>Content Dissemination Strategies: Sending Reels From Instagram to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-unique-visionaries-on-your-fans-feeds-with-facebook-reels/"><u>Crafting Unique Visionaries on Your Fans' Feeds with Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/creators-get-richer-on-instagram-the-new-ways-to-cash-in/"><u>Creators Get Richer on Instagram: The New Ways to Cash In</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-vivo-t2-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Vivo T2 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-y56-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo Y56 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147503681-is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-for-55lf711u20-how-the-toshiba-smart-tv-elevates-your-prime-viewing-experience/"><u>Top Review for 55LF711U20: How the Toshiba Smart TV Elevates Your Prime Viewing Experience</u></a></li>
 </ul></div>
 

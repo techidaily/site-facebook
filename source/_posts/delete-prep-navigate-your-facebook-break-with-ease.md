@@ -1,7 +1,7 @@
 ---
 title: "Delete Prep: Navigate Your Facebook Break With Ease"
-date: 2024-07-29T07:41:30.105Z
-updated: 2024-07-30T07:41:30.105Z
+date: 2025-01-10T20:53:52.843Z
+updated: 2025-01-12T16:48:14.450Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
 ## 1\. Inform Your Close Contacts About Your Decision
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
 
  You might think of ending your journey on Facebook, but it doesn't mean leaving your friends uninformed about the decision. Start by informing your close contacts that you are deleting your Facebook account.
@@ -32,9 +29,6 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
  Informing your close contacts about such decisions builds better relationships and keeps them close to you.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ## 2\. Save the Media You Wish to Keep
 
  Regular Facebook users upload pictures and videos on the app. Before deciding to delete your Facebook account, you must have shared memorable media with friends. The ideal practice is to save the memories that actually mean something in your life.
@@ -43,16 +37,13 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
  Facebook does not have an in-built feature to save videos; however, Android phones support[Facebook video downloaders](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) that enable you to save your videos to your phone’s gallery. You can[download Facebook videos on your PC](https://www.makeuseof.com/tag/download-private-facebook-videos/) as well.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## 3\. Decide What to Do With Messenger
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Initially, Facebook had an integrated messaging and chat system, but that’s not the case anymore. Messenger is a separate app that allows you to call and message people.
 
@@ -68,23 +59,22 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
 ![Messenger Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Messenger-Account-Settings.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Personal information on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-information-on-Messenger.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Manage account of Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Manage-account-of-Messenger.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Deactivate Messenger account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-Messenger-account.JPG)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Change Your Page Admins
 
  Your Facebook pages also get affected when you delete your Facebook account. Pages with sole owners and no other admins get unpublished once the account is deleted. This implies that the page is no longer visible to the public and its members. Also, it loses all the progress, engagement, and likes.
@@ -97,12 +87,13 @@ Close
 
  Once you have talked to someone and promoted them as an admin of your group, they will manage the group, even after you’re gone.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## 6\. Wind Up Any Professional Business
 
 ![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook has become a hub of professional businesses where everyone can thrive equally. We understand that leaving all that can be difficult if you are among those people. What will happen to your customers? Can you survive without your business?
 
@@ -112,6 +103,10 @@ Close
 
  Those who feel their business should continue can pick another admin to manage things. It can be any trustworthy person or even a business partner.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Save and Download Your Facebook Data and History
 
  Before leaving Facebook, saving your data and history is a wise choice. It includes everything from your comments to posts, friends, messages, photos, and the history of other Facebook activities.
@@ -120,10 +115,11 @@ Close
 
 ## 8\. Organize and Save Your Facebook Memories
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  After downloading, take time to review your data and arrange it into different folders. You can also label them with the names of events, people, and places.
 
@@ -143,14 +139,11 @@ Close
 
  You have the option to wind up or pass on any Facebook pages and groups to someone equally passionate about them as you were. If Facebook isn't your thing, try something else. Maybe you’ll find an app that accurately represents your social media presence.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,4 +152,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-optimize-your-presence-mastering-snapchat-business-use-for-2024/"><u>[New] Optimize Your Presence Mastering Snapchat Business Use for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/9-key-strategies-enhancing-personal-wellness-with-chatgpt/"><u>9 Key Strategies: Enhancing Personal Wellness with ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-tools-empowering-community-leaders-on-facebook/"><u>Cutting-Edge Tools Empowering Community Leaders on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-downloads-your-comprehensive-guide-to-the-2-2022-mtv-movie-and-tv-awards/"><u>Free Downloads: Your Comprehensive Guide to the 2# 2022 MTV Movie & TV Awards</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/free-m2ts-conversion-tool-easily-convert-movavchd-video-formats-with-movavi/"><u>Free M2TS Conversion Tool: Easily Convert MOV/AVCHD Video Formats with Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-telegram-thrived-when-friends-turned-to-other-platforms/"><u>How Telegram Thrived When Friends Turned to Other Platforms</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x7b-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Honor X7b Phone Without Password?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-video-cover-updates-on-facebook-for-2024/"><u>Mastering Video Cover Updates on Facebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-cyber-leakage-of-personal-photos-at-meta/"><u>Preventing Cyber Leakage of Personal Photos at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/severing-spotify-ties-with-facebook-today/"><u>Severing Spotify Ties With Facebook Today</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-for-a-nonfunctional-microphone-on-windows-11/"><u>Troubleshooting Steps for a Nonfunctional Microphone on Windows 11</u></a></li>
+</ul></div>
 

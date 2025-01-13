@@ -1,7 +1,7 @@
 ---
 title: Demystifying the Facebook Privacy Center Upgrade for Users
-date: 2024-07-29T07:41:41.259Z
-updated: 2024-07-30T07:41:41.259Z
+date: 2025-01-11T18:37:09.400Z
+updated: 2025-01-12T23:06:49.224Z
 tags:
   - facebook
 categories:
@@ -27,9 +27,6 @@ thumbnail: https://thmb.techidaily.com/3d11ea0bfdce60d31e046d3cc7ec8c1b61d6f0342
 
 Here's how:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
@@ -38,11 +35,16 @@ Here's how:
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
  This will take you to the Privacy Center home where you can further explore this new feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's Privacy Center at a Glance
 
  The Facebook Privacy Center provides helpful information on five major categories, each containing specific information about Meta's privacy policy.
@@ -56,25 +58,28 @@ Here's how:
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
@@ -84,9 +89,6 @@ Here's how:
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Why You Should Use Facebook's Privacy Center
 
  If you have access to the Privacy Center, it may be worth your while to spend some time familiarizing yourself with how Meta handles and processes your data across its family of apps.
@@ -105,14 +107,11 @@ Here's how:
 
  Considering Facebook’s privacy history and its recent objections to iOS ad tracking changes, the new Privacy Center appears to be a small step in the right direction. We can only hope that it gets better.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +120,22 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-top-sites-for-fetching-got-ringtone-downloads/"><u>[New] In 2024, Top Sites for Fetching GoT Ringtone Downloads</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1-m2-powered-apple-macbook-air-enhanced-speed-and-design-at-a-premium-price-expert-insights/"><u>1. M2-Powered Apple MacBook Air : Enhanced Speed & Design at a Premium Price – Expert Insights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-engaging-podcast-names-tips-and-techniques-for-2024/"><u>Crafting Engaging Podcast Names Tips and Techniques for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211381582-9782889702640-decrypter-lavenir/"><u>Décrypter l'avenir | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/designating-which-friends-can-view-you-active/"><u>Designating Which Friends Can View You Active</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-helper-exploring-its-aid-and-resolution-features/"><u>Facebook Helper: Exploring Its Aid and Resolution Features</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-lava-yuva-3-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Lava Yuva 3 Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-attract-candidates-posting-job-ads-on-facebook/"><u>How to Attract Candidates: Posting Job Ads on Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-beyond-boundaries-channel-youtube-for-exciting-green-screens/"><u>In 2024, Beyond Boundaries Channel Youtube for Exciting Green Screens</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-vivo-v29e-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Vivo V29e to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-enigma-understanding-vague-content-sharing/"><u>Social Media's Enigma - Understanding Vague Content Sharing</u></a></li>
+<li><a href="https://win-dash.techidaily.com/streamlined-instructions-acquire-and-install-epson-et-4550-driver-with-speedy-results-on-your-windows-device/"><u>Streamlined Instructions: Acquire & Install Epson ET-4550 Driver with Speedy Results on Your Windows Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-smart-language-for-social-networking-success/"><u>The Ultimate Guide to SMART Language for Social Networking Success</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-rated-cloud-hosting-providers-comprehensive-analysis-by-tech-experts-zdnet/"><u>Top-Rated Cloud Hosting Providers: Comprehensive Analysis by Tech Experts - ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
+</ul></div>
 

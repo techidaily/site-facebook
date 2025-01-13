@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-12-31T00:09:30.769Z
-updated: 2025-01-05T19:45:37.454Z
+date: 2025-01-08T19:12:02.430Z
+updated: 2025-01-12T22:53:09.164Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How Text Formatting Works in Messenger
 
  While[Messenger has many features you can try](https://www.makeuseof.com/tag/facebook-messenger-features/) , you can easily format text in Facebook Messenger with the right characters or symbols. Each type of emphasis has a symbol that you need to type before and after the text that you want to emphasize.
@@ -49,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
@@ -58,12 +54,16 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
@@ -71,7 +71,7 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
@@ -80,13 +80,13 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -121,17 +121,20 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-evaluating-the-superiority-of-splitcams-recording/"><u>[Updated] 2024 Approved Evaluating the Superiority of SplitCam's Recording</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-top-100-virtual-bicycle-escapades-to-experience/"><u>[Updated] 2024 Approved Top 100 Virtual Bicycle Escapades to Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/detailed-guide-modifying-fb-picture-sharing/"><u>Detailed Guide: Modifying FB Picture Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-safety-account-verification-is-(securityfbcom)-reliable/"><u>Facebook Safety Account Verification: Is <security@fb.com> Reliable?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-4-open-to-all-yet-premium-users-reap-6-exclusive-advantages/"><u>GPT-4: Open to All; Yet, Premium Users Reap 6 Exclusive Advantages.</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-sony-xperia-5-v-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Sony Xperia 5 V to Roku | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-tecno-pop-7-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Tecno Pop 7 Pro FRP Bypass Instantly</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-the-repair-of-code-39-errors-in-your-windows-setup/"><u>Mastering the Repair of Code 39 Errors in Your Windows Setup</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-best-of-podcasting-in-22-reviews-and-reflections/"><u>The Best of Podcasting in '22 - Reviews and Reflections</u></a></li>
-<li><a href="https://win-tips.techidaily.com/understanding-vsphere-promiscuous-mode-a-comprehensive-guide/"><u>Understanding vSphere Promiscuous Mode: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ling-our-exclusive-package-of-free-youtube-adornments-for-2024/"><u>Unveiling Our Exclusive Package of Free YouTube Adornments for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-cutting-edge-e-learning-sites-that-dont-fit-udemy-for-2024/"><u>[Updated] Cutting-Edge E-Learning Sites That Don't Fit Udemy for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-avatar-abstraction-artistry-sculpting-your-playful-image/"><u>[Updated] In 2024, Avatar Abstraction Artistry Sculpting Your Playful Image</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>[Updated] In 2024, Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/10plus-sites-accessible-free-visuals-for-everyone/"><u>10+ Sites Accessible, Free Visuals for Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-facebook-fables-top-10-untruths-exposed/"><u>Debunking Facebook Fables: Top 10 Untruths Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-the-digital-dossiers-unraveling-facebooks-misconits/"><u>Debunking the Digital Dossiers: Unraveling Facebook's Misconits</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-disengagement-4-key-factors-in-user-loss-on-facebook/"><u>Deciphering Disengagement: 4 Key Factors in User Loss on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-on-trump-ban-by-facebook-oversight-expected-soon/"><u>Decision on Trump-Ban by Facebook Oversight Expected Soon</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-rapid-growth-of-telegram-post-facebook-outage/"><u>Decoding the Rapid Growth of Telegram Post-Facebook Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-downtime-dilemmas-in-facebook-and-whatsapp-era/"><u>Digital Downtime Dilemmas in Facebook & WhatsApp Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profile-a-guide-to-stellar-facebook-tales/"><u>Elevate Your Profile: A Guide to Stellar Facebook Tales</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-logitech-g35-audio-drivers-for-windows-operating-systems-windows-7810/"><u>Get Logitech G35 Audio Drivers for Windows Operating Systems (Windows 7/8/10)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/go-incognito-your-step-by-step-instagram-live-guide/"><u>Go Incognito Your Step-by-Step Instagram Live Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mastering-freefire-the-30-best-tag-strategies-to-increase-views/"><u>Mastering FreeFire The 30 Best Tag Strategies to Increase Views</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-6-downloads-unlocked-with-free-online-and-global-viewing-for-2024/"><u>Top 6 Downloads – Unlocked with Free Online & Global Viewing for 2024</u></a></li>
 </ul></div>
 

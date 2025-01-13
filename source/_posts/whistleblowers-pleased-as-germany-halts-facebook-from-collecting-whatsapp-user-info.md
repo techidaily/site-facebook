@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2025-01-05T02:51:02.652Z
-updated: 2025-01-06T00:07:03.501Z
+date: 2025-01-09T16:56:04.180Z
+updated: 2025-01-12T18:38:38.461Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,19 +81,22 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-your-path-to-perfect-iphone-hdr-photos/"><u>[New] Your Path to Perfect iPhone HDR Photos</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-assessing-screen-recorder-excellence-in-action/"><u>[Updated] 2024 Approved Assessing Screen Recorder Excellence in Action</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-comparing-youtube-and-dailymotion-notable-contrasts/"><u>[Updated] 2024 Approved Comparing YouTube and Dailymotion Notable Contrasts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-for-aspiring-filmmakers-the-best-cameras-from-35mm-to-pands/"><u>[Updated] For Aspiring Filmmakers, The Best Cameras From 35Mm to P&S</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-quick-win-strategies-for-replying-on-discord-platforms/"><u>[Updated] Quick-Win Strategies for Replying on Discord Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-uplifting-social-media-impacts-todays-world/"><u>7 Uplifting Social Media Impacts Today's World</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-hidden-world-of-shadowbanning/"><u>Deciphering the Hidden World of Shadowbanning</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/editing-to-sharing-using-premiere-with-youtube-for-2024/"><u>From Editing to Sharing Using Premiere with YouTube for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/immortals-fenyx-rising-the-delay-is-over-adventure-awaits/"><u>Immortals Fenyx Rising - The Delay Is Over, Adventure Awaits</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/proxy-pages-or-real-people-unmask-online-suspects/"><u>Proxy Pages or Real People? Unmask Online Suspects</u></a></li>
-<li><a href="https://facebook.techidaily.com/terrifying-realities-in-metas-media-empire/"><u>Terrifying Realities in Meta’s Media Empire</u></a></li>
-<li><a href="https://facebook.techidaily.com/utilizing-sleep-mode-a-comprehensive-guide-to-messenger-kids-efficiency/"><u>Utilizing Sleep Mode: A Comprehensive Guide to Messenger Kids Efficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dormancy-why-instagram-promotes-online-intervals/"><u>'Digital Dormancy': Why Instagram Promotes Online Intervals</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-inshot-showdown-expert-review-of-best-editing-software/"><u>[New] InShot Showdown Expert Review of Best Editing Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs/"><u>[New] Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1725286451037-dvdiso/"><u>効果的にDVDを書き込むためのISO圧縮技術と実践方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebook-gesture-interface-value/"><u>Deciphering Facebook Gesture Interface Value</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mechanism-behind-my-fb-promos/"><u>Decoding the Mechanism Behind My FB Promos</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-visuals-that-stand-out-in-the-fb-crowd/"><u>Designing Visuals That Stand Out in the Fb Crowd</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-domains-shift-from-facebook-to-the-next-chapter-meta/"><u>Digital Domains Shift: From Facebook to the Next Chapter, Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/diminish-personalized-online-commerce-in-digital-communities/"><u>Diminish Personalized Online Commerce in Digital Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/discloser-of-confidences-unmasking-fbs-informant/"><u>Discloser of Confidences: Unmasking FB’s Informant</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-tactics-to-decrease-your-digital-socialization-cycle/"><u>Effective Tactics to Decrease Your Digital Socialization Cycle</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-12-pro-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone 12 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/mastering-the-art-of-windows-booting-processes-complete-insights-and-essential-tips/"><u>Mastering the Art of Windows Booting Processes: Complete Insights & Essential Tips</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/survival-tips-from-ai-can-chatgpt-help-you-escape-the-wild/"><u>Survival Tips From AI: Can ChatGPT Help You Escape the Wild?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/universal-vmix-adapter-for-2024/"><u>Universal VMix Adapter for 2024</u></a></li>
 </ul></div>
 

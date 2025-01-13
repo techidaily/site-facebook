@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2024-12-31T02:34:38.785Z
-updated: 2025-01-06T01:29:51.477Z
+date: 2025-01-05T16:58:16.412Z
+updated: 2025-01-12T23:17:10.502Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Giphy's Acquisition by Facebook
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -95,18 +95,14 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-obs-tutorial-broadcasting-on-youtube-from-home/"><u>[New] 2024 Approved OBS Tutorial Broadcasting on Youtube From Home</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-apex-palette-adjuster/"><u>[New] Apex Palette Adjuster</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-insta-reels-with-tiktok-techniques-for-massive-shares/"><u>[Updated] In 2024, Mastering Insta Reels with TikTok Techniques for Massive Shares</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-curators-guide-to-this-years-most-riveting-podcast-episodes/"><u>A Curator's Guide to This Year's Most Riveting Podcast Episodes</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/blue-screen-blues-clearing-up-error-0x0000001e-on-your-computer/"><u>Blue Screen Blues: Clearing Up Error 0X0000001E on Your Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-commitment-to-privacy-when-will-we-see-encrypted-chats/"><u>FB's Commitment to Privacy: When Will We See Encrypted Chats?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-boosting-channel-traffic-with-youtube-backlink-tactics/"><u>In 2024, Boosting Channel Traffic with YouTube Backlink Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/influential-network-driving-covid-19-fallacies/"><u>Influential Network Driving Covid-19 Fallacies</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maintaining-the-right-video-aspect-on-twitters-for-2024/"><u>Maintaining the Right Video Aspect on Twitters for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebook-business-page-removal-guide/"><u>Mastering Facebook Business Page Removal Guide</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/powerslide-music-integration-a-comprehensive-guide/"><u>PowerSlide Music Integration A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/revelation-on-platform-whistleblower-spills-secrets/"><u>Revelation on Platform: Whistleblower Spills Secrets</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210406359-9781786786111-signposts-of-the-spiritual-journey/"><u>Signposts of the Spiritual Journey | Free Book</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-night-photography-perfection-with-iphones/"><u>[New] Night Photography Perfection with iPhones</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/9-prime-live-streaming-venues-for-gamers/"><u>9 Prime Live Streaming Venues for Gamers</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-intel-optane-technology-drivers-on-windows-step-by-step-guide/"><u>Download and Install Intel Optane Technology Drivers on Windows: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-social-media-presence-with-effective-fb-tactics/"><u>Elevating Social Media Presence with Effective FB Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-connectivity-crisis-six-hour-network-failure/"><u>Global Connectivity Crisis: Six-Hour Network Failure</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-pro-video-creators-choice-10-exceptional-photo-background-alternators/"><u>In 2024, Pro Video Creators' Choice 10 Exceptional Photo-Background Alternators</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-infinix-hot-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/towards-a-diverse-social-ecosystem/"><u>Towards a Diverse Social Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-reinventing-user-interface-is-key-for-instagrams-future/"><u>Why Reinventing User Interface Is Key for Instagram’s Future</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Disconnecting Insta & FB Accounts: Procedure Tips"
-date: 2024-07-29T07:42:37.461Z
-updated: 2024-07-30T07:42:37.461Z
+date: 2025-01-09T23:10:45.338Z
+updated: 2025-01-12T18:04:02.042Z
 tags:
   - facebook
 categories:
@@ -20,18 +20,24 @@ thumbnail: https://thmb.techidaily.com/a6435a313e4469213bebd5ae38a7530a7b0364be0
  If you'd rather keep the two social networks separate though, you'll need to go through a series of simple steps using your Meta Accounts Center.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Disconnect Your Instagram Account From Facebook
 
  First, you're going to want to open up Instagram on your phone. Then, you'll need to follow the steps below:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Instagram settings page new](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-settings-page-new.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Instagram accounts center screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/instagram-accounts-center-screenshot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Meta connected experience accounts page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/meta-connected-experience-accounts-page.jpg)
 
@@ -61,12 +67,17 @@ Close
 
  Here's how to delete your Instagram posts shared on Facebook through your**Activity Log** .
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook profile page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-profile-page-screenshot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook profile menu page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-profile-menu-page-screenshot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook activity log page screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-activity-log-page-screenshot.jpg)
 
@@ -82,14 +93,8 @@ Close
 
  You'll see all the posts you've shared from other apps. Mark all the ones posted from Instagram and tap**Trash** at the bottom right of your screen. Facebook will move all the photos to trash and automatically delete them after 30 days.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Know Before Disconnecting Your Accounts
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![Instagram on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/instagram-on-laptop.jpg)
 
  If you use both Instagram and Facebook, you may have noticed they are connected in many ways. You can cross-share posts and stories, use your Facebook Login to access Instagram, and find your Facebook friends on Instagram. These features can be convenient and help you reach a wider audience with your content.
@@ -98,23 +103,17 @@ Close
 
  Disconnecting your Instagram account from Facebook enhances your privacy and allows for more independent account management across the platforms. However, you will lose some of the convenience and features that come with syncing your accounts, such as cross-sharing and login options.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Should You Unsync Your Facebook and Instagram Accounts?
 
  There is no right or wrong answer when it comes to whether you should disconnect your Facebook and Instagram accounts. It all depends on your preferences and what you want to get out of the two social networks.
 
  If you want to keep your Facebook and Instagram separate, follow the steps above to unlink your accounts. If you later decide that you want to link them again, you can always use the Accounts Center to link them again.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +122,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-exceptional-top-ten-nintendo-switch-combat-games-max-156/"><u>[New] Exceptional Top Ten Nintendo Switch Combat Games (Max 156)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-content-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[Updated] 2024 Approved Content Creation Battleground Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-diving-deep-into-sj-cam-s6-features-and-performance/"><u>[Updated] 2024 Approved Diving Deep Into SJ-CAM S6 Features and Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-theft-head-on-immediate-steps-for-social-media-safety/"><u>Face Theft Head-On: Immediate Steps for Social Media Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-and-the-legal-storm-with-amazon/"><u>Facebook's Group Administrators and the Legal Storm with Amazon</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-news-feed-a-hub-for-targeted-business-promotions/"><u>Facebook's Upcoming News Feed: A Hub for Targeted Business Promotions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-samsung-galaxy-s23-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Samsung Galaxy S23 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-facebook-group-more-popular/"><u>How to Make Your Facebook Group More Popular</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-charting-success-with-youtube-income-streams/"><u>In 2024, Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/integrating-comfort-with-efficiency-modern-approaches-to-office-design-for-2024/"><u>Integrating Comfort with Efficiency Modern Approaches to Office Design for 2024</u></a></li>
+<li><a href="https://win-guides.techidaily.com/mastering-the-management-of-system-users-with-tips-from-yl-software-experts/"><u>Mastering the Management of System Users with Tips From YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-impact-instagrams-latest-payment-avenues-explored/"><u>Maximize Your Impact: Instagram's Latest Payment Avenues Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-nuances-steering-clear-of-trading-traps-on-fb/"><u>Navigating Network Nuances: Steering Clear of Trading Traps on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-connection-the-unveiling-of-facebooks-new-identity-meta/"><u>Rethinking Connection: The Unveiling of Facebook’s New Identity, Meta</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/secrets-of-9-high-quality-webcam-enhancements/"><u>Secrets of 9 High-Quality Webcam Enhancements</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-protocol-revitalizing-a-stagnant-fb-group/"><u>The Popularity Protocol: Revitalizing a Stagnant FB Group</u></a></li>
+<li><a href="https://discover-help.techidaily.com/user-management-simplified-how-to-createdelete-accounts-on-yl-software-platform-by-yl-computing/"><u>User Management Simplified: How to Create/Delete Accounts on YL Software Platform by YL Computing</u></a></li>
+</ul></div>
 

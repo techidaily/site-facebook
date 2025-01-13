@@ -1,7 +1,7 @@
 ---
 title: Decoding Google's Significant Announcements
-date: 2024-07-29T07:43:06.903Z
-updated: 2024-07-30T07:43:06.903Z
+date: 2025-01-05T17:54:15.298Z
+updated: 2025-01-12T17:06:11.949Z
 tags:
   - facebook
 categories:
@@ -19,14 +19,8 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
  But which stories took the cake in 2022? What were Google's top news moments this year? Let's take a look.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. The $400 Million Location Tracking Settlement
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
 
  Some people don't mind location tracking features, while others find them highly concerning. Either way, one should always know if or when a service is tracking their location.
@@ -35,12 +29,13 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
  But things didn't stop there. Concerns soon arose in the US, which resulted in Google agreeing to pay a huge settlement of almost $400 million to 40 states for allegedly misleading users on location tracking. This settlement requires Google to be more forthcoming and transparent with users, including about its location tracking parameters, in 2023.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. The UK Ads Revenue Lawsuit
 
 ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
 
@@ -50,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
 ## 3\. The End of YouTube Originals
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
 
  In October 2006, when social media was still in its early days, Google announced that it had acquired YouTube for $1.65 billion. Sixteen years later, in January 2022,[Google decided to shut down YouTube Originals](https://www.makeuseof.com/why-google-killed-youtube-originals/) .
@@ -63,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
 ## 4\. The Violation of Sonos Patents
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
@@ -75,11 +64,16 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. A "Secret" Facebook Deal
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
@@ -87,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. The FTC Pixel Lawsuit
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
@@ -102,22 +93,27 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Google Has Gone Through a Lot in 2022
 
  There's no doubt that Google has seen its fair share of trials and tribulations throughout 2022, with various lawsuits, rumors, and changes to services giving it plenty of reasons to be featured in the news. But Google is no stranger to legal disputes and criticism, so we may see more similar headlines in 2023.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +122,22 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-fiscal-summary-producing-a-music-video/"><u>[New] Fiscal Summary Producing a Music Video</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-ultimate-list-top-10-websites-for-free-photo-access/"><u>[New] In 2024, The Ultimate List Top 10 Websites for Free Photo Access</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-superior-psd-filters-galore/"><u>[Updated] Superior PSD Filters Galore</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unveiling-the-best-skype-recorders-of-this-year-for-2024/"><u>[Updated] Unveiling the Best Skype Recorders of This Year for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streaming-showdown-the-ultimate-guide-for-xsplit-and-obs-fans/"><u>2024 Approved Streaming Showdown The Ultimate Guide for XSplit and OBS Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicling-googles-moments-that-shook-the-world/"><u>Chronicling Google's Moments That Shook the World</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-excess-enhancing-your-feed-focus/"><u>Cut the Excess: Enhancing Your Feed Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
+<li><a href="https://common-error.techidaily.com/dragon-ball-fighterz-network-error-resolved-initialization-successful/"><u>Dragon Ball FighterZ Network Error Resolved – Initialization Successful</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-concept-to-celebration-structuring-fb-events/"><u>From Concept to Celebration: Structuring FB Events</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-apple-iphone-14-to-chromecast-drfone-by-drfone-ios/"><u>In 2024, How to Cast Apple iPhone 14 to Chromecast? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/remove-the-lock-screen-fingerprint-of-your-lenovo-thinkphone-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Lenovo ThinkPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-standards-right-to-suspend-trump-with-time-capsule/"><u>Social Networking Standards: Right to Suspend Trump, With Time Capsule</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/unveiling-the-future-of-gaming-assistance-microsofts-ai-powered-xbox-help-chatbot-detailed-by-zdnet/"><u>Unveiling the Future of Gaming Assistance: Microsoft's AI-Powered Xbox Help Chatbot Detailed by ZDNet</u></a></li>
+</ul></div>
 

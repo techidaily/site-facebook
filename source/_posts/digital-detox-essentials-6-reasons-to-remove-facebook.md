@@ -1,7 +1,7 @@
 ---
 title: Digital Detox Essentials – 6 Reasons to Remove Facebook
-date: 2024-07-29T07:40:38.286Z
-updated: 2024-07-30T07:40:38.286Z
+date: 2025-01-05T20:26:32.842Z
+updated: 2025-01-12T17:43:07.070Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/8467c9e20d909c3a99e5604c440b3f79e42d4e9a9
 
 ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
@@ -32,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/8467c9e20d909c3a99e5604c440b3f79e42d4e9a9
  But Facebook also tracks you when you're not using the site. Worse still, you don't even need a Facebook account—the company will still track you. And it has been behind more than one data leak with severe consequences.
 
  It's more than likely that there isn't a single person who hasn't heard of the Facebook–Cambridge Analytica data scandal that occurred in 2018 and led to an utter privacy mess. But sadly, that's not the only data leak scandal. Several have followed that one,[along with many investigations](https://www.makeuseof.com/ireland-launches-investigation-facebook-massive-data-leak/) and fines, yet it doesn't appear that Facebook's users can feel safe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Human Experimentation
 
@@ -45,14 +53,8 @@ thumbnail: https://thmb.techidaily.com/8467c9e20d909c3a99e5604c440b3f79e42d4e9a9
 
 Bottom line: Facebook sees you as a lab rat.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Fake News
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
@@ -65,9 +67,6 @@ Bottom line: Facebook sees you as a lab rat.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 4\. Questionable Privacy Practices
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
@@ -80,9 +79,6 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Facebook Has Forgotten Its Roots
 
 ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
@@ -94,11 +90,16 @@ Bottom line: Facebook sees you as a lab rat.
  But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. What Even Is Facebook Anymore?
 
 ![people looking at laptop confused](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/people-looking-at-laptop-confused.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It's almost a given that social media platforms nowadays copy each other's features, so it's pretty much expected to see some overlap. But each still managed to have one thing it's known for above all others. So, for Instagram, it's image uploads, Twitter is a status-sharing platform, TikTok is for video uploads, and so on. But what about Facebook?
 
@@ -109,22 +110,20 @@ Bottom line: Facebook sees you as a lab rat.
  It's also a place to overshare personal news. Sometimes they're nice ones like engagements and weddings, but other times they're related to drama that should have been handled face to face. So why spend time on a platform that's a ticking time bomb bound to result in a facepalm?
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It's Time to Stop Using Facebook
 
  What Facebook once was is no more. It may have started as a social media platform pioneer, leading at the front, but it now seems to lag behind. Worse yet, the problem isn't only that it's become a less enjoyable version of itself for users.
 
  Facebook actively threatens your data. There have been so many data leaks and privacy breaches over the years—would you even find it surprising if another one follows? That shouldn't be the case. Spare yourself the headaches of holding onto Facebook, and move on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,22 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/rafting-the-perfect-introduction-15-viral-youtube-video-intros/"><u>[New] Crafting the Perfect Introduction 15 Viral YouTube Video Intros</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-the-ultra-hd-spectacle-sw320-monitor-review-edition/"><u>[New] The Ultra HD Spectacle Sw320 Monitor Review Edition</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-premier-guide-to-free-online-meetings-and-sharing-screens/"><u>[Updated] 2024 Approved The Premier Guide to FREE Online Meetings & Sharing Screens</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harness-mematic-for-efficient-note-taking/"><u>2024 Approved Harness Mematic for Efficient Note-Taking</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-stepwise-blend-integrating-obs-and-zoom/"><u>2024 Approved Stepwise Blend Integrating OBS and Zoom</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquire-verified-mark-via-purchased-status/"><u>Acquire Verified Mark via Purchased Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-iphone-users-unite/"><u>App Tracking Decline: IPhone Users Unite</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-innovation-essential-unseen-tech-news/"><u>Behind the Scenes of Innovation: Essential, Unseen Tech News</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-hype-towards-clarity-new-perspective-on-the-social-media-scandal/"><u>Beyond Hype, Towards Clarity: New Perspective on The Social Media Scandal</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-brands-with-a-precise-facebook-recommendation-system/"><u>Boosting Brands with a Precise Facebook Recommendation System</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-up-with-spotify-on-facebook-procedure-here/"><u>Breaking Up with Spotify on Facebook: Procedure Here</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixes-and-solutions-for-constant-age-of-wonders-planetfall-crashes-on-pc/"><u>Fixes and Solutions for Constant 'Age of Wonders: Planetfall' Crashes on PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-experts-roadmap-to-bulk-downloading-on-tiktok-platform/"><u>In 2024, The Expert's Roadmap to Bulk Downloading on TikTok Platform</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-top-12-html5-video-engines/"><u>In 2024, The Ultimate Guide to Top 12 HTML5 Video Engines</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/resolucion-efectiva-para-el-problema-de-faltante-bootmgr-en-windows-11/"><u>Resolución Efectiva Para El Problema De Faltante 'BOOTMGR' En Windows 11</u></a></li>
+</ul></div>
 

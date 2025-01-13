@@ -1,7 +1,7 @@
 ---
 title: Discovering the Most Memorable Podcasts of 2022
-date: 2024-07-29T07:42:06.940Z
-updated: 2024-07-30T07:42:06.940Z
+date: 2025-01-07T23:49:30.744Z
+updated: 2025-01-12T23:49:30.501Z
 tags:
   - facebook
 categories:
@@ -20,15 +20,17 @@ thumbnail: https://thmb.techidaily.com/69ee34b64cf92db1f2232edf38c3580f65ba5a6c1
  You can subscribe to the Really Useful Podcast on[Apple Podcasts](https://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) ,[Spotify](https://open.spotify.com/show/283gDxLd6OTNEpRq6tN7ha) ,[Google Podcasts](https://www.google.com/podcasts?feed=aHR0cHM6Ly9hbmNob3IuZm0vcy8zMWJlNDcwL3BvZGNhc3QvcnNz) ,[Amazon Music and Audible](https://music.amazon.co.uk/podcasts/20ab73d4-5da2-46c7-a17f-dc6eb39bdb48/The-Really-Useful-Podcast) ,[Player FM](https://player.fm/series/the-really-useful-podcast-2491856) , or copy the[RSS feed](https://feeds.transistor.fm/the-really-useful-podcast) into your podcast player.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Shownotes
 
 Here's everything we discuss in this week's 2022 special:
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### High points of 2022
 
 * Meta crash and burn
@@ -36,8 +38,9 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Low points of 2022
 
 * [Cryptocurrency crash](https://www.makeuseof.com/us-justice-department-seizes-billions-bitcoin/)
@@ -48,8 +51,9 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best devices of 2022
 
 * [Nothing Phone (1)](https://www.makeuseof.com/nothing-phone-1-review/)
@@ -57,8 +61,9 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Best games of 2022
 
 * [Vampire Survivors](https://poncle.itch.io/vampire-survivors)
@@ -69,14 +74,11 @@ Here's everything we discuss in this week's 2022 special:
 
  Christian Cawley, Gavin Phillips, and Ben Stegner host this podcast. You can contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) ,[@gavinspavin](https://twitter.com/gavinspavin) , and[@stegnersaurus](https://twitter.com/stegnersaurus) , with your suggestions for future topics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +87,19 @@ Here's everything we discuss in this week's 2022 special:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-strategies-for-watching-multiple-youtube-videos/"><u>[New] Strategies for Watching Multiple YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://article-tips.techidaily.com/blueprint-for-big-screens-the-art-of-filmmaking-for-2024/"><u>Blueprint for Big Screens The Art of Filmmaking for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
+<li><a href="https://win-trending.techidaily.com/efficient-database-management-with-sql-creating-tables-using-select-statements/"><u>Efficient Database Management with SQL: Creating Tables Using SELECT Statements</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/live-cam-creator-by-manycam-premium-virtual-webcam-and-screen-recording-software/"><u>Live Cam Creator by ManyCam: Premium Virtual Webcam & Screen Recording Software</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/r-the-art-of-video-sending-from-youtube-to-dailymotion-for-2024/"><u>Master the Art of Video Sending From YouTube to Dailymotion for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-windows-11s-multimedia-control-panel/"><u>Mastering Windows 11'S Multimedia Control Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-identity-new-space-modify-your-fb-profile-url/"><u>New Identity, New Space: Modify Your FB Profile URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://fox-access.techidaily.com/transform-your-photos-using-adobes-power-for-2024/"><u>Transform Your Photos Using Adobe's Power for 2024</u></a></li>
+</ul></div>
 

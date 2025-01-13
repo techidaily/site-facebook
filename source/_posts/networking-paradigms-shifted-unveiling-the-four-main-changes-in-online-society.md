@@ -1,7 +1,7 @@
 ---
 title: "Networking Paradigms Shifted: Unveiling the Four Main Changes in Online Society"
-date: 2025-01-04T09:02:34.929Z
-updated: 2025-01-06T08:22:50.569Z
+date: 2025-01-06T22:40:03.178Z
+updated: 2025-01-12T23:16:56.481Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Facebook’s Increased Focus on the Metaverse
 
 ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
@@ -35,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to[CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
 
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Elon Musk Took Over Twitter
 
@@ -44,20 +44,20 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Reels, Reels, Reels
 
 ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
  Reels are Instagram’s answer to TikTok gaining popularity. TikTok isn’t the only social media that Instagram copied in 2022 though.[Instagram also tested Candid Stories](https://www.makeuseof.com/instagram-candid-challenges-test-bereal-feature/) in 2022 which are the same concept as new social media app BeReal, where a notification at a random time each day prompts you to immediately post a picture of whatever you are doing at that moment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. The Rise of BeReal
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Social Media in 2022
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
@@ -97,18 +97,16 @@ thumbnail: https://thmb.techidaily.com/545eb30532b146292d910492a3de0882f942d02de
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-top-5-hdmi-21-gaming-monitors-you-can-find/"><u>[Updated] 2024 Approved Top 5 HDMI 2.1 Gaming Monitors You Can Find</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-pro-audio-recordings-the-11-best-tools-for-live-events-for-2024/"><u>[Updated] Pro Audio Recordings The 11 Best Tools for Live Events for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-lite-android-apps-that-are-faster-than-the-full-versions/"><u>10 Lite Android Apps That Are Faster Than the Full Versions</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-gaming-the-true-scope-of-the-metaverse/"><u>Beyond Gaming: The True Scope of the Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-across-borders-pros-cons-of-fb-expat-groups/"><u>Connecting Across Borders? Pros, Cons of FB Expat Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-sunset-mastering-the-art-of-permanent-deletion-on-facebook/"><u>Digital Sunset: Mastering the Art of Permanent Deletion on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-web-locating-profile-and-group-links/"><u>Exploring Facebook's Web: Locating Profile & Group Links</u></a></li>
-<li><a href="https://fox-links.techidaily.com/how-to-add-free-text-animation-to-videos/"><u>How to Add Free Text Animation to Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-best-clickbait-title-generator/"><u>In 2024, Best Clickbait Title Generator</u></a></li>
-<li><a href="https://facebook.techidaily.com/monetizing-mastery-top-5-strategies-for-igfb-success/"><u>Monetizing Mastery: Top 5 Strategies for IG/FB Success</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-downloading-and-setting-up-llama-2-on-your-system/"><u>Step-by-Step Guide: Downloading & Setting Up LLaMA 2 on Your System</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/the-ultimate-guide-to-the-hp-zbook-studio-g9-powerful-mobile-workstation-with-diverse-graphic-capabilities-reviewed-by-zdnet/"><u>The Ultimate Guide to the HP ZBook Studio G9: Powerful Mobile Workstation with Diverse Graphic Capabilities | Reviewed by ZDNET</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-5-legitimate-sources-for-downloading-your-favorite-chinese-films-safely-and-easily/"><u>Top 5 Legitimate Sources for Downloading Your Favorite Chinese Films Safely and Easily</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-exclusive-list-of-8-best-apps-to-enhance-facebook-likes/"><u>[New] 2024 Approved Exclusive List of 8 Best Apps To Enhance Facebook Likes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-real-vs-fake-quick-ways-to-audit-your-insta-circle/"><u>[New] Real Vs. Fake Quick Ways to Audit Your Insta Circle</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-untapped-realities-of-instagram-story-watchers/"><u>[Updated] 2024 Approved Untapped Realities of Instagram Story Watchers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-what-you-should-expect-to-make-as-a-podcaster/"><u>[Updated] 2024 Approved What You Should Expect to Make as a Podcaster</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boosting-youtube-videos-activating-av1-support-for-2024/"><u>[Updated] Boosting YouTube Videos Activating AV1 Support for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-doves-cooing-for-unity-7-online-methods-to-bind/"><u>Digital Doves Cooing for Unity: 7 Online Methods to Bind</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-on-instanfts/"><u>Digital Identity on InstaNFTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-updated-language-within-facebook-pages-labels/"><u>Discovering Updated Language Within Facebook Pages Labels</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-management-assign-a-page-administrator/"><u>Elevate Management: Assign a Page Administrator</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-the-role-of-content-filtering-in-ai-chatbots/"><u>Exploring the Role of Content Filtering in AI Chatbots</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-rated-web-based-solutions-for-vertical-video-editing/"><u>Top-Rated Web-Based Solutions for Vertical Video Editing</u></a></li>
 </ul></div>
 

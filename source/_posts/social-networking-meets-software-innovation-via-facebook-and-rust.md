@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2025-01-02T07:14:27.278Z
-updated: 2025-01-06T03:32:06.670Z
+date: 2025-01-05T21:03:41.517Z
+updated: 2025-01-12T21:50:08.425Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,24 +61,24 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-10-educational-youtube-channels/"><u>[New] 2024 Approved Top 10 Educational YouTube Channels</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unlock-the-full-potential-of-your-iphone-photos/"><u>[New] 2024 Approved Unlock the Full Potential of Your iPhone Photos</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/avoiding-costly-mistakes-preventing-damage-from-incompatible-usb-c-cables-tips-and-tricks/"><u>Avoiding Costly Mistakes: Preventing Damage From Incompatible USB-C Cables | Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/cease-and-desist-stop-fb-notifications/"><u>Cease and Desist: Stop FB Notifications</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-seatechs-usb-external-blu-ray-burner-inconsistent-output/"><u>Comprehensive Analysis of SeaTech's USB External Blu-Ray Burner: Inconsistent Output</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-filter-bubble-transparency-act/"><u>Decoding the Filter Bubble Transparency Act</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-negative-reactions-in-social-networks/"><u>Exploring Negative Reactions in Social Networks</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/grab-your-bargain-a-thor-darth-vader-motif-monitor-is-just-1e6-more-than-expected-retailer-selling-24-inch-ips-display-at-low-price/"><u>Grab Your Bargain: A 'Thor Darth Vader' Motif Monitor Is Just $1E6 More Than Expected - Retailer Selling 24-Inch IPS Display at Low Price</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/harmonizing-designs-using-color-principles-wisely-for-2024/"><u>Harmonizing Designs Using Color Principles Wisely for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-beyond-imagination-exploring-ar-worlds/"><u>In 2024, Beyond Imagination Exploring AR Worlds</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-enjoy-unparalleled-quality-youtubes-elite-4k-solutions/"><u>In 2024, Enjoy Unparalleled Quality YouTube's Elite 4K Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-xiaomi-14-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Xiaomi 14 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Nokia C12 Plus? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-brings-ads-to-reels-and-facebook-tests-sticker-ads-for-stories/"><u>Instagram Brings Ads to Reels and Facebook Tests Sticker Ads for Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/learning-from-facebook-the-top-5-user-driven-disasters/"><u>Learning From Facebook: The Top 5 User-Driven Disasters</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-privacy-predicament-pinpointing-the-9-suspicious-social-behaviors/"><u>Online Privacy Predicament: Pinpointing the 9 Suspicious Social Behaviors</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-device-from-fb-web-views/"><u>Securing Your Device From FB Web Views</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-shoppers-guide-maximizing-safety-on-fb-marketplace/"><u>The Shopper’s Guide: Maximizing Safety on FB Marketplace</u></a></li>
-<li><a href="https://facebook.techidaily.com/unplugging-from-social-media-a-case-study/"><u>Unplugging From Social Media: A Case Study</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-videotwitteraudio-direct-conversion/"><u>[Updated] 2024 Approved VideoTwitterAudio Direct Conversion</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-double-delight-endless-looping-of-youtube-videos-for-tvs/"><u>[Updated] In 2024, Double Delight Endless Looping of YouTube Videos for TVs</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-privacy-leaked-facebook-secrets-exposed/"><u>Decoding Privacy: Leaked Facebook Secrets Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-fb-view-records-a-guide-to-a-cleaner-profile/"><u>Delete FB View Records: A Guide to a Cleaner Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-how-each-like-and-share-matters/"><u>Digital Footprints: How Each Like & Share Matters</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-shift-step-by-step-guide-to-renaming-fb-profile/"><u>Digital Identity Shift: Step-by-Step Guide to Renaming FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitized-dilemminas-the-complex-costs-of-social-media/"><u>Digitized Dilemminas: The Complex Costs of Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-access-to-groups-with-facebooks-channels-feature/"><u>Direct Access to Groups with Facebook's Channels Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-governance-strategy-in-its-latest-launch/"><u>Dissecting Facebook’s Governance Strategy in Its Latest Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-give-strangers-access-to-your-social-profile/"><u>Don't Give Strangers Access to Your Social Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/electric-future-total-renewable-infrastructure-at-fb/"><u>Electric Future: Total Renewable Infrastructure at FB</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722993374604-euro-truck-simulator-2-troubleshooting-pc-crash-issues-solved/"><u>Euro Truck Simulator 2: Troubleshooting PC Crash Issues - Solved!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-x-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone X without Backup | Stellar</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-poco-f5-pro-5g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Poco F5 Pro 5G Device SIM</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-stability-in-city-builders-overcoming-freezing-glitches-in-cities-skylines-insider-tips-from-2024/"><u>Mastering Stability in City Builders: Overcoming Freezing Glitches in Cities: Skylines [Insider Tips From 2024]</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-stand-out-from-the-crowd-top-video-resume-builders-free-templates/"><u>New In 2024, Stand Out From the Crowd Top Video Resume Builders Free Templates</u></a></li>
+<li><a href="https://win-web3.techidaily.com/problemen-bei-der-verbindung-ihrer-kontakte-uber-icloud-zwischen-iphone-und-ipad-begegnen-erfolgreiches-update-and-syncing/"><u>Problemen Bei Der Verbindung Ihrer Kontakte Über iCloud Zwischen iPhone Und iPad Begegnen - Erfolgreiches Update & Syncing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-to-restore-visual-clarity-to-youtube-videos/"><u>Steps to Restore Visual Clarity to YouTube Videos</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-for-non-functional-night-light-on-windows-operating-systems/"><u>Troubleshooting Guide for Non-Functional Night Light on Windows Operating Systems</u></a></li>
 </ul></div>
 

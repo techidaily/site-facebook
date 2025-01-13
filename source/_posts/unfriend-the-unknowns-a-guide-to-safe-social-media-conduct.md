@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2025-01-03T03:08:57.811Z
-updated: 2025-01-05T21:11:32.896Z
+date: 2025-01-08T23:34:40.459Z
+updated: 2025-01-12T17:12:59.083Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Risk of Identity Theft
 
 ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
@@ -49,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Accepting requests from strangers not just gives them access to your content but also to specific information about your friends. Consider a situation where you and your friends tag each other in pictures, check-ins, and stories.
 
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Access to Harmful Links
 
@@ -59,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Unless the links you receive are from people you know, there is no point in clicking them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Personal Safety at Risk
@@ -74,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
  People who talk to strangers can suffer from isolation, meaning they are glued to the screen all day instead of meeting new people. Addiction to online socialization reduces your confidence level and willingness to maintain good physical and mental health.
@@ -91,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  On the contrary, the strangers you add might not share the same interests as you. This lack of everyday stuff increases your friend list while reducing the engagement rate.
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Risk of Emotional Damage
 
@@ -118,15 +118,15 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  This can be a highly destructive activity that keeps you away from completing daily tasks. Even if you give your trustworthy online friends time, it is essential to maintain a balance between online and real-life relations.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10\. Increased Chances of Getting Scammed
 
  When you add unknown people, they might try to scam you for money and other personal belongings. This is also an emerging[Facebook marketplace scam](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) .
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
@@ -149,21 +149,18 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-a-beginners-path-to-compiling-a-youtube-playlist/"><u>[New] 2024 Approved A Beginner's Path to Compiling a YouTube Playlist</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-to-create-and-edit-videos-on-windows-11/"><u>[New] 2024 Approved How to Create and Edit Videos on Windows 11</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-step-by-step-strategies-for-impressive-slow-motion-with-gopro-hero-10/"><u>[New] Step-by-Step Strategies for Impressive Slow Motion with GoPro Hero 10</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elite-4k-reflections-the-best-mirrorless-picks/"><u>[Updated] 2024 Approved Elite 4K Reflections The Best Mirrorless Picks</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-a-beginners-guide-to-editing-digits-in-tiktoks/"><u>[Updated] In 2024, A Beginner’s Guide to Editing Digits in TikToks</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-simulate-hand-held-camera-effects-in-photoshop/"><u>[Updated] Simulate Hand-Held Camera Effects in Photoshop</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unlocking-the-power-of-instagrams-visual-storytelling-covers-edition/"><u>[Updated] Unlocking the Power of Instagram's Visual Storytelling Covers Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-effective-cost-saving-methods-for-fb-post-timing-optimization/"><u>5 Effective, Cost-Saving Methods for FB Post Timing Optimization</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-subtle-shifts-leading-to-user-decline-on-fb/"><u>Exploring the Subtle Shifts Leading to User Decline on FB</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/from-chat-to-automation-discovering-how-auto-gpt-stands-out/"><u>From Chat to Automation: Discovering How Auto-GPT Stands Out</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-innovative-techniques-for-stunning-hdr-photography/"><u>In 2024, Innovative Techniques for Stunning HDR Photography</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-control-removing-browsing-history-on-facebook/"><u>Privacy Control: Removing Browsing History on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149455836-top-social-network-cast-your-vote/"><u>Top Social Network: Cast Your Vote!</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-your-account-the-friendly-facebook-fixerup/"><u>Unlock Your Account - The Friendly Facebook Fixerup</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-mystery-why-users-are-fading-away-on-fb/"><u>Unraveling the Mystery: Why Users Are Fading Away on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/zucks-goat-a-monetary-metaphor-in-animal-form/"><u>Zuck's Goat: A Monetary Metaphor in Animal Form</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-elevate-your-video-step-by-step-from-sdr-to-hdri-for-2024/"><u>[New] Elevate Your Video Step-by-Step From SDR to HDRI for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-deciphering-concealed-views-on-video-content/"><u>[Updated] 2024 Approved Deciphering Concealed Views on Video Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-notes-and-alerts-implementation-for-2024/"><u>[Updated] Mastering YouTube Notes & Alerts Implementation for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphers-for-digital-content-creators-youtubes-keyword-techniques/"><u>2024 Approved Deciphers for Digital Content Creators YouTube's Keyword Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-benefits-of-sleep-mode-in-messenger-kids/"><u>Deciphering the Benefits of Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-realities-await-3-concerns-of-facebooks-metaverse/"><u>Digital Realities Await - 3 Concerns of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-shunning-facial-identification-compromise-facebook-user-protection/"><u>Does Shunning Facial Identification Compromise Facebook User Protection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/double-tap-deception-verifying-profiles-authenticity/"><u>Double-Tap Deception: Verifying Profiles' Authenticity</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-prestige-point-paid-metas-badge/"><u>Earn Prestige Point: Paid Metas Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-integration-of-new-users-in-fb-chat/"><u>Effortless Integration of New Users in FB Chat</u></a></li>
+<li><a href="https://some-tips.techidaily.com/enhancing-your-meta-quest-3-experience-is-it-essential-to-get-customized-lens-options-if-youre-an-eyeglass-user/"><u>Enhancing Your Meta Quest 3 Experience: Is It Essential to Get Customized Lens Options if You're an Eyeglass User?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-features-of-the-latest-win11-release/"><u>In 2024, Innovative Features of the Latest Win11 Release</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/1725287954629-winx-dvd-ripper-platinum/"><u>パソコンを更新した後に、WinX DVD Ripper Platinumの再登録方法詳解</u></a></li>
 </ul></div>
 

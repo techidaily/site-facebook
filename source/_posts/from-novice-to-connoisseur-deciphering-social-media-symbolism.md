@@ -1,7 +1,7 @@
 ---
 title: "From Novice to Connoisseur: Deciphering Social Media Symbolism"
-date: 2024-08-08T11:24:18.443Z
-updated: 2024-08-09T11:24:18.443Z
+date: 2025-01-10T21:58:08.815Z
+updated: 2025-01-12T23:16:22.814Z
 tags:
   - facebook
 categories:
@@ -19,60 +19,61 @@ thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2
 
  In this article, we take a look at what all of these symbols mean, from the Like button to others you'll come across—such as icons on Facebook menus and symbols for your status update.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Social Facebook Symbols
 
  The following are some of the more common Facebook icons for social interactions. Most people who use Facebook regularly will recognize them fairly easily.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### Facebook Reaction Icons
 
  One of the most central images in the Facebook brand is the famous "Like" icon. You can like anything on the site that you can comment on. Just click this button to let everyone know.
 
  Facebook has expanded the**Like** button to include other symbols or reactions, including Love, Care, Haha, Wow, Sad, and Angry. These symbols express how the post makes you feel.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Reaction Icons on Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/reaction-icons-on-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### Create Post Symbols
 
  Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
 
  Below the text field in your**Create post** feature on a browser, you'll see a few initial symbols. There will be an icon to add a photo or video to your post, an icon to create a live video, and an icon to add a feeling or activity. The mobile app only offers photos and videos as a quick option.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Facebook Post Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/create-facebook-post-options.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once in the**Create post** window, there are a lot more icons to navigate. Besides the options already mentioned, there's an icon to tag friends in your post, a check-in feature that adds a location to your post, a flag icon that shares life events, and an ellipsis button for more features.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![Facebook Icons When Creating a Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-icons-when-creating-a-post.jpg)
 
  Hitting**More** shows the rest of the options that you have when creating a post on Facebook. This includes GIFs and raising money on the website. On mobile, you also get icons for music, the camera, and your post's background color.
 
 ![More Tools for Creating a Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/more-tools-for-creating-a-facebook-post.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On the**Create post** window, you're also able to add emojis with the convenient**Emoji** icon nearby. The**Feeling/activity** button offers even more ways to share your emotions.
 
  Hit this button to access two long lists of emojis under two categories. The first tab is titled**Feelings** and contains emojis to express the emotions driving your post.
 
 ![Feelings Emojis for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/feelings-emojis-for-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The options in**Activities** are a bit more interesting as you can specify what you're doing. Clicking on any of these reveals more symbols for your post.
 
@@ -84,9 +85,6 @@ No advertising on the website.
 
  Some of the most important icons when creating a post on Facebook are in your**Post audience** window, accessible from the button right under your name on the post.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![Symbols for Post Audience Facebook Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/symbols-for-post-audience-facebook-options.jpg)
 
 What do these Facebook symbols mean?
@@ -105,8 +103,9 @@ What do these Facebook symbols mean?
  All-in-all, creating a Facebook post comes with a great many symbols and tools, but the above are the most essential.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Icons When Managing Facebook Posts
 
  It's also important to consider the symbols that show up alongside posts when you click the**Ellipsis** button in the upper right corner of a post window.
@@ -125,19 +124,17 @@ What do these Facebook symbols mean?
 * **Move to archive** : This removes the post from your timeline without deleting it entirely.
 * **Move to Recycle bin** : The post will no longer be on your wall; Facebook deletes these Trashed posts automatically after thirty days.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Post Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-post-settings.jpg)
 
  Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Facebook Navigation Symbols
 
  There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Facebook Menu Icons
 
@@ -192,9 +189,6 @@ What do these Facebook symbols mean?
 
  Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Symbols on Facebook: Explained
 
  Once you know what all of these Facebook symbols mean, it's clear that this social network is good for much more than just scrolling mindlessly.
@@ -203,14 +197,11 @@ What do these Facebook symbols mean?
 
  This technique won't fail you, but read labels and descriptions carefully so you don't mess with anything important. The site is a rabbit hole, but all of these icons on Facebook make diving in all the more tempting.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -219,4 +210,19 @@ What do these Facebook symbols mean?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/updated-enhancing-photographic-expression-through-snapchat-edits/"><u>[Updated] Enhancing Photographic Expression Through Snapchat Edits</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-unveiling-the-layers-intricate-analysis-of-vegas-pro-21/"><u>[Updated] In 2024, Unveiling the Layers Intricate Analysis of Vegas Pro '21</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-unlocking-audible-content-from-twitter-videos/"><u>2024 Approved Unlocking Audible Content From Twitter Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-one-platform-to-another-introducing-metas-digital-evolution/"><u>From One Platform to Another: Introducing Meta's Digital Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-facebooks-tool-for-mindful-boundary-setting/"><u>Harnessing Facebook’s Tool for Mindful Boundary Setting</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-safe-is-my-phone-info-from-social-media-leaks/"><u>How Safe Is My Phone Info From Social Media Leaks?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-30-probing-into-the-metaverse-key-ventures-deciphered/"><u>In 2024, 30 Probing Into the Metaverse Key Ventures Deciphered</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-breaks-tradition-whatsapp-delivers-2fa-codes/"><u>Instagram Breaks Tradition: WhatsApp Delivers 2FA Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-new-password-implementation-on-facebook/"><u>Instructions: New Password Implementation on Facebook</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-final-cut-pro-essential-compression-techniques-troubleshooting-strategies-and-solutions/"><u>Mastering Final Cut Pro: Essential Compression Techniques, Troubleshooting Strategies & Solutions</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/solving-streaming-problems-9-effective-strategies-for-when-netflix-wont-play/"><u>Solving Streaming Problems: 9 Effective Strategies for When Netflix Won't Play</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-motorola-moto-g73-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Motorola Moto G73 5G without Them Knowing | Dr.fone</u></a></li>
+</ul></div>
 

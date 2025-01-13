@@ -1,7 +1,7 @@
 ---
 title: TikTok's Rapid Climb Cuts Into Facebook's Profits Deeply
-date: 2024-12-29T18:19:53.131Z
-updated: 2025-01-05T20:34:02.829Z
+date: 2025-01-09T21:52:12.927Z
+updated: 2025-01-12T16:10:26.370Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook’s Revenues Are Down and User Growth Has Stalled
@@ -34,12 +34,16 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 ![Facebook Q2 2022 User Statistics](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Facebook-Q2-2022-User-Statistics.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Meta](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Second-Quarter-2022-Results/default.aspx)
 
  While Apple's privacy changes (as reported by[Business Insider](https://www.businessinsider.com/how-apple-att-privacy-plan-derailed-facebook-2022-7) ) could have contributed to upsetting Facebook’s advertising business, it is unlikely to be the primary cause for the dent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TikTok Is the Major Cause of Facebook’s Decline
@@ -47,10 +51,6 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
  The picture is quite the opposite for TikTok in the quarters before Q2, 2022\. According to[Bloomberg](https://www.bloomberg.com/news/features/2022-06-23/tiktok-becomes-cash-machine-with-revenue-tripling-to-12-billion) , TikTok's annual revenues were $4.6 billion in 2021, and they're expected to reach $12 billion by the end of 2022\. The Chinese-owned social video app also has a rapidly growing user count, as noted by[Insider Intelligence](https://www.insiderintelligence.com/charts/global-tiktok-user-stats/) .
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  These statistics have led many to speculate that TikTok is the major reason for Facebook’s decline both in terms of revenue and user growth. And while correlation doesn't equal causation, the relative success and failure of both companies does appear to be connected.
 
@@ -67,13 +67,13 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 ![TikTok Videos of Khaby Lame](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/TikTok-Videos-of-Khaby-Lame.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [TikTok has been criticized for many reasons](https://www.makeuseof.com/is-tiktok-bad/) . However, there are[many positive aspects to TikTok](https://www.makeuseof.com/reasons-why-tiktok-is-actually-good/) , and all of these factors have played a significant part in its growth, leading users to switch from Facebook. While Facebook is trying to recover, at the moment, the stats are very much in TikTok’s favor.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can Facebook Fight Back Against TikTok?
@@ -97,17 +97,22 @@ thumbnail: https://thmb.techidaily.com/2abff2026ed0f77bee3d5444a73ceb2a838092ecb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-cost-effective-recording-devices-the-ultimate-list/"><u>[New] In 2024, Cost-Effective Recording Devices The Ultimate List</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/bypass-reset-nubia-red-magic-8s-pro-phone-screen-passcode-pattern-pin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Nubia Red Magic 8S Pro Phone Screen Passcode/Pattern/Pin</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/casual-conversations-made-easy-a-guide-to-slang-definitions/"><u>Casual Conversations Made Easy: A Guide to Slang Definitions</u></a></li>
-<li><a href="https://facebook.techidaily.com/emerging-trends-in-fb-safety-to-keep-abreast-of/"><u>Emerging Trends in FB Safety to Keep Abreast Of</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-ultimate-ai-experience-download-nvidia-geforce-rtx-3090-drivers-compatible-with-windows-1187/"><u>Get Your Ultimate AI Experience: Download NVIDIA GeForce RTX 3090 Drivers Compatible with Windows 11/8/7</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-does-photodna-detect-illegal-images/"><u>How Does PhotoDNA Detect Illegal Images?</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-methods-to-transfer-from-apple-iphone-14-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Methods to Transfer from Apple iPhone 14 Pro Max to Android | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-job-advertisements-in-social-networks/"><u>Navigating Job Advertisements in Social Networks</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-oppo-reno-11f-5g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Oppo Reno 11F 5G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-separation-ditching-digital-acquaintances/"><u>Social Separation: Ditching Digital Acquaintances</u></a></li>
-<li><a href="https://techtrends.techidaily.com/switch-your-videos-from-ogm-to-mp4-instantly-and-for-free-use-our-guide/"><u>Switch Your Videos From OGM to MP4 Instantly & For Free - Use Our Guide!</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-costs-and-benefits-of-meta-endorsement/"><u>The Hidden Costs and Benefits of Meta Endorsement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-uncovering-the-top-8-genuine-video-advancement-solutions/"><u>[New] Uncovering the Top 8 Genuine Video Advancement Solutions</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-efficient-video-downloading-vimeo-to-mp4-tutorial/"><u>[Updated] 2024 Approved Efficient Video Downloading Vimeo to MP4 Tutorial</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hniques-to-retrieve-and-save-youtubes-iconic-images-for-2024/"><u>3 Techniques to Retrieve & Save YouTube's Iconic Images for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-most-recent-videos-on-fb/"><u>Accessing Most Recent Videos on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-vision-for-technology-not-chasing-after-virtual-space/"><u>Apple's Vision for Technology: Not Chasing After Virtual Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/astonishing-ai-translates-single-word-to-varied-text-styles/"><u>Astonishing AI Translates Single Word to Varied Text Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/averting-misunderstandings-on-web-during-health-emergenenas/"><u>Averting Misunderstandings on Web During Health Emergenenas</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150513382-awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-robust-online-defense-for-teens-on-fb/"><u>Building a Robust Online Defense for Teens on FB</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/covid-deception-whos-behind-the-misinfo/"><u>Covid Deception: Who's Behind the Misinfo?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-impactful-and-memorable-fb-image/"><u>Crafting an Impactful and Memorable FB Image</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/essential-igtv-feeds-for-modern-viewers-for-2024/"><u>Essential IGTV Feeds for Modern Viewers for 2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/fix-a-spinning-but-unseen-hard-disk-in-just-10-fast-steps/"><u>Fix a Spinning but Unseen Hard Disk in Just 10 Fast Steps!</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/mastering-file-zipping-and-compression-with-windows-insights-from-yl-software-experts/"><u>Mastering File Zipping & Compression with Windows: Insights From YL Software Experts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-samsung-galaxy-a25-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Samsung Galaxy A25 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-how-to-remove-background-noise-in-final-cut-pro-x-in-2024/"><u>Updated How to Remove Background Noise in Final Cut Pro X, In 2024</u></a></li>
 </ul></div>
 

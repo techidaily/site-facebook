@@ -1,7 +1,7 @@
 ---
 title: In the Digital Realm, Some Secrets Are Better Left Offline
-date: 2024-08-08T11:23:52.391Z
-updated: 2024-08-09T11:23:52.391Z
+date: 2025-01-10T16:04:40.281Z
+updated: 2025-01-12T21:32:23.165Z
 tags:
   - facebook
 categories:
@@ -41,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -51,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -62,9 +63,6 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -75,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -83,15 +85,13 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. Personal Advice
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -100,15 +100,16 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Scammy Giveaways and Contests
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -116,9 +117,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
@@ -139,14 +137,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Sharing information online voluntarily lessens your privacy and can open you up to attacks on your security, too. It's wise to be intentional about what you share.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +150,20 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-speedy-windowed-image-viewer/"><u>[New] 2024 Approved Speedy Windowed Image Viewer</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-dividing-top-4k-captures-best-gimbal-pairings/"><u>[New] Dividing Top 4K Captures Best Gimbal Pairings</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-oversight-judicial-panel/"><u>Demystifying Facebook's Oversight Judicial Panel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/essential-tips-for-using-instagrams-sound-emojis/"><u>Essential Tips for Using Instagram's Sound Emojis</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-realme-11x-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Realme 11X 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-vivo-v27-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Vivo V27 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-with-content-translated-into-multiple-languages/"><u>Maximizing Engagement with Content Translated Into Multiple Languages</u></a></li>
+<li><a href="https://facebook.techidaily.com/paving-your-path-as-an-influential-voice/"><u>Paving Your Path as an Influential Voice</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-sunset-why-facebook-stays-in-the-game/"><u>Say No to Sunset: Why Facebook Stays in the Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-encourage-thoughtful-content-dissemination/"><u>Social Platforms Encourage Thoughtful Content Dissemination</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-nokia-c300-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Nokia C300 Phones</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-huawei-nova-y71-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Huawei Nova Y71 Bricked Devices | Dr.fone</u></a></li>
+</ul></div>
 

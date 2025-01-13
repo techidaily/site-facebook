@@ -1,7 +1,7 @@
 ---
 title: Deciphering the List of Those You've Muted on Facebook
-date: 2024-07-29T07:40:50.041Z
-updated: 2024-07-30T07:40:50.041Z
+date: 2025-01-06T20:25:09.453Z
+updated: 2025-01-12T21:34:06.443Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,20 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  That's where this guide comes in. In this article, we will show you how to view the list of people you have blocked on Facebook.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
 Close
@@ -55,11 +48,16 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -71,8 +69,9 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -81,21 +80,15 @@ Close
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Checking Your Facebook Blocked List
 
  It's fairly easy to view your blocked list on both the mobile app and web browser. It's important to periodically check this list to make sure you're not blocking people accidentally or by mistake. If you do find someone who shouldn't be there, simply unblock them with a click of a button. And if you want to re-establish a connection, go ahead and send them a friend request.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +97,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-through-youtubes-minis/"><u>2024 Approved Navigating Through YouTube's Minis</u></a></li>
+<li><a href="https://facebook.techidaily.com/44-us-attorneys-general-petition-exclude-children-from-instagram/"><u>44 US Attorneys General Petition: Exclude Children From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-overuse-set-limits-using-facebooks-daily-timer/"><u>Avoid Overuse: Set Limits Using Facebook’s Daily Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-rise-and-reality-of-facebooks-metaverse/"><u>Beyond Social Media: The Rise and Reality of Facebook’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-realities-why-meta-is-engineering-a-global-ai-revolution/"><u>Bridging Realities: Why Meta Is Engineering a Global AI Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-and-convey-who-you-are-an-in-depth-look-at-creating-a-profile-photo-with-an-avatar/"><u>Capture and Convey Who You Are: An In-Depth Look at Creating a Profile Photo with an Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-announces-her-stepping-down-from-fb/"><u>Carolyn Everson Announces Her Stepping Down From FB</u></a></li>
+<li><a href="https://some-tips.techidaily.com/choosing-the-right-smart-thermostat-our-top-picks-and-analysis/"><u>Choosing the Right Smart Thermostat : Our Top Picks and Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprerancial-online-presence-facebook-profiles-vs-usernames/"><u>Comprerancial Online Presence: Facebook Profiles Vs Usernames</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dvd-shrink-pro-per-macos-facilita-la-copia-e-compressione-dei-film-sul-tuo-computer-apple/"><u>DVD Shrink Pro per macOS: Facilita La Copia E Compressione Dei Film Sul Tuo Computer Apple</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-multitasking-organizing-your-workspace-with-cascaded-windows-on-windows-10/"><u>Effortless Multitasking: Organizing Your Workspace with Cascaded Windows on Windows 10</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-huawei-nova-y71-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Huawei Nova Y71 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-passfab-iphone-15-pro-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>In 2024, PassFab iPhone 15 Pro Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/next-level-vr-tools-top-8-selection/"><u>Next-Level VR Tools Top 8 Selection</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/reviewing-multiple-cameras-are-there-upgrades-in-2024/"><u>Reviewing Multiple Cameras Are There Upgrades, In 2024</u></a></li>
+</ul></div>
 

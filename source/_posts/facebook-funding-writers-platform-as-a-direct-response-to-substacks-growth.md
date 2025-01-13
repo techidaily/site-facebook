@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2025-01-03T05:48:29.917Z
-updated: 2025-01-05T17:13:06.359Z
+date: 2025-01-05T19:50:08.718Z
+updated: 2025-01-12T18:08:53.125Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Growing the Independent Creator Space
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -67,21 +67,20 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-step-by-step-instructions-for-extracting-mp3-from-video-for-2024/"><u>[Updated] Step-By-Step Instructions for Extracting MP3 From Video for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-excellence-in-mac-video-capturing-top-5-alternatives-to-bandicam/"><u>2024 Approved Excellence in Mac Video Capturing Top 5 Alternatives to Bandicam</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/can-adobe-premiere-pro-be-used-with-av1-video-compression/"><u>Can Adobe Premiere Pro Be Used with AV1 Video Compression?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1722974964324-get-your-gigabyte-audio-software-for-free-today/"><u>Get Your Gigabyte Audio Software for Free Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/global-digital-disconnect-fb-whatsapp-and-instagram-downed/"><u>Global Digital Disconnect: FB, WhatsApp, & Instagram Downed</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exploration-of-distinct-video-camera-kinds/"><u>In 2024, Exploration of Distinct Video Camera Kinds</u></a></li>
-<li><a href="https://facebook.techidaily.com/losing-the-social-media-connection/"><u>Losing the Social Media Connection</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavimp43gp/"><u>Movaviのような無償で使えるオンラインMP4と3GPファイル変換ツール</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/prevent-ai-data-collection-onsite/"><u>Prevent AI Data Collection Onsite</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-privacy-on-social-networks/"><u>Protecting Privacy on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/renewable-rush-at-fb-complete-energy-overhaul-for-the-future/"><u>Renewable Rush at FB: Complete Energy Overhaul for the Future</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/small-scale-screenplay-idea-for-2024/"><u>Small-Scale Screenplay Idea for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-alert-5-cunning-commerce-cons-in-the-world-of-social-swapping/"><u>Stay Alert: 5 Cunning Commerce Cons in the World of Social Swapping</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-inescapable-social-hub-6-continuous-reasons-to-use-facebook/"><u>The Inescapable Social Hub: 6 Continuous Reasons to Use Facebook</u></a></li>
-<li><a href="https://win-great.techidaily.com/transfert-de-clonage-dun-pc-a-un-autre-sous-windows-tutoriel-complet-pour-windows-11-10-8-et-om/"><u>Transfert De Clonage D'un PC À Un Autre Sous Windows - Tutoriel Complet Pour Windows 11, 10, 8 Et ^Om</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-and-executing-group-dissolution/"><u>Understanding and Executing Group Dissolution</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-pushing-boundaries-in-visual-storytelling-with-hdr/"><u>[New] 2024 Approved Pushing Boundaries in Visual Storytelling with HDR</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mobile-studio-kits-convenient-for-filmmakers-for-2024/"><u>[Updated] Mobile Studio Kits Convenient for Filmmakers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/10000-fb-groups-face-potential-amazon-litigation/"><u>10,000 FB Groups Face Potential Amazon Litigation</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-journey-into-the-world-of-facebooks-emoji-communication/"><u>A Compreenasional Journey Into the World of Facebook's Emoji Communication</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722968343770-approach-assess-how-ssi-affects-structural-response-to-earthquakes/"><u>Approach: Assess How SSI Affects Structural Response to Earthquakes</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-current-platforms-exploring-the-impact-and-meaning-of-facebooks-metaverse/"><u>Beyond Current Platforms: Exploring the Impact and Meaning of Facebook’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/clandestine-companions-on-facebook/"><u>Clandestine Companions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-conversation-clutter-in-facebook/"><u>Clearing Up Conversation Clutter in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-covid-through-snapchat-tweet-and-facebook-campaigns/"><u>Curbing COVID Through Snapchat, Tweet, and Facebook Campaigns</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-apple-id-from-apple-iphone-13-pro-max-by-drfone-ios/"><u>How To Unlink Apple ID From Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-enhancing-mobile-imaging-with-android-insights/"><u>In 2024, Enhancing Mobile Imaging with Android Insights</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-mastering-home-video-production-top-dvd-creation-tools-for-2024/"><u>New Mastering Home Video Production Top DVD Creation Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocket-view-counts-with-youtube-short-creation-techniques-for-2024/"><u>Skyrocket View Counts with YouTube Short Creation Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-storyline-secret-to-youtube-triumph-for-2024/"><u>The Storyline Secret to YouTube Triumph for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-tutorial-embedding-text-within-your-gif-images-on-various-platforms-including-windows-and-macos-systems/"><u>Ultimate Tutorial: Embedding Text Within Your GIF Images on Various Platforms Including Windows and MacOS Systems</u></a></li>
 </ul></div>
 

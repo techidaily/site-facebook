@@ -1,7 +1,7 @@
 ---
 title: Tapping Into Personal Memories on Facebook Today
-date: 2024-08-08T11:23:24.803Z
-updated: 2024-08-09T11:23:24.803Z
+date: 2025-01-05T18:37:36.977Z
+updated: 2025-01-12T21:57:19.181Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use the On This Day Feature
 
  Users can access the On This Day feature on Facebook by the following method.
@@ -37,9 +41,6 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Share Memories
 
  The first thing that most users discover is the option to share their memories with others. You can post it on your timeline, send them in messages, and even tag specific people.
@@ -50,23 +51,18 @@ To share a memory from the On This Day feature:
 2. Select the memory you wish to share.
 3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Save and Delete Memories
 
  Another great thing about the On This Day feature is the ability to save memories. This takes the memories to a separate**Save** section, intended for content you wish to view later.
@@ -77,14 +73,8 @@ You can save your On This Day posts with the following steps:
 2. Tap the**three dots** to open a new menu.
 3. Select**Save Post** , and it will be stored in the**Saved items** section on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 Close
@@ -95,10 +85,11 @@ To access your saved memories:
 2. Tap**Saved** .
 3. Scroll down until you see the saved memory. Tap to access it.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
@@ -107,6 +98,10 @@ Close
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
 
@@ -124,10 +119,6 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
@@ -142,11 +133,19 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
@@ -154,14 +153,11 @@ Close
 
  Users can effectively use the feature to share and save media. You can customize Facebook’s On This Day feature and only access memories of choice. We hope you will be able to manage your On This Day memories in a much better and more convenient way.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +166,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-decoding-the-mystery-of-youtube-shorts/"><u>[Updated] In 2024, Decoding the Mystery of YouTube Shorts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-download-all-in-one-driver-pack-for-samsung-m2020/"><u>Effortless Download: All-in-One Driver Pack for Samsung M2020</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/expressive-exchanges-textual-embellishments-in-messages/"><u>Expressive Exchanges: Textual Embellishments in Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/giphy-at-a-crossroads-as-fb-sell-scenario-emerges/"><u>Giphy at a Crossroads as FB Sell Scenario Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-your-allotment-from-the-725-million-facebook-award/"><u>How to Access Your Allotment From the $725 Million Facebook Award</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-infinix-zero-5g-2023-turbo-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Infinix Zero 5G 2023 Turbo to Roku | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-samsung-galaxy-a15-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Samsung Galaxy A15 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interconnected-evolution-4-ways-platforms-altered-society/"><u>Interconnected Evolution: 4 Ways Platforms Altered Society</u></a></li>
+<li><a href="https://article-files.techidaily.com/lifetime-favorites-reddits-highly-endorsed-top-10-for-2024/"><u>Lifetime Favorites Reddit's Highly-Endorsed Top 10 for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-fcpx-captioning-101-how-to-add-subtitles-to-your-videos/"><u>New FCPX Captioning 101 How to Add Subtitles to Your Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/skillful-use-of-alternative-chat-platforms-not-fb/"><u>Skillful Use of Alternative Chat Platforms, Not FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-purity-drive-excluding-polityfaith-talk/"><u>Social Media Purity Drive: Excluding Polity/Faith Talk</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-building-your-perfect-youtube-playlist-for-2024/"><u>Step-by-Step Building Your Perfect YouTube Playlist for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/suspension-of-decision-facebooks-regulatory-board/"><u>Suspension of Decision: Facebook's Regulatory Board</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/thousands-benefit-as-apple-launches-complimentary-ai-courses-for-students-and-alumni-zdnet-news/"><u>Thousands Benefit as Apple Launches Complimentary AI Courses for Students and Alumni | ZDNet News</u></a></li>
+</ul></div>
 

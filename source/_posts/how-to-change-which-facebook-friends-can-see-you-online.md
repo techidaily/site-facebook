@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2025-01-01T02:30:29.172Z
-updated: 2025-01-06T05:38:43.831Z
+date: 2025-01-06T18:29:18.406Z
+updated: 2025-01-12T17:13:09.268Z
 tags:
   - facebook
 categories:
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do People See Who's Online on Facebook?
 
@@ -67,7 +71,11 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
@@ -83,14 +91,10 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -125,10 +129,6 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
@@ -136,7 +136,7 @@ This is different from a full Facebook block.
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
@@ -160,22 +160,21 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-audio-recording-made-easy-free-x-recorder-for-pc/"><u>[New] In 2024, Audio Recording Made Easy Free X-Recorder for PC</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-master-video-capture-using-adobe-presenter/"><u>[Updated] How to Master Video Capture Using Adobe Presenter</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-high-quality-fb-videos-for-ff-browser-users/"><u>[Updated] In 2024, High-Quality FB Videos for FF Browser Users</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-simplified-video-posts-on-twitter-and-tumblr/"><u>[Updated] Simplified Video Posts on Twitter and Tumblr</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-apples-reluctance-to-enter-metaverse-arena/"><u>Analyzing Apple's Reluctance to Enter Metaverse Arena</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-identity-theft-a-statistical-view/"><u>Digital Identity Theft: A Statistical View</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-faux-pas-navigating-identity-fraud/"><u>Facebook Faux Pas: Navigating Identity Fraud</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-xiaomi-redmi-12-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Xiaomi Redmi 12 5G Pattern Lock Screen</u></a></li>
-<li><a href="https://facebook.techidaily.com/illusion-of-empowerment-interfaces-and-your-choices/"><u>Illusion of Empowerment: Interfaces and Your Choices</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-google-pixel-8-pro-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Google Pixel 8 Pro Location by Number | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Magic Vs 2? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-secrets-of-zoom-success/"><u>In 2024, Unveiling the Secrets of Zoom Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-facebook-customizations-for-an-optimal-mobile-experience/"><u>Key Facebook Customizations for an Optimal Mobile Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-world-of-social-engagement-using-ripl/"><u>Navigating the World of Social Engagement Using Ripl</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-for-allowing-unnamed-comments-on-your-fb-group/"><u>Tips for Allowing Unnamed Comments on Your FB Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/triple-blackout-in-social-media-world/"><u>Triple Blackout in Social Media World</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/nary-voices-top-10-most-engaged-internet-creators-for-2024/"><u>Visionary Voices Top 10 Most Engaged Internet Creators for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-final-cut-pro-everything-you-need-to-know-for-2024/"><u>[New] Final Cut Pro – Everything You Need to Know for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-exploring-beyond-manycam-enhanced-alternatives/"><u>[New] In 2024, Exploring Beyond ManyCam Enhanced Alternatives?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-time-saving-routines-for-capturing-vimeo-media/"><u>[New] Time-Saving Routines for Capturing Vimeo Media</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-incorporating-secondary-footage-a-filmmakers-guide/"><u>[Updated] Incorporating Secondary Footage A Filmmaker's Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-redesigned-interface/"><u>Decoding Facebook's Redesigned Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-facebook-uptime-methods-and-timelines/"><u>Determining Facebook Uptime: Methods and Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-drought-six-hours-of-no-facebookwhatsappinstagram/"><u>Digital Drought: Six Hours of No Facebook/WhatsApp/Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/diversifying-digital-dialogue-not-just-messenger/"><u>Diversifying Digital Dialogue: Not Just Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-smartphones-unwittingly-broadcast-your-preferences/"><u>Do Smartphones Unwittingly Broadcast Your Preferences?</u></a></li>
+<li><a href="https://facebook.techidaily.com/echoes-of-friendship-retrospective-on-fb-connections/"><u>Echoes of Friendship: Retrospective on FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-tactics-removing-distasteful-pages-from-your-facebook-hub/"><u>Effective Tactics: Removing Distasteful Pages From Your Facebook Hub</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-mini-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 mini To Other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 to Android? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-viral-tiktok-sounds-into-personalized-calls/"><u>In 2024, Transforming Viral TikTok Sounds Into Personalized Calls</u></a></li>
 </ul></div>
 

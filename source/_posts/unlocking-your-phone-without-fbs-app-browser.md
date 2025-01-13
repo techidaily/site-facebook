@@ -1,7 +1,7 @@
 ---
 title: Unlocking Your Phone Without FB's App Browser
-date: 2024-08-08T11:23:36.427Z
-updated: 2024-08-09T11:23:36.427Z
+date: 2025-01-09T00:16:02.496Z
+updated: 2025-01-12T19:19:59.946Z
 tags:
   - facebook
 categories:
@@ -16,16 +16,18 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
 ## Unlocking Your Phone Without FB's App Browser
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Quick Links
 
 * [Can You Disable Facebook's In-App Browser?](#can-you-disable-facebook-39-s-in-app-browser)
 * [How to Turn Off Facebook's Mobile Browser](#how-to-turn-off-facebook-39-s-mobile-browser)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Only message links in Facebook can be opened in external browser by using privacy settings.
@@ -35,8 +37,9 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
  The Facebook app opens links in its built-in browser by default. But what if you want to use your own preferred browser app instead? Here's what you need to know about disabling Facebook's in-app browser.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Disable Facebook's In-App Browser?
 
  Facebook used to give app users more control over the links they opened, allowing you to open most links in an external browser. However, when we tested the feature in 2024, we saw that this is no longer the case on both the Android and iOS apps.
@@ -46,8 +49,9 @@ thumbnail: https://thmb.techidaily.com/91e1e91200cd3de99122d544eeafac52343ef1e6b
  So, while you can turn off Facebook's in-app browser for message links, other links will continue to open in the app's browser.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off Facebook's Mobile Browser
 
  Disabling Facebook's in-app browser is simple. However, the privacy setting to open up links externally only works for links sent in messages.
@@ -79,14 +83,11 @@ Close
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,4 +96,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-streaming-iphone-7-display-like-a-pro-for-2024/"><u>[New] Streaming iPhone 7 Display Like a Pro for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-vital-top-6-business-focused-social-networking-places/"><u>[Updated] In 2024, Vital Top 6 Business-Focused Social Networking Places</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-apple-iphone-xs-without-a-passcode-drfone-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your Apple iPhone XS Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/engaging-with-your-audience-through-twitter-promos-for-2024/"><u>Engaging With Your Audience Through Twitter Promos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-dark-side-of-online-swap-sites-and-how-to-shield-yourself/"><u>Exposing the Dark Side of Online Swap Sites and How to Shield Yourself</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-on-apple-iphone-8-plus-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock On Apple iPhone 8 Plus Online</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prime-cameras-for-extreme-pursuits/"><u>In 2024, Prime Cameras for Extreme Pursuits</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-data-retrieval-total-facebook-archive-acquisition/"><u>Maximizing Data Retrieval: Total Facebook Archive Acquisition</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ps5-faceoff-exploring-differences-between-slim-and-regular-versions/"><u>PS5 Faceoff: Exploring Differences Between Slim and Regular Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-trumps-virtual-social-hub/"><u>Reactivating Trump's Virtual Social Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-check-deletion-of-your-perennial-facebook-profile/"><u>Reality Check: Deletion of Your Perennial Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-your-news-feed-from-political-strife/"><u>Silent Your News Feed From Political Strife</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-sets-higher-barrier-against-fake-news-truths/"><u>Social Network Sets Higher Barrier Against Fake News Truths</u></a></li>
+<li><a href="https://win11.techidaily.com/steering-through-hidden-menu-in-windows-11/"><u>Steering Through Hidden Menu in Windows 11</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-clearer-picture-remove-borders-and-boost-recording-quality-for-2024/"><u>The Clearer Picture Remove Borders and Boost Recording Quality for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-web-in-preventing-viral-health-disinformation/"><u>The Role of Web in Preventing Viral Health Disinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-review-of-this-years-most-engaging-podcasts/"><u>The Ultimate Review of This Year's Most Engaging Podcasts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-steps-for-handling-missing-or-undetected-avcodecdll-errors/"><u>Troubleshooting Steps for Handling Missing or Undetected Avcodec.dll Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-invisible-social-network-transparency-on-facebook/"><u>Understanding the Invisible: Social Network Transparency on Facebook</u></a></li>
+</ul></div>
 

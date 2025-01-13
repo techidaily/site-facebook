@@ -1,7 +1,7 @@
 ---
 title: Easy Steps for Enabling and Using Sleep Mode on Messenger Kids
-date: 2024-07-29T07:42:31.301Z
-updated: 2024-07-30T07:42:31.301Z
+date: 2025-01-08T17:39:38.463Z
+updated: 2025-01-12T22:13:01.673Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
 
  For example, you can set the app's sleep time to start at 8pm on weekdays and 9pm on weekends.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Setting Up Sleep Mode on the Web App
 
  Follow these steps to enable Sleep Mode on using the browser version of the app:
@@ -43,20 +47,23 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
 2. On the left, there are different options offered by Facebook. If it’s not available upfront, scroll down until you see the**Messenger Kids** tab.
 3. ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)  
  Click Messenger Kids. It will navigate you to the child’s account connected with your Facebook.
-4. Tap on**Controls** to open a new menu with various settings.  
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+4. Tap on**Controls** to open a new menu with various settings.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 5. Click on**Sleep Mode** to open a customizable calendar. You have an option to alter the weekday and weekend use. For instance, most parents prefer handing out gadgets for screen time longer on weekends compared to weekdays.  
 ![Adjust the time on Sleep Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Adjust-the-time-of-Sleep-Mode.jpg)
 6. Adjust the time to your requirements and click**Save** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can follow the same process if you are logged in from a Chromebook. Similarly, it doesn't matter whether you're using a Linux, Windows, or Mac computer. The steps are similar once you are logged in to Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Setting Up Sleep Mode on Mobile
 
  Another way to set up Sleep Mode is using the Facebook App on your Android or iPhone. For the mobile browser version, follow the steps mentioned above.
@@ -65,19 +72,14 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
 
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Sleep Mode on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Sleep-Mode-on-Facebook.jpg)
 
 Close
@@ -98,25 +100,24 @@ Close
 
 There are several perks of using Messenger Kids Sleep Mode.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Better Focus on Other Activities
 
 ![Children performing various activities](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Children-performing-various-activities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Kids are energetic and should participate in physical activities and sports. With technology becoming common, it is hard to motivate them.
 
  When you enable Sleep Mode in Messenger Kids, the app automatically stops working, leaving your kid with no option but to put the device aside and think about other things. This increased focus allows kids to perform better at school and put their minds to other things.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Less Stress
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![Child-stressed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Child-stressed.jpg)
 
  Stress and anxiety are common problems among people with excessive screen time. It is evident that as you grow, modern requirements keep you glued in front of the screen.
@@ -127,27 +128,25 @@ There are several perks of using Messenger Kids Sleep Mode.
 
  Social media addiction is a continuing concern for parents. Messenger Kids Sleep Mode allows your children to discover other sources of entertainment until the app is available for use again.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Encourages a Schedule
 
  If your child has started to explore social media, it can be difficult to establish a balanced routine for them. With the Messenger Kids Sleep Mode, your kid will know when the app will turn off and hence, adhere to the schedule.
 
  A timetable focused on eating, sleeping, homework, school, and gadget-time can be a useful tool for kids who need more structure during their day. By enabling the Sleep Mode, you can make sure your children complete other tasks as well.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Create Healthy Limits With the Messenger Kids Sleep Mode
 
  Technology addiction and mental strain go hand in hand. This is why Messenger Kids allows parents to control the time their children spend using the app. Parents have complete authority to enable a schedule that matches their routine preferences.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,4 +155,24 @@ There are several perks of using Messenger Kids Sleep Mode.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-evaluating-the-superiority-of-splitcams-recording/"><u>[Updated] 2024 Approved Evaluating the Superiority of SplitCam's Recording</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-advanced-streaming-equipment-for-broadcasters-for-2024/"><u>[Updated] Advanced Streaming Equipment for Broadcasters for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-tips-enhancing-focus-in-your-youtube-video/"><u>[Updated] In 2024, Essential Tips Enhancing Focus in Your YouTube Video</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streamline-your-workflow-learn-to-record-macs-screen-with-shortcuts-for-2024/"><u>[Updated] Streamline Your Workflow Learn to Record Mac's Screen with Shortcuts for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-complete-guide-to-whatsapp-audio-communication/"><u>[Updated] The Complete Guide to WhatsApp Audio Communication</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mov-files-on-sony-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't play .mov files on Sony </u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-hidden-social-norms-for-online-networking/"><u>Decoding Hidden Social Norms for Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-vivo-s17-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Vivo S17 Pro to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-ancient-news-feed-content-on-fb/"><u>Revisiting Ancient News Feed Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-your-networking-to-net-income-uncover-5-money-makers-on-igfb/"><u>Turn Your Networking to Net Income: Uncover 5 Money Makers on IG/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-silent-social-network-with-troubleshooting-techniques/"><u>Unlock Your Silent Social Network with Troubleshooting Techniques</u></a></li>
+</ul></div>
 

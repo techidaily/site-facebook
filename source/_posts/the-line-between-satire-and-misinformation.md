@@ -1,7 +1,7 @@
 ---
 title: The Line Between Satire & Misinformation
-date: 2024-08-08T11:23:40.228Z
-updated: 2024-08-09T11:23:40.228Z
+date: 2025-01-09T20:32:41.882Z
+updated: 2025-01-12T16:13:52.569Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
  Satire is social commentary. It's the use of humor, ridicule, and wit to point out the vices, follies, and shortcomings of people and society. But how does Facebook define the genre, and does it have a place on the platform?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Will Soon Update Its Community Standards
 
  In response to a recommendation from its Oversight Board, Facebook is updating its Community Standards to better explain what the it considers to be satirical content in the first place.
@@ -30,11 +31,11 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
 > Given the context-specific nature of satire, we are not immediately able to scale this kind of assessment or additional consultation to our content moderators. We need time to assess the potential tradeoffs (...), and \[there will be\] potentially slower review times among our content moderators.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![off-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/09/off-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This update comes after the Oversight Board challenged Facebook's decision to remove a user comment that referred to the Turkish government with the["Daily Struggle" meme](https://knowyourmeme.com/memes/daily-struggle) . Here is the board's description of the comment in question:
 
@@ -45,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
  Related: [What Is Facebook's Oversight Board and What Does It Do?](https://www.makeuseof.com/what-is-facebook-oversight-board/)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Satire a Dying Art?
 
  As the current generation of young people works to become more inclusive of and privy to the many cultures of the world, there is much discussion of whether political correctness is "killing" satire, and even comedy in general.
@@ -57,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
 
  You can read Facebook's full post on the upcoming changes on the [Transparency Center](https://transparency.fb.com/oversight/oversight-board-cases/comment-related-to-armenian-people-and-the-armenian-genocide/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,4 +72,21 @@ thumbnail: https://thmb.techidaily.com/c35bb55569306b5428a10bd1ab44596d5c722993d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-insiders-handbook-to-windows-11-video-mastery/"><u>[New] 2024 Approved The Insider's Handbook to Windows 11 Video Mastery</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-navigating-instagrams-filter-features-for-high-quality-images/"><u>[New] In 2024, Navigating Instagram's Filter Features for High-Quality Images</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-snapchat-integration-for-the-tech-savvy-mac-user/"><u>[New] In 2024, Snapchat Integration for the Tech-Savvy Mac User</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-understanding-the-underrated-downsides-of-vr/"><u>[New] Understanding the Underrated Downsides of VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-social-network-snapshot-downloading-your-facebook-past/"><u>Complete Social Network Snapshot: Downloading Your Facebook Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-unwanted-page-following-from-facebook/"><u>Deleting Unwanted Page Following From Facebook</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-honor-magic-5-lite-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Honor Magic 5 Lite Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-samsung-galaxy-tab-s3-a-smart-buy-in-depth-analysis-and-recommendations/"><u>Is the Samsung Galaxy Tab S3 a Smart Buy? In-Depth Analysis and Recommendations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-compatibility-challenges-making-tozo-t6-work-seamlessly-with-windows-11/"><u>Overcoming Compatibility Challenges: Making Tozo T6 Work Seamlessly with Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-and-live-room-spotlight-on-facebooks-latest-hub/"><u>Podcast & Live Room Spotlight on Facebook's Latest Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-identity-authentication-by-meta/"><u>Social Identity Authentication by Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-completely-removing-fb-alerts/"><u>Tips for Completely Removing Fb Alerts</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-mastering-sound-essential-imovie-audio-enhancement-techniques/"><u>Updated In 2024, Mastering Sound Essential iMovie Audio Enhancement Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-help-center-and-what-can-you-use-it-for/"><u>What Is Facebook Help Center and What Can You Use It For?</u></a></li>
+</ul></div>
 

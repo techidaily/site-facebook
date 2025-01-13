@@ -1,7 +1,7 @@
 ---
 title: "Tackling Popular Facebook Hurdles: Strategies to Resolve Them"
-date: 2024-08-08T11:23:10.052Z
-updated: 2024-08-09T11:23:10.052Z
+date: 2025-01-06T17:23:49.987Z
+updated: 2025-01-12T20:42:27.365Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
  We'll help you put a stop to these Facebook annoyances. Let's look at solutions for some common Facebook problems and errors, so you don't have to put up with them anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Require Reviews for Tags
 
 [Facebook tagging is a fun feature](http://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) on the surface, but it's also a privacy risk. If someone takes an embarrassing picture of you and tags you in it, all your friends will be able to see that picture. There's also a risk that someone could use a tagged post to obtain too much personal information about you.
@@ -32,9 +33,6 @@ thumbnail: https://thmb.techidaily.com/0087bea05b577dbfb71c5ba8ff49de27f95d036e8
 
  Here, change the**Who can see posts you're tagged in on your profile?** to**Only me** , if you don't want tags to appear at all. You can also change the options under**Reviewing** to require your approval before tags appear to your friends.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![Facebook Profile and Tagging settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-profile-and-tagging-2023.jpg)
 
 ### If Facebook Tagging Isn't Working
@@ -56,6 +54,10 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
  For a short-term solution, you can also click the three-dot**Menu** button on any post, then choose**Snooze \[Name\] for 30 days** . This will hide their posts for a month, so you can take a break from that person.
@@ -64,9 +66,6 @@ We all know someone who posts all the time on Facebook:
 
  From the resulting menu, pick**Reconnect** and you'll see everyone you've unfollowed. Click the**Plus** button to follow any of them again.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Keep Important Friends First
 
  On the opposite end of the posting spectrum are friends whose posts you don't want to miss. Facebook's always-changing algorithms mean you might not ever see certain updates from friends. To combat this, you can mark your closest friends to see their updates at the top of your Facebook feed.
@@ -77,18 +76,12 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Manage Favorites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Manage-Favorites.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Opt Out of Targeted Ads on Facebook
 
  Facebook makes most of its money from advertising. Thus, the platform spends a lot of time trying to serve you the most relevant ads in the hopes you'll interact with them. By default,[Facebook tracks you everywhere you go](https://www.makeuseof.com/tag/facebook-tracking-stop/) and uses your browsing habits to influence what ads you see. You can opt out of these personalized ads and see more general ones based on your public characteristics.
 
  To do so, click your profile photo at the top-right of Facebook's interface and select**Settings & privacy > Settings** . On the left sidebar, click the**See more in Accounts Center** link, as this setting is now applied to all your Meta accounts. Once on this new page, click**Ad preferences > Ad settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Meta Account Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/meta-account-ad-settings.jpg)
 
  Here, you'll see a few categories. Choose**No** under**Activity information from ad partners** and Facebook won't use your activity on other sites to show ads on Facebook.
@@ -103,6 +96,10 @@ We all know someone who posts all the time on Facebook:
 
  Finally, if you disable the slider in**Ads shown off of Meta** , websites that use Meta's ad services can't use your profile to affect the ads you see outside of Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Stop Sharing Posts With Everyone
 
  Just like you get sick of seeing other people's posts on Facebook, sometimes you don't want to share your own updates with certain friends. Maybe you don't want your boss to see what you were up to on your day off, or don't care for another round of commentary on your life from your sister. Using a few methods, you can easily hide your posts from certain people.
@@ -115,13 +112,14 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Change Audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Change-Audience.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To keep someone from seeing your posts all the time, you can[add them to your**Restricted** list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) . People on this list won't see anything you post unless it's set to**Public** or you tag them in it. To add someone to this list, visit their page, select the**Friends** button, and then click**Edit Friend List** . Scroll down and click the**Restricted** list.
 
  In this panel, you can also add that person to the**Close Friends** group. This list also provides an easy way to share posts exclusively with your most trusted friends, and is an option in the audience selector.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![Facebook Restricted List Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Restricted-List-Friends.png)
 
 ## 6\. Block Annoying Auto-Playing Videos
@@ -130,14 +128,12 @@ We all know someone who posts all the time on Facebook:
 
  To turn off auto-play for videos on Facebook, click your profile picture again and choose**Settings & privacy > Settings** . Click the**Videos** tab on the left, then set the**Auto-Play Videos** option to**Off** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. Block Annoying App Invites
 
  Facebook features hundreds of games, nearly all of them designed to waste your time and//or take your money. If you're sick of friends pleading for extra lives in Facebook games, you can[block all Facebook invites and requests](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) by game or by person.
@@ -147,6 +143,10 @@ We all know someone who posts all the time on Facebook:
  If you'd like, you can also enter an app's name in the**Block apps** field. This will prevent it from contacting you and using your non-public Facebook information. If desired, use the other fields here to granularly[block people on Facebook](https://www.makeuseof.com/how-to-block-facebook/) through various channels.
 
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Change the Facebook Interface to Your Liking
 
@@ -169,20 +169,18 @@ We all know someone who posts all the time on Facebook:
 
  Dig into the Social Fixer options and you'll find many more ways to change the most annoying parts of Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Solutions for Common Facebook Errors
 
  To wrap up, let's go over some tips for common Facebook errors you might run into.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. You Forgot Your Facebook Password
 
  Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on[recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And[if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 10\. You Can't Connect to Facebook
 
  Since Facebook is one of the biggest sites on the web, it rarely experiences an outage. So the next time you can't get on Facebook, the problem likely lies on your end. You should follow a few[steps if you think Facebook is down](https://www.makeuseof.com/tag/6-things-facebook-goes/) :
@@ -195,6 +193,10 @@ We all know someone who posts all the time on Facebook:
 
  These tips also come in handy for loading errors, like when the "see more" button is not working on Facebook, or a search says "More results may be available; see more when you're back online". Chances are that you have a problem with your browser or internet connection. Try rebooting your PC and signing into Facebook with another browser when this happens.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 11\. Facebook Says "There Was a Problem..."
 
  A lot of Facebook's common errors start with "there was a problem," such as**There was a problem following this profile** or**Sorry, there was a problem tagging someone in this post** . Most of the time, these errors have to do with the privacy settings of the other account.
@@ -203,23 +205,17 @@ We all know someone who posts all the time on Facebook:
 
  When you get messages like this, make sure you've done basic Facebook troubleshooting too. Refresh the page, try logging out and back in, and make sure you don't have a network issue, as described above. If you're comfortable with it, try asking a mutual friend if they have the same problem. This can confirm your suspicions that you've been blocked or otherwise restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Fix Facebook Problems Easily
 
  We've shared fixes for some of the most common Facebook problems and errors. By flipping the right settings or using powerful extensions, you can make Facebook a more pleasant experience for yourself.
 
  There are lots of other aspects of Facebook to master, so make sure you know how to put its various elements to use.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -228,4 +224,21 @@ We all know someone who posts all the time on Facebook:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-cyberspace-companion-fb-stories-saver/"><u>[New] In 2024, Cyberspace Companion FB Stories Saver</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-premier-screening-gems-for-2024/"><u>[New] Premier Screening Gems for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-restore-noise-to-silent-twitter-video-posts-for-2024/"><u>[New] Restore Noise to Silent Twitter Video Posts for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-high-definition-showdown-projection-systems-versus-tv-in-4k-world/"><u>[Updated] In 2024, High-Definition Showdown Projection Systems versus TV in 4K World</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-moziscreen-plugins-for-firefox-for-2024/"><u>[Updated] MoziScreen Plugins for Firefox for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban.</u></a></li>
+<li><a href="https://win-able.techidaily.com/civilization-vi-troubleshooting-fixes-for-launch-issues-on-windows-11/"><u>Civilization VI Troubleshooting: Fixes for Launch Issues on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-social-media-identity-on-facebook/"><u>Customizing Social Media Identity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-digital-giant-understanding-vk-in-russia/"><u>Decoding the Digital Giant: Understanding VK in Russia</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-fb-expertise-guide-to-shooting-and-uploading-vr/"><u>In 2024, The FB Expertise Guide to Shooting & Uploading VR</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/instant-downloads-get-your-lexar-usb-driver-now/"><u>Instant Downloads: Get Your Lexar USB Driver Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-cyber-spaces-permit-negative-feedback/"><u>Should Cyber Spaces Permit Negative Feedback?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/voice-interpretation-without-a-price-tag/"><u>Voice Interpretation Without a Price Tag</u></a></li>
+</ul></div>
 

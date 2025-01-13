@@ -1,7 +1,7 @@
 ---
 title: "Discloser of Confidences: Unmasking FB’s Informant"
-date: 2024-07-29T07:42:13.827Z
-updated: 2024-07-30T07:42:13.827Z
+date: 2025-01-10T21:05:45.809Z
+updated: 2025-01-12T21:32:18.009Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Is the Facebook Whistleblower?
 
  The Facebook whistleblower is a woman called Frances Haugen, aged 37\. She is a former product manager on the Civic Integrity team at Facebook.
@@ -32,14 +33,8 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 
  Here are some of the biggest claims made by Haugen in her recent 60 Minutes interview:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 5 Claims Made by Frances Haugen on 60 Minutes
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
 
  Haugen claims that of all the content options Facebook can show you, the algorithm shows you content that is most likely to get a particular reaction from you—content that may incite violence or other extreme reactions or emotions.
@@ -49,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
 
  Haugen claims that the more you consume content that evokes anger or incites violence, the more profitable it is for Facebook.
@@ -64,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 > Facebook has demonstrated they cannot act independently, Facebook, over and over again, has shown it chooses profit over safety. It is subsidizing, it is paying for its profits with our safety.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Facebook Is Lying to You About Its Fight Against Hate, Violence, and Misinformation
 
  Haugen claims that Facebook turned on safety systems to reduce misinformation around the 2020 Election, but that many of those measures were temporary.
@@ -74,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 
  Related:[Study Suggests Facebook Handled Election Misinformation Poorly](https://www.makeuseof.com/study-facebook-election-misinformation/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Instagram Is Harming Teenage Girls
 
  As already widely reported, Haugen claims that Instagram is negatively impacting the teenagers using the social media app.
@@ -81,22 +82,20 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
 > Facebook's own research says, as these young women begin to consume this-- this eating disorder content, they get more and more depressed. And it actually makes them use the app more. And so, they end up in this feedback cycle where they hate their bodies more and more. Facebook's own research says it is not just the Instagram is dangerous for teenagers, that it harms teenagers, it's that it is distinctly worse than other forms of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Way Forward for Facebook?
 
  Haugen has made some bold claims about the way Facebook operates, and her lawyers have filed several complaints with the Securities and Exchange Commission, which enforces the law in financial markets.
 
  In the meantime, Facebook has, unsurprisingly, released a statement denying the claims made by Haugen, saying it has invested significantly in keeping its platform safe. But this could yet prove to be a watershed moment, with Facebook forced to hold itself more to account.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +104,20 @@ thumbnail: https://thmb.techidaily.com/c7c73b7c4a7efc6c835802b5aee6775aac1b5aafc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-guide-to-trusted-sites-for-youtube-tones/"><u>[New] Comprehensive Guide to Trusted Sites for Youtube Tones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-building-a-profitable-instagram-empire/"><u>[New] In 2024, Step-by-Step Building a Profitable Instagram Empire</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-harness-the-power-of-obs-on-android-gadgets/"><u>[Updated] How to Harness the Power of OBS on Android Gadgets</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-animation-solutions-with-advanced-3d-modellers/"><u>[Updated] Innovative Animation Solutions with Advanced 3D Modellers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-building-a-powerhouse-business-channel-in-under-5-minutes/"><u>2024 Approved Building a Powerhouse Business Channel in Under 5 Minutes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-motorola-moto-g34-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Motorola Moto G34 5G without App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaai-a-next-gen-chatbot-enhancer/"><u>Decoding MetaAI: A Next-Gen Chatbot Enhancer</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-path-of-internet-privacy-technologies/"><u>Evolutionary Path of Internet Privacy Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamped-social-messaging-discover-how-fb-upgrades-apps-like-messenger-and-instagram/"><u>Revamped Social Messaging: Discover How FB Upgrades Apps Like Messenger & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-facebook-networks-profiling-and-page-links/"><u>Unlocking Facebook Networks: Profiling and Page Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-worlds-transformed-discovering-4-social-media-metamorphoses/"><u>Virtual Worlds Transformed: Discovering 4 Social Media Metamorphoses</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/yl-software-tutorial-efficiently-harvesting-email-addresses-from-outlooks-folders-for-better-connectivity/"><u>YL Software Tutorial: Efficiently Harvesting Email Addresses From Outlook's Folders for Better Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2024-12-31T20:58:50.583Z
-updated: 2025-01-05T20:11:37.967Z
+date: 2025-01-07T21:19:40.872Z
+updated: 2025-01-12T23:13:49.305Z
 tags:
   - facebook
 categories:
@@ -53,17 +53,17 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
@@ -72,7 +72,7 @@ Close
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
@@ -86,19 +86,19 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -121,24 +121,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-hitting-the-high-scores-with-youtube-gaming-livestreams/"><u>[New] In 2024, Hitting the High Scores with YouTube Gaming Livestreams</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-unlocking-your-potential-with-these-top-10-affordable-web-conferencing-services/"><u>[New] In 2024, Unlocking Your Potential with These Top 10 Affordable Web Conferencing Services</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-easy-steps-for-win-11-users-to-reactivate-photo-viewing-software/"><u>[Updated] 2024 Approved Easy Steps for Win 11 Users to Reactivate Photo Viewing Software</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-secure-video-communication-made-simple-with-top-10-safe-apps-on-mobile-devices/"><u>[Updated] 2024 Approved Secure Video Communication Made Simple with Top 10 Safe Apps on Mobile Devices</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-nanorecording-app-critique-with-backup-choices-for-2024/"><u>[Updated] NanoRecording App Critique with Backup Choices for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-navigating-self-representation-on-facebook-live-calls/"><u>[Updated] Navigating Self-Representation on Facebook Live Calls</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-whats-fresh-with-facebook-latest-info-here-for-2024/"><u>[Updated] What’s Fresh with Facebook? Latest Info Here for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-your-personal-influence-story/"><u>Crafting Your Personal Influence Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-intruder-in-your-digital-life/"><u>Detecting Intruder in Your Digital Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-ways-to-detect-unauthorized-pc-access/"><u>Easy Ways to Detect Unauthorized PC Access</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixes-and-solutions-how-to-get-your-cortana-back-on-track/"><u>Fixes and Solutions: How to Get Your Cortana Back on Track</u></a></li>
-<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-meta-ai-a-step-forward-or-back-for-social-networks/"><u>Is Meta AI a Step Forward or Back for Social Networks?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ations-on-capturing-youtube-playbacks/"><u>Regulations on Capturing YouTube Playbacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-kids-digital-footprint-update-on-messenger-kids/"><u>Safeguarding Kids' Digital Footprint: Update on Messenger Kids</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/tech-tinged-tenderninas-ai-love-scams-exposed/"><u>Tech-Tinged Tenderninas: AI Love Scams Exposed</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-facebook-smart-hub-buying-guide/"><u>The Ultimate Facebook Smart Hub Buying Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/unshielded-from-sanctions-facebook-fosters-hate-campaigns/"><u>Unshielded From Sanctions, Facebook Fosters Hate Campaigns</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-amazon-takes-on-administrators-of-thousands-of-fb-groups/"><u>Why Amazon Takes on Administrators of Thousands of FB Groups</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xpert-insights-for-youtube-end-credits-top-makers-advice/"><u>[New] Expert Insights for YouTube End Credits - Top Makers' Advice</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-get-it-right-screencast-tips-from-ezvid-video-maker-pros-for-2024/"><u>[New] Get It Right Screencast Tips From EZvid Video Maker Pros for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-steps-for-seamless-youtube-video-loops/"><u>[Updated] 2024 Approved Essential Steps for Seamless YouTube Video Loops</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/conquer-update-failure-fixing-error-0x80242016/"><u>Conquer Update Failure: Fixing Error 0X80242016</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723202724713-dell-laptop-keyboard-issues-here-are-effective-fixes/"><u>Dell Laptop Keyboard Issues? Here Are Effective Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-facebooks-internal-layout-strategy/"><u>Delving Into Facebook's Internal Layout Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnection-directive-protocols-for-abandoning-fb-business-accounts/"><u>Disconnection Directive: Protocols for Abandoning FB Business Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-status-updates-have-a-shelf-life/"><u>Do Status Updates Have a Shelf Life?</u></a></li>
+<li><a href="https://facebook.techidaily.com/eco-system-new-era-of-renewable-power-at-fb/"><u>Eco-System: New Era of Renewable Power at FB</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-bare-bones-budget-friendly-best-5-windows-10-recording-apps/"><u>In 2024, Bare-Bones, Budget-Friendly Best 5 Windows 10 Recording Apps</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-the-future-the-3-must-watch-tech-trends-today/"><u>Navigating the Future: The 3 Must-Watch Tech Trends Today</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Determining if <security@fb.com> Is a Secure and Legitimate Mail Service From FB
-date: 2024-07-29T07:41:29.264Z
-updated: 2024-07-30T07:41:29.264Z
+date: 2025-01-09T22:09:05.365Z
+updated: 2025-01-13T00:13:07.776Z
 tags:
   - facebook
 categories:
@@ -19,19 +19,24 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 
  The email is legit, and Facebook's parent company, Meta, has been sending it to accounts with wider reach on the social network, but it might still seem like a scam to you. How else can you verify its legitimacy? And how should you respond if it turns out to be a scam after all?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Is "<Security@facebookmail.com>" a Safe Email Address?
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Notification That User's Account Has Been Temporarily Locked](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-notification-that-user-s-account-has-been-temporarily-locked.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  <Security@facebookmail.com> is the email address that Facebook uses to send security-related emails to its users. If you receive an email from the email address containing the same email domain (@facebookmail), it's legit and coming from Facebook. You should follow the directions in the email.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does the Email From "<Security@facebookmail.com>" Look Like?
 
  Facebook has been sending a special security email to accounts with large audiences, running essential pages, or which have great community significance, notably from an address that reads "<security@facebookmail.com>".
@@ -48,6 +53,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
@@ -59,21 +68,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * In the majority of cases, Facebook sends the email to enable Facebook Protect by the email address, "<security@facebookmail.com>". Is the email address from which you received the email different from this one? If so, you may be dealing with a scam.
 * Facebook doesn't include a link in the email to enable Facebook Protect, nor does it direct users to log in directly from the email. So if the email you received contains links and buttons, it's a scam.
 * Facebook also lets users view recent emails they received in their account security settings. That's another way of verifying the legitimacy of the email. For this, log into your account, click on the**profile icon** in the top-right corner, navigate to**Settings & privacy > Settings** , and then click**Security and login** in the left-sidebar.  
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Opening Facebook Settings on Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Opening-Facebook-Settings-on-Facebook-Web-Client.jpg)  
  Afterward, click the**View** button next to**See recent emails from Facebook** under**Advanced** .  
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Clicking on View to View Recent Emails From Facebook in Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Clicking-on-View-to-View-Recent-Emails-From-Facebook-in-Facebook-Web-Client.jpg)  
  If the same email you received appears here, it's official. Otherwise, it's a scam.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Respond to a Legit Facebook Protect Email
 
  If the email you received from Facebook requesting you to enable Facebook Protect meets all three conditions listed above, enable it for your own security. You can enable Facebook Protect by following these steps:
@@ -96,15 +99,8 @@ The ultimate burning program for all your needs!</a>
 
  In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## What to Do if You Fall for a Fake Facebook Protect Email Scam
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
  If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
@@ -119,14 +115,11 @@ The ultimate burning program for all your needs!</a>
 
  Fraudsters are very good at mimicking official emails and making them appear legit. Hopefully, knowing the context of Facebook Protect email will help you distinguish fake emails from real ones. Additionally, those tips will assist you in limiting the damage if you mistakenly fall victim to such phishing emails.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +128,17 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/elevate-discussion-volume-on-your-social-media-hub/"><u>Elevate Discussion Volume on Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/guardian-platforms-for-secure-sharing/"><u>Guardian Platforms for Secure Sharing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-recovering-from-a-youtube-penalty/"><u>In 2024, Recovering From a Youtube Penalty</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-voices-amplifying-covid-falsehoods/"><u>Influential Voices Amplifying Covid Falsehoods</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/masterclass-generating-professional-srt-documents-for-2024/"><u>Masterclass Generating Professional SRT Documents for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ousting-dissolving-a-facebook-relationship/"><u>Online Ousting: Dissolving a Facebook Relationship</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-realme-12plus-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Realme 12+ 5G Location | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-the-most-highly-rated-graphic-design-displays-of-2024-as-tested-by-professionals-zdnet/"><u>Ultimate Guide to the Most Highly Rated Graphic Design Displays of 2024, as Tested by Professionals | ZDNet</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-samsung-galaxy-note/"><u>Ultimate Samsung Galaxy Note</u></a></li>
+</ul></div>
 

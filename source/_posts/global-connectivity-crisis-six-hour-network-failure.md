@@ -1,7 +1,7 @@
 ---
 title: "Global Connectivity Crisis: Six-Hour Network Failure"
-date: 2024-08-08T11:24:29.839Z
-updated: 2024-08-09T11:24:29.839Z
+date: 2025-01-11T17:26:45.769Z
+updated: 2025-01-12T19:15:28.602Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/c465b3961d0e8ae791649e84e8128b1614e8e09e9
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/c465b3961d0e8ae791649e84e8128b1614e8e09e9
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -56,22 +58,20 @@ thumbnail: https://thmb.techidaily.com/c465b3961d0e8ae791649e84e8128b1614e8e09e9
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +80,18 @@ thumbnail: https://thmb.techidaily.com/c465b3961d0e8ae791649e84e8128b1614e8e09e9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-interactive-imaging-archive/"><u>[Updated] 2024 Approved Interactive Imaging Archive</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-filmoquery-your-guide-to-video-editing-insights/"><u>[Updated] FilmoQuery Your Guide to Video Editing Insights</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-the-content-free-movie-player-windowsmac/"><u>2024 Approved Unleash the Content FREE MOVIE PLAYER (Windows/Mac)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-zte-nubia-flip-5g-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your ZTE Nubia Flip 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-synergy-transforming-groups-on-the-platform/"><u>Channel Synergy: Transforming Groups on the Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/credibility-clash-who-wins-in-the-meta-blue-battle/"><u>Credibility Clash: Who Wins in the Meta-Blue Battle?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reputation-on-the-line-amid-tech-doubts/"><u>Facebook's Reputation on the Line Amid Tech Doubts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-spots-for-advertising-on-youtube-videos-for-2024/"><u>Leading Spots for Advertising on YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-era-for-social-listening-at-facebook/"><u>Unveiling a New Era for Social Listening at Facebook</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-best-of-the-best-4k-video-editing-software-for-professionals/"><u>Updated In 2024, The Best of the Best 4K Video Editing Software for Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-enters-metas-verification-era/"><u>US Enters Meta's Verification Era</u></a></li>
+</ul></div>
 

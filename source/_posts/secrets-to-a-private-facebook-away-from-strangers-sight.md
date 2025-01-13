@@ -1,7 +1,7 @@
 ---
 title: Secrets to a Private Facebook Away From Strangers' Sight
-date: 2024-08-08T11:24:43.803Z
-updated: 2024-08-09T11:24:43.803Z
+date: 2025-01-06T17:46:38.033Z
+updated: 2025-01-12T23:39:05.385Z
 tags:
   - facebook
 categories:
@@ -18,17 +18,9 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
  The internet brings people together, even when they'd rather it didn't. Maybe you don't want your colleagues to know what you get up to on the weekends, or perhaps you want to prevent your boyfriend's ex-girlfriend from stalking you. Whatever the reason, there ARE ways to stop strangers from seeing your Facebook profile.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Make Your Facebook Profile Private
 
  This is the most obvious way to keep prying eyes out of your Facebook account. You may not want to have anyone and everyone looking through your profile at any given time. You don't necessarily have to open up your profile to the public if you're not an influencer, content creator, celebrity, or public figure.
@@ -42,9 +34,6 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
@@ -73,8 +62,9 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Change Your Facebook Profile Discovery Settings
 
  Everyone gets the odd invite from random people, like people you went to high school with or mutual friends you don't really want to connect with. You've probably ignored a few invites for so long that you barely notice them on your Facebook account anymore. But it doesn't have to be that way.
@@ -87,10 +77,15 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
 4. Next, click the**drop-down menu** , select**Friends** , and click**Close** .
 5. Now, click**Edit** next to the **Who can look you up using the phone number you provided?** option and do the same thing.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Change Your Facebook Post Settings
 
@@ -103,29 +98,23 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
 3. Scroll down to the**Your activity** section and click**Edit** next to**Who can see your future posts?**
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Keep a Low Profile on Facebook
 
  In the age of influencers and growing your social media accounts is a thing, there exists a group of Facebook users who want to keep a low profile. The benefits being that it comes with less bullying and harassment and makes for an overall pleasant experience.
 
  Connecting with people you know and limiting who can find and view your profile also reduces the chances that someone will steal your photos to impersonate you online. So, for absolute peace of mind, you can stop strangers from seeing your Facebook profile.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +123,23 @@ thumbnail: https://thmb.techidaily.com/496184fd4152c46b6485f793c6a0f28b5d68db1c2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-experts-pathway-navigating-fullscreen-realms-in-premiere-pro/"><u>[New] Expert's Pathway Navigating Fullscreen Realms in Premiere Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-free-youtube-intros-and-templates-for-2024/"><u>[New] The Ultimate Guide to Free YouTube Intros & Templates for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-understanding-and-controlling-safaris-pip-feature/"><u>[Updated] 2024 Approved Understanding and Controlling Safari's PIP Feature</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bridging-ios-and-windows-utilizing-apple-maps/"><u>Bridging iOS and Windows: Utilizing Apple Maps</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-cyber-intrusions-9-social-network-vigilance-tips/"><u>Detecting Cyber Intrusions - 9 Social Network Vigilance Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-plans-trump-ban-review-for-jan-23/"><u>Facebook Plans Trump Ban Review for Jan '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-marketplace-protection-key-tips-to-ensure-your-security/"><u>FB Marketplace Protection: Key Tips to Ensure Your Security</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-engagement-make-your-fb-circle-the-talk-of-town/"><u>Ignite Engagement: Make Your FB Circle the Talk of Town</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-mobile-code-generators-in-fb-for-enhanced-safety/"><u>Integrating Mobile Code Generators in FB for Enhanced Safety</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723862840423-limited-time-offer-high-performance-dell-gaming-monitor-with-quad-hd-ips-display-now-just-199/"><u>Limited-Time Offer: High-Performance Dell Gaming Monitor with Quad HD IPS Display, Now Just $199</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/official-nvidia-quadro-rtx-8000-driver-update-free-download-for-windows-7810-machines/"><u>Official NVIDIA Quadro RTX #8000 Driver Update: Free Download for Windows 7/8/10 Machines</u></a></li>
+<li><a href="https://facebook.techidaily.com/schedule-resilience-with-helpful-facebook-reminder-features/"><u>Schedule Resilience with Helpful Facebook Reminder Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-dawn-of-voice-activated-chatgpt-in-cars/"><u>The Dawn of Voice-Activated ChatGPT in Cars</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-hp-zbook-firefly-15-g8-unveiled-a-top-contender-in-mobile-performance/"><u>The HP ZBook Firefly 15 G8 Unveiled: A Top Contender in Mobile Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/upholdining-brand-integrity-unfollowing-non-aligned-accounts/"><u>Upholdining Brand Integrity: Unfollowing Non-Aligned Accounts</u></a></li>
+</ul></div>
 

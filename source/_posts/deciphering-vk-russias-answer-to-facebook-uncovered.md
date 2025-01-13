@@ -1,7 +1,7 @@
 ---
 title: "Deciphering VK: Russia's Answer to Facebook Uncovered"
-date: 2024-07-29T07:42:59.223Z
-updated: 2024-07-30T07:42:59.223Z
+date: 2025-01-10T19:11:02.058Z
+updated: 2025-01-12T19:25:56.309Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,13 @@ thumbnail: https://thmb.techidaily.com/5397c89a05d7c549e3c941ac0bcf9ef244a3e9feb
 
  There is very little to read about VK in the western world, making the site something of a mystery to those outside of the loop. If you've never heard of VK before, you're about to get an earful.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## 1\. VK Is the Most Popular Social Media Website in Russia
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
@@ -48,8 +48,9 @@ Some potential explanations for this difference include:
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -58,15 +59,16 @@ Some potential explanations for this difference include:
 
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
  This website actually continued to show me a list of the individual schools and colleges within my university; some of these were departments that even I had never heard of. After that, it asked me my major and even went on to specify which emphasis I chose for my degree.
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -75,9 +77,6 @@ Some potential explanations for this difference include:
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -92,9 +91,6 @@ Some potential explanations for this difference include:
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. The Most Common Password on VK is "123456"
 
  One insight gleaned from the breach described above is that[the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
@@ -102,6 +98,10 @@ Some potential explanations for this difference include:
  Many of these stolen passwords were stored in plaintext by VK, allowing some pioneering academics to crunch the numbers after the big spill. They found that over 700,000 people used the password "123456" and another 400,000 used "123456789".
 
  Other popular passwords included "qwerty," "1111111," and "123321".
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. VK's Website Design Rarely Changes
 
@@ -118,22 +118,20 @@ Some potential explanations for this difference include:
  It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## There's a World Outside of Facebook
 
  VK is a streamlined and serene experience, far from the ones that we're familiar with, all punctuated by the out-loud-and-proud stylings of TikTokers and Instagram influencers dying to make a name for themselves.
 
  If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +140,18 @@ Some potential explanations for this difference include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-the-secrets-buying-a-high-quality-360-camera-today/"><u>[Updated] Unveiling the Secrets Buying a High-Quality 360 Camera Today</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-filmoras-easy-steps-to-convert-avi-files-into-vibrant-gifs-on-all-platforms/"><u>2024 Approved Filmora’s Easy Steps to Convert AVI Files Into Vibrant GIFs on All Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/attain-elite-status-metas-pay-to-verify-advantage/"><u>Attain Elite Status: Meta's Pay-to-Verify Advantage</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-your-logitech-m525-mouse-driver-and-compatible-programs/"><u>Download Your Logitech M525 Mouse Driver and Compatible Programs</u></a></li>
+<li><a href="https://facebook.techidaily.com/lifelog-legends-who-holds-the-crown-the-gilded-meta-or-silver-ticked-twitters/"><u>Lifelog Legends: Who Holds the Crown, The Gilded Meta or Silver-Ticked Twitters?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-walkthrough-to-implementing-copilot-into-microsoft-teams-operations/"><u>Step-by-Step Walkthrough to Implementing Copilot Into Microsoft Teams Operations</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154626988-strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-stronger-protection-with-2fa-on-gmail-outlook-and-more-services/"><u>Unlock Stronger Protection with 2FA on Gmail, Outlook & More Services</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-from-basic-to-brilliant-adding-fcp-x-effects-in-3-easy-steps/"><u>Updated 2024 Approved From Basic to Brilliant Adding FCP X Effects in 3 Easy Steps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-to-unveil-multi-device-support-for-whatsapp/"><u>Zuckerberg to Unveil Multi-Device Support for WhatsApp</u></a></li>
+</ul></div>
 

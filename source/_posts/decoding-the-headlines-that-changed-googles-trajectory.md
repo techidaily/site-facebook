@@ -1,7 +1,7 @@
 ---
 title: Decoding the Headlines that Changed Google's Trajectory
-date: 2024-07-29T07:41:06.721Z
-updated: 2024-07-30T07:41:06.721Z
+date: 2025-01-07T21:47:39.918Z
+updated: 2025-01-12T19:49:43.621Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
  But which stories took the cake in 2022? What were Google's top news moments this year? Let's take a look.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. The $400 Million Location Tracking Settlement
 
 ![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
@@ -34,12 +35,11 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
 ## 2\. The UK Ads Revenue Lawsuit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
 
@@ -49,9 +49,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ## 3\. The End of YouTube Originals
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
 
  In October 2006, when social media was still in its early days, Google announced that it had acquired YouTube for $1.65 billion. Sixteen years later, in January 2022,[Google decided to shut down YouTube Originals](https://www.makeuseof.com/why-google-killed-youtube-originals/) .
@@ -72,11 +69,11 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ## 5\. A "Secret" Facebook Deal
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Google and[Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
@@ -85,25 +82,24 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. The FTC Pixel Lawsuit
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 7\. The $25B UK and Netherlands Lawsuits
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
@@ -113,14 +109,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  There's no doubt that Google has seen its fair share of trials and tribulations throughout 2022, with various lawsuits, rumors, and changes to services giving it plenty of reasons to be featured in the news. But Google is no stranger to legal disputes and criticism, so we may see more similar headlines in 2023.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +122,17 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-capturing-the-immersive-world-tips-for-recording-vr-games/"><u>[New] 2024 Approved Capturing the Immersive World Tips for Recording VR Games</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-20-must-have-video-tools-for-new-creators/"><u>[Updated] 2024 Approved 20 Must-Have Video Tools For New Creators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unlocking-potential-advanced-techniques-for-slug-line-creation/"><u>[Updated] 2024 Approved Unlocking Potential Advanced Techniques for Slug Line Creation</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-legally-convert-youtube-videos-to-mp4-format/"><u>[Updated] How to Legally Convert YouTube Videos to MP4 Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-and-why-telegram-flourished-during-fb-offline-hours/"><u>Dissecting How and Why Telegram Flourished During FB Offline Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clarify-your-fb-images-a-step-by-step-approach/"><u>How to Clarify Your Fb Images: A Step-by-Step Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-fb-push-notifications-and-messages/"><u>How to Stop FB Push Notifications and Messages</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Lava Blaze Pro 5G?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-xiaomi-redmi-k70-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Xiaomi Redmi K70 Pro Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-building-a-significant-profile/"><u>The Art of Building a Significant Profile</u></a></li>
+</ul></div>
 

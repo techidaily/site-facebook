@@ -1,7 +1,7 @@
 ---
 title: Discover if Facebook’s Reels Can Rival TikTok’ Writes
-date: 2024-07-29T07:42:04.092Z
-updated: 2024-07-30T07:42:04.092Z
+date: 2025-01-07T23:03:33.507Z
+updated: 2025-01-12T17:09:46.552Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  As part of the TikTok defense strategy, Facebook introduced its short video feature called Reels in 2021 to a limited audience. The feature first started on Instagram and soon became the fastest-growing content format on the platform. Last month, it was made available to everyone on Facebook globally.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How TikTok Is Hurting Facebook
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
@@ -28,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
  In less than five years, TikTok has achieved over three million downloads and more than a billion monthly active users. Here is how the platform is causing problems for Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. A Drop in Daily and Monthly Active Users
 
@@ -41,9 +49,6 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  The average session length on the video-sharing app is 10.85 minutes, according to[Statista](https://www.statista.com/statistics/579411/top-us-social-networking-apps-ranked-by-session-length/) . Meanwhile, other social media apps lag far behind in terms of engagement. This is a key metric for a platform like Facebook because the longer users stay on a platform, the more appealing it appears to advertisers.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Stagnating Ad Revenues
 
  Advertisers account for more than 97% of Facebook’s annual revenue. According to[Statista](https://www.statista.com/statistics/267031/facebooks-annual-revenue-by-segment/) , the company generated $86 billion in global revenue in 2020—and a whopping $84 billion of it comes from advertising.
@@ -52,11 +57,12 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Facebook Plans to Regain Momentum
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
@@ -65,18 +71,20 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Can Reels Save Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Facebook Is Seen as a Mixed Media Platform
 
  Facebook is a mixed media platform that can accommodate photos, videos, text, link previews, and a mix of other types of content. Many younger audiences don’t consider it cool anymore, which is reflected in teens’ engagement on the platform.
@@ -85,9 +93,6 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  For Facebook to rival TikTok, it has to reinvent itself as a brand new, highly sticky, and innovative app, far different from what it is today.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Facebook Is Late to the Game
 
 [Facebook has been losing popularity](https://www.makeuseof.com/facebook-popularity-peak/) , especially among the younger generation, for a few years now. However, it was still attracting more users overall and earning tons of money—which is perhaps why the company hasn't reacted as quickly.
@@ -98,9 +103,6 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Monetization Issues
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
@@ -109,23 +111,17 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Reels vs. TikTok: The Final Verdict
 
  The rise of TikTok and YouTube Shorts indicate that video is the future of social media, and Facebook has taken note. This may not make it seem inventive—but at this point, it doesn’t really matter. Facebook sees Reels as an integral part of its future, and it'll need to do so if it wants to compete with the likes of TikTok.
 
  Reels might be late to the short-form video scene, but with the powerful Meta brand behind it, it's got every chance of succeeding.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +130,17 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-discover-the-top-free-platforms-for-youtube-ops/"><u>[New] Discover the Top Free Platforms for YouTube Ops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tasteful-tactics-elevating-culinary-channel-monikers/"><u>[Updated] Tasteful Tactics Elevating Culinary Channel Monikers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/apex-smartphone-triad-for-ultimate-video-quality/"><u>Apex Smartphone Triad for Ultimate Video Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-hide-likes-on-your-facebook-posts/"><u>How to Hide Likes on Your Facebook Posts</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-100-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 100 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/motorsport-unions-cut-internet-cord/"><u>Motorsport Unions Cut Internet Cord</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-space-controls-block-stranger-viewers-on-facebook/"><u>Personal Space Controls: Block Stranger Viewers on Facebook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/premium-hardware-choices-for-uhd-editors/"><u>Premium Hardware Choices for UHD Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-sharing-content-across-numerous-fb-groups/"><u>Simplifying Sharing Content Across Numerous FB Groups</u></a></li>
+</ul></div>
 

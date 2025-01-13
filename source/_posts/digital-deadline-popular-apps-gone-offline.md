@@ -1,7 +1,7 @@
 ---
 title: "Digital Deadline: Popular Apps Gone Offline"
-date: 2024-07-29T07:40:25.557Z
-updated: 2024-07-30T07:40:25.557Z
+date: 2025-01-11T23:09:48.784Z
+updated: 2025-01-12T18:36:28.441Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,6 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
  As usual, Facebook remains silent regarding the outage. Although Facebook blackouts take place periodically, the company never reveals much about why the network goes down, preferring to fix the issue and move on without explaining the technical details to its users.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
@@ -34,12 +31,16 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Down? Is Facebook Up Yet?
 
  A DNS (Domain Name System) issue appears to be the culprit behind Facebook's massive outage.
@@ -51,8 +52,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What Are BGP Routes?
 
  Facebook is down because it has withdrawn its BGP routes from the internet. But, what is a BGP route, anyway?
@@ -64,39 +66,34 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## When Will Facebook Come Back Online?
 
  Right now, there is no specific timeframe available for Facebook coming back online, nor WhatsApp, Instagram, or any other affected service. The Facebook outage is affecting the company in more ways than one. For example, Facebook staffers couldn't access buildings at Facebook HQ to begin assessing the damage because of internal networking issues brought about by the outage.
 
  Furthermore, other experts believe that it will take some time for Facebook and its associated services to return to full capacity. It isn't just a case of flicking a switch and restarting the system. Restoring a distributed network of Facebook's size will require patience from the company and of course, its users.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +102,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/updated-auditory-enhancement-of-photographic-memories-online/"><u>[Updated] Auditory Enhancement of Photographic Memories Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-loses-ground-among-iphone-fans/"><u>App Tracking Loses Ground Among iPhone Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/banned-beyond-borders-facebook-in-these-countries/"><u>Banned Beyond Borders: Facebook in These Countries?</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-fires-off-new-resignation-post/"><u>Carolyn Everson Fires Off: New Resignation Post</u></a></li>
+<li><a href="https://media-tips.techidaily.com/complete-overview-on-sony-xperia-video-transformation-techniques-for-web-and-desktop-use/"><u>Complete Overview on Sony Xperia Video Transformation Techniques for Web & Desktop Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/copyright-clarity-for-digital-photo-posting/"><u>Copyright Clarity for Digital Photo Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-your-platform-for-success/"><u>Cultivating Your Platform for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153364524-expand-accessibility-share-fb-posts-and-notes-on-leading-app-platforms-seamlessly/"><u>Expand Accessibility: Share FB Posts & Notes on Leading App Platforms Seamlessly</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-the-persistent-bluescreen-glitch-in-windows-10-updates/"><u>Fixing the Persistent BlueScreen Glitch in Windows 10 Updates</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-resolve-iphone-external-drive-access-errors-via-updated-device-drivers/"><u>How to Resolve iPhone External Drive Access Errors via Updated Device Drivers</u></a></li>
+<li><a href="https://common-error.techidaily.com/revive-your-windows-11-screen-saver-feature-step-by-step-troubleshooting-guide/"><u>Revive Your Windows 11 Screen Saver Feature - Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-new-wave-of-fbx-free-gaming-analysis-tools/"><u>The New Wave of FBX-Free Gaming Analysis Tools</u></a></li>
+<li><a href="https://win-community.techidaily.com/troubleshooting-missing-hardware-connections-tips-by-yl-software-experts/"><u>Troubleshooting Missing Hardware Connections: Tips by YL Software Experts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-to-igtv-conversion-pro-tips-revealed-for-2024/"><u>YouTube-to-IGTV Conversion Pro Tips Revealed for 2024</u></a></li>
+</ul></div>
 

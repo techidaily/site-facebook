@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2024-12-30T00:06:38.014Z
-updated: 2025-01-05T22:07:33.615Z
+date: 2025-01-11T00:16:45.346Z
+updated: 2025-01-12T21:39:48.709Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
@@ -56,19 +64,11 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
  A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Big Tech Limits the Market Access of Smaller Companies
 
@@ -84,23 +84,19 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -111,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
@@ -133,6 +129,10 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -157,15 +157,17 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-expert-audio-techniques-in-audacity-for-professionals/"><u>[New] 2024 Approved Expert Audio Techniques in Audacity for Professionals</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-unlocking-professional-filming-on-windows-macos-ios/"><u>[New] 2024 Approved Unlocking Professional Filming on Windows, macOS, iOS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-enhancing-video-reach-convert-yt-to-igtv-for-2024/"><u>[Updated] Enhancing Video Reach Convert YT to IGTV for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-finding-your-lost-footage-no-vids-on-a6400/"><u>[Updated] Finding Your Lost Footage No Vids On A6400</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/banish-the-glowing-nightmare-effective-ways-to-overcome-orange-screen-of-death/"><u>Banish the Glowing Nightmare: Effective Ways to Overcome Orange Screen of Death</u></a></li>
-<li><a href="https://facebook.techidaily.com/earnings-mechanisms-on-social-grids/"><u>Earnings Mechanisms on Social Grids</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-a-different-hue-switching-facebook-themes/"><u>Embrace a Different Hue: Switching Facebook Themes</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-enabling-windows-11-dynamic-hdr-capability/"><u>In 2024, Enabling Windows 11 Dynamic HDR Capability</u></a></li>
-<li><a href="https://facebook.techidaily.com/safe-passage-navigating-loved-ones-facebook-after-death-process/"><u>Safe Passage: Navigating Loved Ones' Facebook After Death Process</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtualitys-next-step-defining-the-metaverse/"><u>Virtuality's Next Step: Defining the Metaverse</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-ideal-changing-voices-for-online-influencers/"><u>[New] Ideal Changing Voices for Online Influencers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-become-a-close-up-connoisseur-advanced-roleplay-tips/"><u>[Updated] 2024 Approved Become a Close-Up Connoisseur Advanced Roleplay Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essential-guide-to-multistation-open-source-video-tools/"><u>[Updated] Essential Guide to Multistation Open Source Video Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-broadcast-easily-3-steps-to-post-mp3-on-youtube/"><u>[Updated] In 2024, Broadcast Easily 3 Steps to Post MP3 on YouTube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-instavid-angle-mystery-vertical-reversals-on-the-rise/"><u>2024 Approved InstaVid Angle Mystery Vertical Reversals on the Rise</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-fbs-algorithms-for-content-selection/"><u>Deciphering Fb's Algorithms for Content Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-processes-within-photodna-framework/"><u>Deciphering the Processes Within PhotoDNA Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-essentials-6-reasons-to-remove-facebook/"><u>Digital Detox Essentials – 6 Reasons to Remove Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-dynasties-the-growing-antitrust-agenda/"><u>Dismantling Digital Dynasties: The Growing Antitrust Agenda</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-fascination-with-facebooks-member-count/"><u>Dissecting the Fascination with Facebook's Member Count</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-expert-gopro-editor-software-for-smartphone-users/"><u>In 2024, Expert GoPro Editor Software for Smartphone Users</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-essential-steps-for-transitioning-videos-from-youtube-to-dailymotion-for-2024/"><u>The Essential Steps for Transitioning Videos From YouTube to Dailymotion for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Tech Titans Takedown: Unpacking Government Regulatory Actions"
-date: 2024-08-08T11:24:50.565Z
-updated: 2024-08-09T11:24:50.565Z
+date: 2025-01-06T23:39:51.824Z
+updated: 2025-01-12T21:07:17.346Z
 tags:
   - facebook
 categories:
@@ -18,9 +18,9 @@ thumbnail: https://thmb.techidaily.com/6060180ff020afbbd02ae1895cf9d82d0058a11f9
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -39,9 +39,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Big Tech Companies Use Data for Profit
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
@@ -56,9 +53,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ## Big Tech Fails to Catch Misleading Ads
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
@@ -71,6 +65,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
  In 2023, the[U.S. Department of Justice announced](https://www.justice.gov/opa/pr/justice-department-sues-google-monopolizing-digital-advertising-technologies) that it sued Google for its alleged monopolization of numerous digital advertising practices. The associated complaint alleges the Big Tech company has a 15-year history of “a course of anti-competitive and exclusionary conduct,” making it harder for competitors in the industry.
@@ -79,10 +77,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Another recent case occurred when the[European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
@@ -91,8 +90,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
@@ -107,10 +107,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ## Big Tech Companies Have Incredible Influence
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -120,9 +121,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  However, that’s not a universally held opinion. Many governmental bodies invite these companies to meetings that entities with less influence cannot attend.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
@@ -139,14 +137,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +150,21 @@ DbSchema database designer for all databases, schema design in the team, schema 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ffordable-options-selecting-the-right-cam-for-your-needs-for-2024/"><u>[New] Affordable Options Selecting the Right Cam for Your Needs for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-safe-surveillance-practices-keeping-info-undercover-for-2024/"><u>[New] Safe Surveillance Practices Keeping Info Undercover for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unlocking-the-mystery-of-storing-instagram-videos-pc-and-mac-users-guide/"><u>[New] Unlocking the Mystery of Storing Instagram Videos (PC & Mac Users Guide)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-winter-wonderland-spins-and-jumps-for-2024/"><u>[Updated] Winter Wonderland Spins and Jumps for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-xiaomi-civi-3-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Xiaomi Civi 3 Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-red-flags-how-to-disable-pages-on-facebook/"><u>Eliminating Red Flags: How to Disable Pages on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-meta-ready-to-challenge-tech-giants-fortified-positions-in-europe/"><u>Is Meta Ready to Challenge Tech Giants' Fortified Positions in Europe?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/smart-shopping-for-action-cameras-optimal-under-100-lists/"><u>Smart Shopping for ACTION Cameras Optimal Under $100 Lists</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-symphony-revisited-the-top-4-digital-renaissance-themes/"><u>Social Symphony Revisited: The Top 4 Digital Renaissance Themes</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-grounded-a-guide-to-understanding-stablecoin-basics/"><u>Staying Grounded: A Guide to Understanding Stablecoin Basics</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-inner-workings-of-large-language-models-llms-a-comprehveiw-for-tech-enthusiasts/"><u>The Inner Workings of Large Language Models (LLMs): A Comprehveiw for Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-checklist-for-producing-high-quality-facebook-reels/"><u>The Ultimate Checklist for Producing High-Quality Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unveiling-the-latest-from-apples-worldwide-developers-conference-insights-on-enhanced-ai-upgraded-siri-and-new-features-in-ios-18-tech-analysis/"><u>Unveiling the Latest From Apple's Worldwide Developers Conference: Insights on Enhanced AI, Upgraded Siri & New Features in iOS 18 | Tech Analysis</u></a></li>
+</ul></div>
 

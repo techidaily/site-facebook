@@ -1,7 +1,7 @@
 ---
 title: Decoding U.S. Antitrust Reform Measures to Curtail Dominance of Big Tech
-date: 2024-07-29T07:40:33.981Z
-updated: 2024-07-30T07:40:33.981Z
+date: 2025-01-07T17:03:19.396Z
+updated: 2025-01-12T23:38:19.322Z
 tags:
   - facebook
 categories:
@@ -21,34 +21,37 @@ thumbnail: https://thmb.techidaily.com/f6689b1ce3b098830c1181e612252ff5b928460b4
 
  Marketplace owners, Amazon being one very clear example, will no longer be allowed to promote their own products over others using their platform. Other concerns, such as the eradication of nascent competition by winner-take-all acquisition, are also on the table for discussion.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is an Antitrust Law?
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -84,9 +87,6 @@ No advertising on the website.
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -99,9 +99,6 @@ In essence: leave the selling to the sellers.
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
@@ -117,22 +114,20 @@ Finally, we come to the economic backing to make it all happen.
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +136,19 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-5-excellent-gaming-keyboards-within-a-100-budget/"><u>[Updated] In 2024, 5 Excellent Gaming Keyboards Within a $100 Budget</u></a></li>
+<li><a href="https://facebook.techidaily.com/2022s-best-listened-to-podcasts-explored-here/"><u>2022'S Best Listened-To Podcasts Explored Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-unsolicited-friend-invites-with-tactics/"><u>Avoid Unsolicited Friend Invites with Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149053972-boosting-your-message-privacy-facebooks-latest-features-enable-secure-chat-and-call-communications/"><u>Boosting Your Message Privacy: Facebook's Latest Features Enable Secure Chat and Call Communications</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-blocks-of-connection-facebooks-neighborhood-revamp/"><u>Building Blocks of Connection: Facebook's Neighborhood Revamp</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-x50i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210255179-9780998136486-the-greater-and-lesser-keys-of-solomon-the-king/"><u>The Greater and Lesser Keys of Solomon the King | Free Book</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-oneplus-ace-2-pro-by-fonelab-android-recover-video/"><u>The way to get back lost videos from OnePlus Ace 2 Pro</u></a></li>
+<li><a href="https://win-community.techidaily.com/unlimited-sing-along-explore-the-latest-song-library-in-karaoke-cloud-pro-by-pcdj/"><u>Unlimited Sing-Along: Explore the Latest Song Library in Karaoke Cloud Pro by PCDJ!</u></a></li>
+</ul></div>
 

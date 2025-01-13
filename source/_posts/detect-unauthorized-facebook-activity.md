@@ -1,7 +1,7 @@
 ---
 title: Detect Unauthorized Facebook Activity
-date: 2024-07-29T07:40:51.682Z
-updated: 2024-07-30T07:40:51.682Z
+date: 2025-01-09T18:24:16.536Z
+updated: 2025-01-12T22:49:16.436Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
  Here's how to tell if someone else has access to your Facebook account and what to do about it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## How to Check If Someone Else Is Accessing Your Facebook Account
 
  If someone has access to your account without your knowledge, the situation can quickly become sinister. Luckily, Facebook has made it easy to uncover the truth through your list of logged-in devices.
@@ -40,12 +37,13 @@ thumbnail: https://thmb.techidaily.com/6fcd76fd6f172d48de92c06ef6acf9b4878b2af92
 
  Look for any devices you don't use or haven't recently used to sign in to Facebook. Also look for devices from locations you don't recognize.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do if Someone Is Accessing Your Facebook Account
 
  If you suspect your Facebook account has been breached, you must remove the suspicious device's access. Then you should change your password and set up two-factor authentication (2FA) for an added layer of security. You can also set up alerts for unrecognized logins and log out of all devices.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Remove Device Access to Facebook
 
@@ -61,6 +59,10 @@ To revoke device access on your Facebook account:
 
  The access will be revoked, but the unauthorized person could potentially log in again if they know your password.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Change Your Facebook Password
 
  Once you've revoked the unauthorized person's access, you need to take steps to make sure it doesn't happen again.
@@ -71,23 +73,8 @@ To revoke device access on your Facebook account:
 2. Choose the relevant account and fill in the form. You will need to enter your current password to complete the process.
 3. Click**Change Password** when you're done.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Change password form on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/change-password-form-on-facebook-for-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Set Up Two-Factor Authentication (2FA)
 
  Changing your password is only half the story. You should also consider setting up 2FA. 2FA can use either a text message, a security key, or an authentication app.
@@ -102,8 +89,9 @@ To turn on 2FA on Facebook:
 ![Re-entering password to enable two-factor authentication on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/re-entering-password-to-enable-two-factor-authentication-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Set Up Alerts for Unrecognized Logins
 
  You should also set up alerts for unrecognized logins. By enabling the feature, Facebook will notify you if it sees a login from a suspicious source. It will allow you to react more quickly in the event of a breach.
@@ -114,14 +102,8 @@ To set up the feature:
 2. Select your Facebook profile.
 3. Choose how you want to receive notifications for logins: either**In-app notifications** or**Emails** (or both), depending on your preferences. Close the window when you're done.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![setting up login alerts on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/setting-up-login-alerts-on-facebook-for-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ### How to Log Out of All Devices
 
  This final step logs you out of all devices except for the one you're currently using.
@@ -132,6 +114,10 @@ To set up the feature:
 4. Now click**Select all** in the top-right corner of the list and click the **Log out** button.
 
 ![Logging out of all devices on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/logging-out-of-all-devices-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Has Your Facebook Account Been Breached?
 
@@ -144,20 +130,21 @@ Let's quickly summarize what we have learned:
 
  Unauthorized access to your account can also put your other social media profiles at risk, or allow the hacker to send malware to your friends. Make sure to resolve it as soon as possible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Be Wary Around the Web
 
  Facebook is far from being the only service that has the potential to leave your life in ruins if someone gets unauthorized access to it. To stay safe on the web, ensure you follow basic security principles.
 
  For example, don't use the same password on two different sites, use 2FA where available, and don't access highly sensitive data on either public computers or public Wi-Fi networks. Always use a VPN, especially when using a public Wi-Fi network.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +153,16 @@ Let's quickly summarize what we have learned:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-download-all-youtube-images-for-free/"><u>[Updated] In 2024, Download All YouTube Images for Free!</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-brand-ambassador-online/"><u>Becoming a Brand Ambassador Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/before-you-disconnect-key-steps-to-consider-for-your-fb-exit/"><u>Before You Disconnect: Key Steps to Consider for Your FB Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-breakdown-here-are-your-first-timer-room-tips/"><u>Communication Breakdown? Here Are Your First-Timer Room Tips</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-cod-vanguard-stutter-and-crashes-on-your-pc-updated-guide/"><u>How to Fix COD Vanguard Stutter and Crashes on Your PC (Updated Guide)</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147233555-social-media-governance-panel-prepares-verdict-on-trump-ban/"><u>Social Media Governance Panel Prepares Verdict on Trump Ban.</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-adding-captions-or-annotations-to-gifs-across-pc-mac-mobile-devices-and-web/"><u>Step-by-Step Guide: Adding Captions or Annotations to GIFs Across PC, Mac, Mobile Devices & Web</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-non-responsive-bluetooth-keyboards-in-windows-environments/"><u>Troubleshooting Non-Responsive Bluetooth Keyboards in Windows Environments</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/what-is-fraudgpt-how-to-protect-yourself-from-this-dangerous-chatbot/"><u>What Is FraudGPT? How to Protect Yourself From This Dangerous Chatbot</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Do Smartphones Unwittingly Broadcast Your Preferences?
-date: 2024-07-29T07:41:15.246Z
-updated: 2024-07-30T07:41:15.246Z
+date: 2025-01-06T20:29:55.772Z
+updated: 2025-01-12T21:20:58.291Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 ## Do Smartphones Unwittingly Broadcast Your Preferences?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -30,10 +31,6 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -43,8 +40,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Reddit Users Think Their Phones Are Listening
 
  Common search terms for this subject on Google include things like: "does iphone listen to you for ads," "can my phone hear me," and "is google listening to my conversations?"
@@ -71,10 +69,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Google reacted to this by taking action,[stating](https://www.blog.google/products/assistant/more-information-about-our-processes-safeguard-speech-data/) : "Audio snippets are not associated with user accounts." But as VRT pointed out, they don't need to be. More recently, I was brushing my teeth while reading an article about a movie when this advert appeared.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
@@ -83,8 +82,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You Prove If an App Is Listening to You?
 
  Could apps capture audio data using your smartphone's microphone? To find out, cybersecurity experts Ken Munro and David Lodge from Pen Test Partners developed an app. Its aim is to record what was being said in the vicinity of a phone and display it on a monitor.
@@ -93,14 +93,15 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  "We gave ourselves permission to use the microphone on the phone, set up a listening server on the internet, and everything that microphone heard on that phone, wherever it was in the world, came to us and we could then have sent back customized ads."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
 
@@ -138,14 +139,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +152,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-iconic-acting-snapshot-review/"><u>[Updated] Iconic Acting Snapshot Review</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-top-8-best-video-grabbers-for-windows-11/"><u>[Updated] Top 8 Best Video Grabbers for Windows 11</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-oneplus-ace-3-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked OnePlus Ace 3 Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-cryptocurrencys-steadfastness-stablecoins/"><u>A Closer Look at Cryptocurrency's Steadfastness: Stablecoins</u></a></li>
+<li><a href="https://games-able.techidaily.com/eliminate-steam-content-blockage-on-your-pc/"><u>Eliminate Steam Content Blockage on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-play-40c-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Play 40C</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-stop-usb-device-not-recognized-errors-from-disrupting-your-workflow/"><u>How to Stop 'USB Device Not Recognized' Errors From Disrupting Your Workflow</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-to-play-spotify-without-leaving/"><u>Navigating Social Media to Play Spotify Without Leaving</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-solutions-10-lightweight-android-tools/"><u>Speedy Solutions: 10 Lightweight Android Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-social-venues-for-senior-citizens/"><u>Superior Social Venues For Senior Citizens</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-closing-your-fb-business-accounts/"><u>The Complete Guide to Closing Your FB Business Accounts</u></a></li>
+</ul></div>
 

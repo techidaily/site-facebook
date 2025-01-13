@@ -1,7 +1,7 @@
 ---
 title: Strategies for Utilizing Facebook's Annual Review Function
-date: 2025-01-02T04:40:10.164Z
-updated: 2025-01-05T23:57:52.630Z
+date: 2025-01-06T18:15:19.704Z
+updated: 2025-01-12T18:56:16.138Z
 tags:
   - facebook
 categories:
@@ -26,11 +26,19 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the On This Day Feature on Facebook?
 
  If you are keen on saving and revisiting memories, the On This Day feature is just for you. It allows you to check out the posts you made on the same day years ago—some even call it a way to relive your past cringe. It includes everything from the media you uploaded to the posts you shared and the statuses you posted.
 
  You can also find tagged posts, things your friends shared on your timeline, or how many years you have been friends with a user. The memories are initially shown to you privately, and you can later share and edit them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Use the On This Day Feature
 
@@ -41,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/ea46c2c3bcce8249fe3c90a83e87a709d2898868b
 3. Scroll down until you see**Memories** . Open it to view your activity on the same date previously.
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Share Memories
 
@@ -56,17 +68,9 @@ To share a memory from the On This Day feature:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Save and Delete Memories
 
@@ -80,11 +84,11 @@ You can save your On This Day posts with the following steps:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 Close
 
@@ -95,10 +99,6 @@ To access your saved memories:
 3. Scroll down until you see the saved memory. Tap to access it.
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
@@ -124,11 +124,11 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
 
@@ -142,15 +142,15 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
@@ -173,19 +173,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/erfecting-your-youtube-closings-essential-insights-and-tips/"><u>[New] Perfecting Your YouTube Closings - Essential Insights & Tips</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-photoshop-magic-master-the-art-of-background-elimination-for-2024/"><u>[New] Photoshop Magic Master the Art of Background Elimination for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-circumnavigating-youtubes-block-list/"><u>[Updated] In 2024, Circumnavigating YouTube's Block List</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-speedy-editing-up-speed-your-tiktok-videos-now/"><u>[Updated] In 2024, Speedy Editing Up-Speed Your TikTok Videos Now</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-meizu-21-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-conversion-transforming-avchd-files-into-mp4-on-your-windows-10-pc/"><u>Free Conversion: Transforming AVCHD Files Into MP4 on Your Windows 10 PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-f15-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy F15 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-untagging-from-facebook-pics/"><u>Mastering Untagging From Facebook Pics</u></a></li>
-<li><a href="https://windows11.techidaily.com/navigating-through-windows-11-unraveling-quirks-and-fixes/"><u>Navigating Through WINDOWS 11: Unraveling Quirks & Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/rediscover-the-social-network-guided-password-recovery-on-fb/"><u>Rediscover the Social Network - Guided Password Recovery on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-implementation-of-facebooks-mtfc-mechanism/"><u>Stepwise Implementation of Facebook's MTFC Mechanism</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/video-creation-for-all-ages-crafting-your-first-10-youtube-videos-for-2024/"><u>Video Creation for All Ages Crafting Your First 10 YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-are-governments-targeting-techs-colossal-entities/"><u>Why Are Governments Targeting Tech's Colossal Entities?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-a-successful-mukbang-video-journey-for-2024/"><u>[Updated] Crafting a Successful Mukbang Video Journey for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-make-a-youtube-subscribe-link-easy-for-2024/"><u>[Updated] How to Make a YouTube Subscribe Link - Easy for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/5-essential-fixes-for-hybrid-os-hypervisor-faults/"><u>5 Essential Fixes for Hybrid OS Hypervisor Faults</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-essential-steps-for-a-tidy-social-media-space/"><u>7 Essential Steps for a Tidy Social Media Space</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/1728494820959-windows-11usb/"><u>簡単なステップでWindows 11リカバリUSBメディア製作方法</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-quick-guide-showing-you-are-via-fbmessenger/"><u>A Quick Guide: Showing You Are via FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-visual-dictionary-understanding-online-social-symbolism/"><u>A Visual Dictionary: Understanding Online Social Symbolism</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquire-your-facebook-stash-images-and-videos-guide/"><u>Acquire Your Facebook Stash: Images and Videos Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-authenticity-and-promotion-on-your-social-media-profile/"><u>Balancing Authenticity and Promotion on Your Social Media Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-stronger-teams-identifying-8-facebook-collaborative-traits/"><u>Building Stronger Teams: Identifying 8 Facebook Collaborative Traits</u></a></li>
+<li><a href="https://facebook.techidaily.com/challenging-perceptions-the-numbers-game-of-social-media-users/"><u>Challenging Perceptions: The Numbers Game of Social Media Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-presence-over-permanence-quit-fb/"><u>Choosing Presence Over Permanence, Quit FB</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/high-res-gopro-hero5-against-sj7-star/"><u>High Res GoPro Hero5 Against SJ7 Star</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/hot-40-pro-messages-recovery-recover-deleted-messages-from-hot-40-pro-by-fonelab-android-recover-messages/"><u>Hot 40 Pro Messages Recovery - Recover Deleted Messages from Hot 40 Pro</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/masterclass-essential-10-mods-in-terraria-for-2024/"><u>Masterclass Essential 10 Mods in Terraria for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-tips-for-linking-multiple-fortnite-profiles/"><u>Ultimate Tips for Linking Multiple Fortnite Profiles</u></a></li>
 </ul></div>
 

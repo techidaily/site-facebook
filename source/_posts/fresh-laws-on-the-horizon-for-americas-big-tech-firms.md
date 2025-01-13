@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2025-01-04T18:09:47.730Z
-updated: 2025-01-06T04:09:57.847Z
+date: 2025-01-05T16:22:26.528Z
+updated: 2025-01-12T23:23:52.357Z
 tags:
   - facebook
 categories:
@@ -26,29 +26,33 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -61,10 +65,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -88,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 In essence: leave the selling to the sellers.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -102,12 +98,16 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -143,16 +143,22 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-flash-share-sharing-playlists-in-a-snap-for-2024/"><u>[Updated] Flash-Share Sharing Playlists in a Snap for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ai-in-action-selecting-your-social-sphere-sidekick/"><u>AI in Action: Selecting Your Social Sphere Sidekick</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-techniques-for-legitimate-video-acquisition/"><u>Avoiding Pitfalls: Techniques for Legitimate Video Acquisition</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dissent-whatsapp-questions-legality-of-new-privacy-laws/"><u>Digital Dissent: WhatsApp Questions Legality of New Privacy Laws</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-social-networking-experience-on-facebook-mobile/"><u>Elevate Your Social Networking Experience on Facebook Mobile</u></a></li>
-<li><a href="https://facebook.techidaily.com/filtering-public-access-to-online-check-ins/"><u>Filtering Public Access to Online Check-Ins</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-100-pro-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Honor 100 Pro Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/inside-virtuality-metaverse-vs-omniverse-in-focus/"><u>Inside Virtuality Metaverse Vs. Omniverse in Focus</u></a></li>
-<li><a href="https://win-lab.techidaily.com/quick-and-simple-guide-adding-captions-to-your-reels-videos/"><u>Quick and Simple Guide: Adding Captions to Your Reels Videos</u></a></li>
-<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154481696-unleash-content-potential-transfer-fb-posts-and-notes-among-leading-apps/"><u>Unleash Content Potential: Transfer Fb Posts & Notes Among Leading Apps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-navigating-the-secrets-of-funimate-download/"><u>[New] 2024 Approved Navigating the Secrets of Funimate Download</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-building-a-robust-360-video-broadcast-framework-for-fb/"><u>[New] Building a Robust 360 Video Broadcast Framework for FB</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-budget-friendly-vlogging-cameras-unveiled-our-picks/"><u>[New] In 2024, Budget-Friendly Vlogging Cameras Unveiled Our Picks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-iphone-x-the-ultimate-guide-for-users/"><u>[New] Mastering iPhone X The Ultimate Guide for Users</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-4k-clarity-comes-closer-with-asuss-innovative-mg28uq-display/"><u>[Updated] 2024 Approved 4K Clarity Comes Closer with ASUS's Innovative MG28UQ Display</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-everything-about-facebook-live-split-screen-you-should-know-for-2024/"><u>[Updated] Everything About Facebook Live Split Screen You Should Know for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-from-camera-roll-to-feed-adding-photos-on-instagram/"><u>2024 Approved From Camera Roll to Feed Adding Photos on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-latest-privacy-framework-updates/"><u>Decoding Meta's Latest Privacy Framework Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-updated-significance-behind-facebook-pages-tags/"><u>Decoding The Updated Significance Behind Facebook Pages' Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-dynamics-of-online-romance-via-facebook/"><u>Delving Into the Dynamics of Online Romance via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-metaverse-who-really-holds-power/"><u>Demystifying the Metaverse: Who Really Holds Power?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deny-new-friend-recommendations-in-fb/"><u>Deny New Friend Recommendations in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-war-against-covid-1ranking-through-social-media/"><u>Digital War Against COVID-1ranking Through Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-internal-design-philosophy/"><u>Dissecting Facebook's Internal Design Philosophy</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-appeal-with-strategic-profiles/"><u>Elevate Your Online Appeal with Strategic Profiles</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-ai-is-shaping-the-future-of-search-with-microsofts-innovative-bing-platform/"><u>How AI Is Shaping the Future of Search with Microsoft's Innovative Bing Platform</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/reviewing-ingenuity-moto-z2s-intelligent-evolution/"><u>Reviewing Ingenuity Moto Z2's Intelligent Evolution</u></a></li>
 </ul></div>
 

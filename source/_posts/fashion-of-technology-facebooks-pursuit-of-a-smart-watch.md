@@ -1,7 +1,7 @@
 ---
 title: "Fashion of Technology: Facebook’s Pursuit of a Smart Watch"
-date: 2024-12-29T23:44:25.107Z
-updated: 2025-01-05T16:01:23.863Z
+date: 2025-01-10T17:31:32.181Z
+updated: 2025-01-12T22:46:13.432Z
 tags:
   - facebook
 categories:
@@ -24,19 +24,27 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Notable Features of the Rumored Facebook Smartwatch
 
 ![smartwatch-and-hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-and-hand.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Dual-Camera System
 
  The Facebook smartwatch will likely have two cameras. The front camera allows users to make video calls. While the other camera, on the back, can be detached from the steel frame and used for capturing images and videos. The rear 1080p camera with autofocus allows you to capture high-quality images.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Integration with Facebook Apps
 
@@ -44,29 +52,21 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  Since it's intended as a communication device, you'll also be able to apps like Messenger and WhatsApp.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### LTE Connectivity
 
  Facebook wants its watch to work without the need of pairing it with any smartphone. To that end, Facebook is partnering up with US-based wireless service providers to provide LTE connectivity to its new smartwatch. That partnership means that you’d be able to buy the watch from a wireless carrier's store.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fitness Tracking
 
 ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
  Rumors also suggest that the watch allows integration with apps and devices from fitness companies like Peloton. As the device will have LTE connectivity, you would be able to leave your phone behind when working out or jogging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price, Launch Date, and News
 
@@ -78,13 +78,13 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the[AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Competition and Concerns
 
 ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
 
@@ -113,22 +113,17 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-begin-installing-xps-key-visual-storytelling-app/"><u>[New] Begin Installing XP’s Key Visual Storytelling App</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solved-forza-horizon-4-crash-on-pc/"><u>[SOLVED] Forza Horizon 4 Crash on PC</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-discover-the-art-of-sound-modification-in-free-fire-expert-tips-and-tricks-no-charge-for-2024/"><u>[Updated] Discover the Art of Sound Modification in Free Fire Expert Tips and Tricks (No Charge!) For 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-methods-to-resuscitate-windows-photo-viewer-on-latest-os-for-2024/"><u>[Updated] Methods to Resuscitate Windows Photo Viewer on Latest OS for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/1password-goes-mobile-with-significant-enhancement-see-whats-changed-zdnet/"><u>1Password Goes Mobile with Significant Enhancement, See What's Changed - ZDNet</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essential-guide-to-mixing-linktree-and-tiktok-bios/"><u>2024 Approved The Essential Guide to Mixing Linktree and TikTok Bios</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-judges-announce-date-for-ruling-on-trump-ban/"><u>Facebook Judges Announce Date for Ruling on Trump Ban</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-reel-initiative-vs-tiktoks-trending-score/"><u>Facebook’s Reel Initiative vs TikTok's Trending Score</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150816650-fb-oversight-to-unveil-ruling-on-prohibition-against-trump/"><u>FB Oversight to Unveil Ruling on Prohibition Against Trump</u></a></li>
-<li><a href="https://facebook.techidaily.com/golf-guilds-prohibit-online-engagement/"><u>Golf Guilds Prohibit Online Engagement</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-xiaomi-redmi-a2plus-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Xiaomi Redmi A2+ to iOS not Working Problems | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-virtual-identities-profiles-vs-screen-names/"><u>Navigating Virtual Identities: Profiles Vs Screen Names</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-how-to-edit-videos-shot-by-sony-digital-camcorder/"><u>New In 2024, How to Edit Videos Shot by Sony Digital Camcorder</u></a></li>
-<li><a href="https://facebook.techidaily.com/organizing-facebook-updates-on-the-cheap-a-guide-to-5-techniques/"><u>Organizing Facebook Updates on the Cheap: A Guide to 5 Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/prompt-your-way-to-enlightened-social-media-posts-at-facebook/"><u>Prompt Your Way to Enlightened Social Media Posts at Facebook</u></a></li>
-<li><a href="https://win-web.techidaily.com/unexpected-reboots-solved-identifying-the-culprits-behind-spontaneous-computer-restarts-insights-by-yl-software/"><u>Unexpected Reboots Solved: Identifying the Culprits Behind Spontaneous Computer Restarts - Insights by YL Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-the-significant-shifts-in-metas-privacy-rules/"><u>What Are the Significant Shifts in Meta's Privacy Rules?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-fb-sensation-strategies-for-marketers-and-influencers/"><u>[New] Fb Sensation Strategies for Marketers and Influencers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-google-photos-and-your-creativity-quick-collages-made-simple/"><u>[New] Google Photos & Your Creativity Quick Collages Made Simple</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-3-safe-strategies-for-converting-youtube-videos-into-mp3-files/"><u>[New] Top 3 Safe Strategies for Converting YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-why-facebook-changed-its-name-from-news-feed/"><u>Deciphering Why Facebook Changed Its Name From News Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/differentiating-yourself-as-a-brand-choosing-between-personal-and-business-pages/"><u>Differentiating Yourself as a Brand: Choosing Between Personal and Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnect-top-3-places-without-facebook/"><u>Digital Disconnect: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dissecting-brazilian-and-european-portoguese-buttons/"><u>Dissecting Brazilian and European Portoguese Buttons</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-timing-for-social-media-visual-refresh/"><u>Effective Timing for Social Media Visual Refresh</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/get-rid-of-corrupt-excel-2007-file-by-stellar-guide/"><u>Get Rid of corrupt Excel 2007 File</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/guide-re-establishing-apple-iphoneipad-usb-linkage-issues-in-windows-environment/"><u>Guide: Re-Establishing Apple iPhone/iPad USB Linkage Issues in Windows Environment</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/simple-guide-editing-videos-on-your-android-device-with-just-6-steps-using-movavi-clips/"><u>Simple Guide: Editing Videos on Your Android Device with Just 6 Steps Using Movavi Clips</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/windows-nulstevigeniseren-fotos-permanente-oplossing-voor-11-en-windows/"><u>Windows Nulstevigeniseren Foto's - Permanente Oplossing Voor 11-en Windows</u></a></li>
 </ul></div>
 

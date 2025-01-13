@@ -1,7 +1,7 @@
 ---
 title: "Facebook Fabrications: The Cloning Catastrophe Explored"
-date: 2024-08-08T11:24:31.765Z
-updated: 2024-08-09T11:24:31.765Z
+date: 2025-01-08T20:13:32.642Z
+updated: 2025-01-12T23:41:02.703Z
 tags:
   - facebook
 categories:
@@ -28,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
  The more they trick into adding them, the more legit their accounts will look like.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Do Scammers Clone Accounts?
 
  When scammers reach out to these contacts, they might send a message with a phishing link they’ll ask contacts to click. And because your contacts trust, you there’s a chance they will click on that link.
@@ -47,8 +48,9 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
  They’d say something about being in an accident, a particularly sticky situation, or an emergency. Then they’ll ask your friends to send money right away. Because your friends and family care about you and want to get you out of the situation fast, there’s a chance they’ll send the scammers money without thinking.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Cloning vs. Facebook Hacking
 
  Facebook cloning does not involve getting into your account using credentials they may have acquired through a data leak or another phishing attack.
@@ -58,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
  They will remain outside your Facebook; they can, however, use a fake version of your account to trick your friends into giving them important information. As such, after a cloning scam, they can hack your friends' accounts.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Check If Your Facebook Account Has Been Cloned
 
  The most obvious sign that you have been cloned is if a friend reaches out to you to ask if you made a new account. This means someone made a mirror copy of your current account and is reaching out to your friends.
@@ -75,8 +78,9 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
  There’s also a chance the scammers have already blocked you and you won’t find it when you search so ask your friends to find it for you.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Protect Yourself From Facebook Account Cloning
 
  Be mindful of what you share with people outside your friends' list and the platform. Remember that everything you share—photos, private information, friends list—that’s set to public can be seen by everyone on the internet.
@@ -97,9 +101,6 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
 
  To exit "View As" mode, click**Exit View As** on the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## What to Do If You Find a Cloned Facebook Account
 
  If you find a Facebook clone account, go to the profile of the clone account. Click the three dots on the top right corner of the screen below the cover photo. Then select**Find Support or Report Page** .
@@ -107,22 +108,20 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
  If you don’t have a Facebook account and someone has made a fake account, you can fill out [this form](https://www.facebook.com/help/contact/295309487309948?helpref=faq%5Fcontent) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Protect Your Friends and Family From Scammers
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
  Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like[social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +130,21 @@ thumbnail: https://thmb.techidaily.com/ffbfddf161d0ac60a22be92f9cba6a955de35f0f8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-deciphering-the-twitter-archive-a-beginners-tutorial/"><u>[New] 2024 Approved Deciphering the Twitter Archive A Beginner's Tutorial</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-apple-iphone-8-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock Apple iPhone 8 to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-speculations-a-balanced-view-on-facebook-revelations/"><u>Beyond Surface Speculations: A Balanced View on Facebook Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-connections-one-profile-at-a-time-facebooks-redefined-dating-approach/"><u>Building Connections, One Profile at a Time: Facebook's Redefined Dating Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/count-of-friends-liking-you-online/"><u>Count of Friends Liking You Online</u></a></li>
+<li><a href="https://win11.techidaily.com/crafting-a-personalized-window-11-notepad-environment/"><u>Crafting a Personalized Window 11 Notepad Environment</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/demystifying-viewer-statistics-on-instagram-images/"><u>Demystifying Viewer Statistics on Instagram Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-newsfeed-transformation-the-facebook-way/"><u>Effortless Newsfeed Transformation: The Facebook Way</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leading-picture-holding-portals/"><u>In 2024, Leading Picture Holding Portals</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-online-tools-to-generate-artificial-faces-for-free/"><u>New 2024 Approved Top Online Tools to Generate Artificial Faces for Free</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-becoming-an-online-mogul/"><u>Steps to Becoming an Online Mogul</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-best-budget-friendly-high-fidelity-webm-players-for-2024/"><u>The Best Budget-Friendly, High-Fidelity WebM Players for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-social-networks-popularity-controversy/"><u>The Dark Side: Social Networks' Popularity Controversy</u></a></li>
+</ul></div>
 

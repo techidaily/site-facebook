@@ -1,7 +1,7 @@
 ---
 title: "The Merger of Tech Titans: Facebook and Rust Unite"
-date: 2025-01-02T01:34:18.480Z
-updated: 2025-01-06T08:42:20.725Z
+date: 2025-01-09T22:57:01.346Z
+updated: 2025-01-12T20:16:53.556Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Beloved Programming Language
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -61,22 +61,21 @@ thumbnail: https://thmb.techidaily.com/8a3dcbc1949f8fc1125959e7981cf826a5c632863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-kinemasters-ultimate-green-screen-implementation-techniques/"><u>[Updated] In 2024, Kinemaster's Ultimate Green Screen Implementation Techniques</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-a2-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from A2</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-beyond-facebook-the-future-outlook/"><u>Data Beyond Facebook: The Future Outlook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/effortless-audio-format-change-downloadable-app-to-transform-wma-into-m4r-at-no-cost/"><u>Effortless Audio Format Change: Downloadable App to Transform WMA Into M4R at No Cost</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-oppo-a58-4g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Oppo A58 4G</u></a></li>
-<li><a href="https://driver-install.techidaily.com/faster-than-ever-update-drivers-across-all-win-os-generations/"><u>Faster Than Ever: Update Drivers Across All Win OS Generations</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149763759-fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools.</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-f5-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Poco F5 5G Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-navigating-through-the-maze-creating-seamless-video-experienences-in-pixiz/"><u>In 2024, Navigating Through the Maze Creating Seamless Video Experienences in Pixiz</u></a></li>
-<li><a href="https://win-web3.techidaily.com/pasos-faciles-y-seguros-para-arranque-de-una-pc-lenovo-mediante-windows-11/"><u>Pasos Fáciles Y Seguros Para Arranque De Una PC Lenovo Mediante Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/planning-and-executing-impressive-social-events-on-fb/"><u>Planning & Executing Impressive Social Events on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-safe-on-social-networking-recognize-these-14-tricks-fast/"><u>Stay Safe on Social Networking: Recognize These 14 Tricks Fast</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-high-point-of-facebook-is-it-there-yet/"><u>The High Point of Facebook – Is It There Yet?</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-of-the-charts-which-platform-do-you-love/"><u>Top of the Charts: Which Platform Do You Love?</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleashing-social-connectivity-invite-on-facebook-messenger/"><u>Unleashing Social Connectivity: Invite on Facebook Messenger</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-windows-10-video-editing-made-easy-top-imovie-alternatives-for-2024/"><u>Updated Windows 10 Video Editing Made Easy Top iMovie Alternatives for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/which-is-your-favorite-social-media-platform-poll/"><u>Which Is Your Favorite Social Media Platform? [Poll]</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-design-and-construct-your-dream-mc-house/"><u>[New] 2024 Approved Design and Construct Your Dream MC House</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-no1-quick-capture-time-lapsing-system-for-2024/"><u>[New] No.1 Quick Capture Time-Lapsing System for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mastering-audio-prime-9-mic-recording-solutions-for-2024/"><u>[Updated] Mastering Audio Prime 9 Mic Recording Solutions for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/big-news-for-apple-developers-enhanced-programming-arsenal-with-major-free-ai-upgrades-insights/"><u>Big News for Apple Developers: Enhanced Programming Arsenal with Major Free AI Upgrades – Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-social-logins-should-facebook-be-your-gateway-to-apps/"><u>Deciding on Social Logins: Should Facebook Be Your Gateway to Apps?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-facebooks-foundational-organizational-plan/"><u>Deconstructing Facebook's Foundational Organizational Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-impact-of-using-facebook-as-a-single-sign-in-mechanism/"><u>Delving Into the Impact of Using Facebook as a Single Sign-In Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-reset-strategies-for-instagram-relief/"><u>Digital Reset Strategies for Instagram Relief</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-power-of-facebooks-new-privacy-features-and-why-you-need-them/"><u>Discover the Power of Facebook's New Privacy Features and Why You Need Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-meta-keep-my-vr-life-more-private-than-fb/"><u>Does Meta Keep My VR Life More Private than FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-access-to-past-experiences-facebook-on-this-day/"><u>Effortless Access to Past Experiences: Facebook On This Day</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-pro-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Pro to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-tecno-spark-20-pro-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Tecno Spark 20 Pro ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/masterclass-on-monetizing-moments-gaining-income-via-insta-sponsors-for-2024/"><u>Masterclass on Monetizing Moments Gaining Income via Insta-Sponsors for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138570663-9781440108013-the-spiritual-wildfire/"><u>The Spiritual Wildfire | Free Book</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/ultimate-step-by-step-manual-save-your-hotmail-data-with-these-three-easy-methods/"><u>Ultimate Step-by-Step Manual: Save Your Hotmail Data with These Three Easy Methods</u></a></li>
 </ul></div>
 

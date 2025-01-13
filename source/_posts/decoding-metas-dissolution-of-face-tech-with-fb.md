@@ -1,7 +1,7 @@
 ---
 title: Decoding Meta's Dissolution of Face Tech with FB
-date: 2024-07-29T07:41:24.189Z
-updated: 2024-07-30T07:41:24.189Z
+date: 2025-01-10T22:35:09.875Z
+updated: 2025-01-12T19:05:01.971Z
 tags:
   - facebook
 categories:
@@ -22,14 +22,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Now, Meta is deleting all these profiles. Let us examine what this means and why Meta is doing it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is Facial Recognition?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Pixabay facial recognition image of man's face](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pixabay-facial-recognition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facial recognition is a piece of software that recognizes a human face by mapping its features from a photograph or video. The most important features are the distance between the eyes and the distance from forehead to chin.
 
@@ -42,14 +44,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -64,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
  Meta is not abandoning facial recognition. It will continue to use it, but under a narrower set of circumstances.
@@ -76,14 +81,11 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,4 +94,20 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-how-can-i-share-videos-to-instagram-in-2024/"><u>[New] How Can I Share Videos to Instagram, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-expert-studio-walkthrough-xstudio-reviewed/"><u>[Updated] 2024 Approved Expert Studio Walkthrough XStudio Reviewed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-embark-on-a-metaverse-adventure-with-these-top-8-helmets-and-headsets-for-2024/"><u>[Updated] Embark on a Metaverse Adventure with These Top 8 Helmets & Headsets for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-laughloop-app-a-hub-for-humor-enthusiasts/"><u>[Updated] LaughLoop App - A Hub for Humor Enthusiasts</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-navigating-new-realms-todays-vr-tomorrows-trials/"><u>2024 Approved Navigating New Realms Today's VR, Tomorrow's Trials</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-a-new-era-for-iphone-privacy/"><u>App Tracking Decline: A New Era for iPhone Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-galaxy-a15-4g-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Galaxy A15 4G has native MOV support?</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-everyday-exchange-typographic-techniques/"><u>Elevate Your Everyday Exchange: Typographic Techniques</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209841521-9781942969990-seeds-for-life/"><u>Seeds for Life | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-synergy-hide-your-fb-networking/"><u>Subtle Synergy: Hide Your FB Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-platform-puzzle-where-to-foster-group-connections/"><u>The Social Platform Puzzle: Where to Foster Group Connections?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-mastodon-really/"><u>What Is Mastodon Really?</u></a></li>
+</ul></div>
 

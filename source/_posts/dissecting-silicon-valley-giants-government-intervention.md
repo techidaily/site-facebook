@@ -1,7 +1,7 @@
 ---
 title: "Dissecting Silicon Valley Giants: Government Intervention"
-date: 2024-07-29T07:43:43.304Z
-updated: 2024-07-30T07:43:43.304Z
+date: 2025-01-08T21:42:57.207Z
+updated: 2025-01-12T19:06:10.651Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -38,11 +39,12 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -57,15 +59,16 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
  A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Big Tech Limits the Market Access of Smaller Companies
 
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
@@ -78,10 +81,11 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
  Another recent case occurred when the[European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
@@ -91,9 +95,6 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
 ## Big Tech Can Impact Government Decisions and Operations
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -106,11 +107,11 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
 ## Big Tech Companies Have Incredible Influence
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -128,9 +129,6 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -139,14 +137,11 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +150,22 @@ thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-exploring-immersive-tech-vr-explained-simply/"><u>[New] Exploring Immersive Tech VR Explained Simply</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-digital-assistants-dialling-into-personal-preferences/"><u>Are Digital Assistants Dialling Into Personal Preferences?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-zte-nubia-z60-ultra-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your ZTE Nubia Z60 Ultra is off? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-face-in-the-facebook-ecosystem/"><u>Designing Your Face in the Facebook Ecosystem</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-infinix-smart-8-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Infinix Smart 8 Phone Screen?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-iphone-13-mini-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On iPhone 13 mini If Youve Tried Everything</u></a></li>
+<li><a href="https://facebook.techidaily.com/ig-live-unplugged-mode-available/"><u>IG Live Unplugged Mode Available</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-fix-for-ms-store-crash-error-code-0x0-on-win-1011/"><u>Quick Fix for MS Store Crash: Error Code 0X0 on Win 10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-monitor-youth-activity-within-social-media-networks/"><u>Steps to Monitor Youth Activity Within Social Media Networks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-oppo-find-x7-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Oppo Find X7 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/two-factor-authentication-on-facebook-a-complete-tutorial/"><u>Two-Factor Authentication on Facebook – A Complete Tutorial</u></a></li>
+<li><a href="https://win11.techidaily.com/ultimate-tutorial-for-implementing-the-black-lightning-extension-in-kodi-versions-19-and-18/"><u>Ultimate Tutorial for Implementing the Black Lightning Extension in Kodi Versions 19 & 18</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-facebook-messenger-provide-e2ee/"><u>When Will Facebook Messenger Provide E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebooks-audience-is-diminishing-dramatically/"><u>Why Facebook's Audience Is Diminishing Dramatically</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-11-hp-envy-5530-usb-drive-installation/"><u>Windows 11: HP Envy 5530 USB Drive Installation</u></a></li>
+</ul></div>
 

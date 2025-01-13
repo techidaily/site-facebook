@@ -1,7 +1,7 @@
 ---
 title: "Decoding Facebook’s Policy: Allowance for Multiple User Profiles Per Account"
-date: 2024-07-29T07:42:00.606Z
-updated: 2024-07-30T07:42:00.606Z
+date: 2025-01-07T23:30:47.374Z
+updated: 2025-01-12T17:13:01.292Z
 tags:
   - facebook
 categories:
@@ -20,14 +20,16 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  Yet social media allows everyone to see what you are saying or doing with your friends, unless you take steps to restrict your account. In order to address this, Meta is testing a feature that will allow users to maintain up to five separate profiles under the same Facebook account.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Coming Soon: One Facebook Account, 5 Profiles
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta prohibits users from having more than one Facebook account. However, the company is testing a way for users to have more than one profile connected to their account, as first reported by[Bloomberg](https://www.bloomberg.com/news/articles/2022-07-14/meta-to-start-letting-facebook-users-have-up-to-five-profiles) .
 
@@ -42,13 +44,9 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  Your overall account will also remain subject to Facebook's disciplinary procedures should any of the profiles violate Facebook's rules.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Now Allowing Multiple Profiles?
 
  According to Lam, the feature will "help people tailor their experience based on interests and relationships."
@@ -62,22 +60,20 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
  Multiple profiles may help Facebook to stop[bleeding young users](https://www.makeuseof.com/why-facebook-is-losing-users/) to rivals like TikTok, who don't necessarily want their parents, relatives, strangers, or co-workers to see everything they are doing online with their friends.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Boost to Privacy
 
  This new feature, when fully rolled out, should help users experience Facebook more discreetly, which should be a boost to online privacy.
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,4 +82,26 @@ thumbnail: https://thmb.techidaily.com/42aa8d9afd78cc4e28f215cb4f97cf62596e277c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-navigating-social-media-landscape-facebook-daily-use/"><u>[New] 2024 Approved Navigating Social Media Landscape Facebook Daily Use</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-number-1-in-the-8th-digital-image-blend-platform/"><u>[Updated] Number 1 in the 8Th Digital Image Blend Platform</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-y78plus-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://solve-info.techidaily.com/boost-efficiency-through-customized-artificial-intelligence-frameworks/"><u>Boost Efficiency Through Customized Artificial Intelligence Frameworks</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-silence-whistleblower-on-fb-platform/"><u>Breaking the Silence: Whistleblower on FB Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-the-online-world-9-ways-social-media-enhances-life/"><u>Embracing the Online World: 9 Ways Social Media Enhances Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-life-balance-through-facebooks-time-out-reminder/"><u>Enhance Life Balance Through Facebook's Time-Out Reminder</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-community-spotlight-a-guide-for-public-access/"><u>Facebook's Community Spotlight: A Guide for Public Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-boosting-user-engagement-with-new-panel-features/"><u>Facebook’s Next Step: Boosting User Engagement With New Panel Features</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/fixing-printer-network-issues-a-step-by-step-guide-by-yl-technology-experts/"><u>Fixing Printer Network Issues: A Step-by-Step Guide by YL Technology Experts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-sony-xperia-1-v-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Sony Xperia 1 V by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-unlocking-soundmojis-magic/"><u>Mastering Messenger: Unlocking Soundmojis Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscovering-trump-on-meta-platforms/"><u>Rediscovering Trump on Meta Platforms</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-how-to-connect-laptop-to-tv-with-pictures/"><u>Step by Step How to Connect Laptop to TV [with Pictures]</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-activating-and-deactivating-iphones-recovery-mode/"><u>Step-by-Step Guide: Activating and Deactivating iPhone's Recovery Mode</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-vr-immersion-review-series-oculus-edition-for-2024/"><u>Ultimate VR Immersion Review Series – Oculus Edition for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-oneplus-nord-ce-3-lite-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your OnePlus Nord CE 3 Lite 5G Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-changing-in-the-landscape-of-us-antitrust/"><u>What's Changing in the Landscape of U.S. Antitrust</u></a></li>
+</ul></div>
 

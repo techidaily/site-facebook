@@ -1,7 +1,7 @@
 ---
 title: Easily Change Profile Contact Information
-date: 2024-07-29T07:41:56.284Z
-updated: 2024-07-30T07:41:56.284Z
+date: 2025-01-05T19:22:32.004Z
+updated: 2025-01-12T16:58:21.867Z
 tags:
   - facebook
 categories:
@@ -21,10 +21,11 @@ thumbnail: https://thmb.techidaily.com/92e9b29713cc88b11300b903399854331375d2de8
 
 ## Why Update Your Email or Phone Number on Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Photo of someone using Facebook on their laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/pexels-luca-sammarco-6162932-(1).jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There are a few reasons why you might want to update your email or phone number on Facebook. Chances are, you have changed your email address or phone number since you first signed up for Facebook. Updating your contact details ensures that you're able to[reset your password on Facebook](https://www.makeuseof.com/how-to-reset-facebook-password-forgot/) should you ever forget it.
 
@@ -36,29 +37,21 @@ thumbnail: https://thmb.techidaily.com/92e9b29713cc88b11300b903399854331375d2de8
 
 Here's how...
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ### How to Update Your Email Address and Phone Number on Mobile
 
 To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook main menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-main-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -75,21 +68,19 @@ Close
 
 Here's how to do this:
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
 1. Tap on the email or phone number on the**Manage Contact Info** page.
 2. Hit**Remove** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Change Your Contact Details on the Facebook Website
 
  To change your email address on Facebook using the browser version, follow these steps:
@@ -98,32 +89,37 @@ Close
 2. Click on the**downward-facing arrow** at the top of your screen.  
 ![screenshot showing facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-homepage.jpg)
 3. Click on**Settings & Privacy** \>**Settings** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing account settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-account-settings-page-on-Facebook.jpg)
 4. Click on**Account Settings** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
 ![screenshot showing edit email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-edit-email-address-page.jpg)
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Updating Your Contact Information on Facebook
 
  We hope this post has helped you update your email address and phone number on Facebook. Keeping your contact info updated is important and comes in really handy should you ever forget your password or lose access to your account.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +128,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-saving-game-moments-with-fbx-recorder/"><u>[Updated] In 2024, Saving Game Moments with FBX Recorder</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/evaluating-the-latest-whoop-4-the-ultimate-wearable-companion-for-active-lifestyle-management/"><u>Evaluating the Latest Whoop 4: The Ultimate Wearable Companion for Active Lifestyle Management</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-brainstorm-to-final-draft-employing-chatgpt-strategies-for-effective-research-and-essay-work/"><u>From Brainstorm to Final Draft: Employing ChatGPT Strategies for Effective Research & Essay Work</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-undetected-controllers-in-steam-when-running-on-windows-pcs/"><u>How to Fix Undetected Controllers in Steam When Running on Windows PCs</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-infiltration-suspicious-social-sites/"><u>Identity Infiltration: Suspicious Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-sea-of-data-utilizing-facebooks-transparent-tools/"><u>Navigating the Sea of Data: Utilizing Facebook's Transparent Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-great-disconnect-unpacking-platform-failures/"><u>The Great Disconnect: Unpacking Platform Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/tight-knit-community-join-the-benefits-of-fb-groups/"><u>Tight-Knit Community: Join the Benefits of FB Groups</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
+</ul></div>
 

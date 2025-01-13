@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2025-01-03T03:48:31.533Z
-updated: 2025-01-06T05:42:53.921Z
+date: 2025-01-11T16:47:49.570Z
+updated: 2025-01-12T17:10:24.042Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
  Every iOS device is assigned a unique identifier, called an Identifier for Advertisers (IDFA), that can track the user. The purpose of the IDFA is for advertisers to personalize and target ads more effectively.
@@ -42,12 +38,16 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Make Money?
 
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Facebook's Official Stance on App Tracking Transparency?
@@ -72,12 +72,16 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -127,14 +127,19 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-compact-content-leading-5-services-to-compress-video-urls/"><u>[Updated] 2024 Approved Compact Content Leading 5 Services to Compress Video URLs</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-how-to-organize-a-virtual-gathering-using-zoom-on-android/"><u>[Updated] How to Organize a Virtual Gathering Using Zoom on Android</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-financial-potential-how-to-earn-with-youtube-shorts-for-2024/"><u>[Updated] Unlocking Financial Potential How to Earn with YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/block-outsiders-from-social-network-interactions/"><u>Block Outsiders From Social Network Interactions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-decoding-your-path-to-prominence-on-youtube/"><u>In 2024, Decoding Your Path to Prominence on YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-silence-popular-apps-suddenly-inactive/"><u>Online Silence: Popular Apps Suddenly Inactive</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/peak-procurement-of-lecture-captures-for-2024/"><u>Peak Procurement of Lecture Captures for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-sources-for-securing-freelance-projects/"><u>Top 5 Sources for Securing Freelance Projects</u></a></li>
-<li><a href="https://facebook.techidaily.com/verify-fbs-safety-email-(securityfbcom)-authenticity/"><u>Verify FB's Safety Email: <security@fb.com> Authenticity?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-t5-eyes-complete-review-action-footage-reimagined-for-2024/"><u>[Updated] T5 Eye's Complete Review Action Footage Reimagined for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cut-the-stream-of-automatically-played-podcasts-in-spotify/"><u>2024 Approved Cut the Stream of Automatically Played Podcasts in Spotify</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/assessing-the-performance-and-cost-of-the-winegard-fl5500-aflatwayenn-antenna-satisfactory-but-overpriced/"><u>Assessing the Performance and Cost of the Winegard FL5500# AFLATWAYENN Antenna: Satisfactory but Overpriced</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-filter-bubble-acts-technicalities/"><u>Deciphering Filter Bubble Act's Technicalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photographers-domain-posting/"><u>Deciphering Photographer's Domain Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-judgment-for-trumponomy-suspension-enacted/"><u>Delay in Judgment for Trumponomy Suspension Enacted</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-mosaic-magic-assembling-photos-for-social-media-spotlight/"><u>Digital Mosaic Magic: Assembling Photos for Social Media Spotlight</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-the-essence-of-fbctas-purpose/"><u>Diving Into the Essence of FBCTA's Purpose</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-downloading-images-and-videos-from-fb/"><u>Efficiently Downloading Images and Videos From FB</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/explore-the-power-of-text-in-visuals-uncovering-top-5-caption-strategies-for-tiktok/"><u>Explore the Power of Text in Visuals Uncovering Top 5 Caption Strategies for TikTok</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/identified-non-printer-owners-computer-mischief/"><u>Identified Non-Printer Owner's Computer Mischief</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/save-battery-life-and-enhance-efficiency-with-macos-montereys-power-saving-mode-tips-by-zdnet/"><u>Save Battery Life and Enhance Efficiency with MacOS Monterey's Power Saving Mode - Tips by ZDNET</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-integration-upgrade-thinkpad-with-win11-drivers/"><u>Seamless Integration - Upgrade Thinkpad with Win11 Drivers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolving-audio-problems-in-windows-7/"><u>Troubleshooting Guide: Resolving Audio Problems in Windows 7</u></a></li>
 </ul></div>
 

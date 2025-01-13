@@ -1,7 +1,7 @@
 ---
 title: "Dismantling Digital Dynasties: The Growing Antitrust Agenda"
-date: 2024-07-29T07:40:35.733Z
-updated: 2024-07-30T07:40:35.733Z
+date: 2025-01-06T22:30:02.915Z
+updated: 2025-01-12T23:09:09.978Z
 tags:
   - facebook
 categories:
@@ -17,15 +17,16 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
 
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -52,10 +53,11 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 ## Big Tech Fails to Catch Misleading Ads
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -65,9 +67,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 ## Big Tech Limits the Market Access of Smaller Companies
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
@@ -86,12 +85,13 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Big Tech Can Impact Government Decisions and Operations
 
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -102,13 +102,11 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Companies Have Incredible Influence
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
@@ -119,9 +117,6 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  However, that’s not a universally held opinion. Many governmental bodies invite these companies to meetings that entities with less influence cannot attend.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
@@ -129,6 +124,10 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -138,14 +137,11 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +150,19 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/updated-exploring-the-most-reliable-free-srt-translation-services-for-2024/"><u>[Updated] Exploring the Most Reliable Free SRT Translation Services for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-youtubes-rewind-feat-unraveling-sequence-with-a-single-click/"><u>[Updated] YouTube's Rewind Feat Unraveling Sequence with a Single Click</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-innovative-approaches-to-surge-engagement-in-your-social-feed/"><u>12 Innovative Approaches to Surge Engagement in Your Social Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/administrative-control-integrating-new-members-on-facebook-pages/"><u>Administrative Control: Integrating New Members on Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/baffling-befrienders-hide-your-list-precision/"><u>Baffling Befrienders: Hide Your List Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzz-quest-navigating-to-this-years-most-popular-social-sites/"><u>Buzz Quest: Navigating to This Year's Most Popular Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/darkening-outlook-what-the-future-holds-for-facebook/"><u>Darkening Outlook: What the Future Holds for Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-k70-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi K70 Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-nord-n30-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock OnePlus Nord N30 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-unofficial-leading-business-tablet-for-travelers-surprisingly-not-powered-by-microsoft-or-lenovo-comprehensive-review-on-zdnet/"><u>The Unofficial Leading Business Tablet for Travelers: Surprisingly Not Powered by Microsoft or Lenovo - Comprehensive Review on ZDNET</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-rated-affordable-vpn-services-of-2024-comprehensive-review-by-industry-pros-techradar/"><u>Top-Rated Affordable VPN Services of 2024: Comprehensive Review by Industry Pros | TechRadar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-vivo-y200e-5g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo Y200e 5G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+</ul></div>
 

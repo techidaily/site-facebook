@@ -1,7 +1,7 @@
 ---
 title: "Digital Safety First: Unveiling the 9 Steps to Spot Hacked Accounts"
-date: 2024-07-29T07:42:39.301Z
-updated: 2024-07-30T07:42:39.301Z
+date: 2025-01-09T18:40:37.300Z
+updated: 2025-01-12T23:16:18.708Z
 tags:
   - facebook
 categories:
@@ -19,20 +19,18 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
 
  Therefore, it is imperative to know the signs that indicate that one of your social media accounts has been hacked to take the necessary measures in time. In this article, we will discuss some of these signs.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Your Password Has Been Changed
 
 ![Facebook Showing that Password Has Been Changed Previously](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/1-Facebook-Showing-that-Password-Has-Been-Changed-Previously-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The first possible sign that your social media account has been hacked is when you cannot log in to your account with your password. If you see the social media platform confirming that your password has changed recently, but it's not you who changed it, that's a clear sign that someone else has accessed your account and changed your password.
 
  However, there is a possibility that hackers may access your account and do whatever they want without changing your password to avoid suspicion. In that case, this sign won't help, so you'll need to look at the other symptoms listed below.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Random Posts From Your Profile
 
  If hackers want to promote any of their offers or share links with a large audience, they should do this on a timeline for everyone to see.
@@ -41,29 +39,21 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
 
  You are at a greater risk of being hacked if you are an admin of popular pages or your account is highly popular.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## 3\. Your Contacts Reporting Unusual Messages
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Random Messages Sent on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/2-Random-Messages-Sent-on-Facebook-Messenger.jpg)
 
  In the same way that hackers manipulate your timeline to spread their message throughout your audience, they can also use your private messages to do the same. So, check if there have been unusual sharing of links that you did not share or messages that you did not send across your network.
 
  If you notice such activity, that's another clear indication that someone has accessed your account without your knowledge. Furthermore, a hacker might have deleted messages your friends complained about receiving from your end if you couldn't locate them. So, do take precautions in such a situation as well.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Logins From Remote Locations
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Random Logins on Facebook Login History](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/3-Random-Logins-on-Facebook-Login-History.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The majority of social media platforms keep track of your login history. So, in case a hacker gains access to your account, you'll see your account being accessed from a place you've never physically been to before.
 
@@ -79,23 +69,15 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
 
  Hackers often take advantage of this opportunity to spread malicious links and content by adding other people to your network or using your authority to accomplish what they need.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Suspicious Activity on Your Business Page or Group
 
  If you own an established page or group, check if any suspicious activity has occurred through it. If you see someone following random accounts through your page, running promotions you haven't conducted, or trying to sell something you haven't listed, that could also be a sign that your account has been compromised.
 
  Moreover, changes in the admin permissions of pages or groups linked to your account that other admins or moderators haven't amended are also a warning sign you should watch out for. This is just one of the many ways[hackers use to steal your identity on social media](https://www.makeuseof.com/tag/how-hackers-steal-identity-on-social-media/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Receiving Emails Notifying About Unauthorized Access
 
@@ -106,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
  When you receive emails from such networks asking you to confirm whether you've attempted to log into a particular device at this time, and you haven't, then that's another sign that your account has been hacked.
 
  Moreover, if you receive an email asking you to change your password or verify your OTP, it's good to check your account login history to see if someone has worked their way around and logged into your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Signed Up for Subscriptions and Unusual Purchases
 
@@ -119,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
 
  Any suspicious activity in your ad manager or a half-setup campaign that you don't remember setting up may indicate preying eyes have accessed your social media account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Other Signs to Look For
 
  If your account has been exposed in a breach, you may see unusual changes in the privacy settings you haven't customized. For instance, people appearing in the blocked list you haven't added and unusual promotional stories posted from your account or page.
@@ -126,8 +116,9 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
  In addition, you should keep an eye out for random achievements posted from your profile, check-ins at unexpected events and places, or any other similar changes in your profile.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Social Media Accounts Get Hacked and How to Avoid It
 
  The following are possible reasons why your social media account might be hacked:
@@ -149,14 +140,11 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
 
  Also, you should be aware of trendy social media scams so that you don't fall for them when they come knocking at your door.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +153,17 @@ thumbnail: https://thmb.techidaily.com/581e555a79746fa6146e452431e04adcc0fe595ec
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-z50s-pro-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Z50S Pro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/discovering-soft-amplification-techniques-in-garageband/"><u>Discovering Soft Amplification Techniques in Garageband</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rful-thumbnails-in-a-flash-professional-valorant-creations-for-2024/"><u>Masterful Thumbnails in a Flash Professional Valorant Creations for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/seamless-playback-on-ps4-enjoy-zero-latency-video-streams/"><u>Seamless Playback on PS4 - Enjoy Zero Latency Video Streams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/spotv-now/"><u>SPOTV NOWでライブ放送視聴とビデオダウンロード手順</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ideal-time-frame-for-fb-campaigns/"><u>The Ideal Time Frame for Fb Campaigns</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-vivo-x-fold-2-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Vivo X Fold 2 Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultra-lightning-top-speedy-android-apps/"><u>Ultra-Lightning: Top Speedy Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+</ul></div>
 

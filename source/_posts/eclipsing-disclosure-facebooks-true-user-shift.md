@@ -1,7 +1,7 @@
 ---
 title: "Eclipsing Disclosure: Facebook's True User Shift"
-date: 2024-07-29T07:43:42.398Z
-updated: 2024-07-30T07:43:42.398Z
+date: 2025-01-07T19:30:57.798Z
+updated: 2025-01-12T20:59:47.731Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
  For a company that has grown so rapidly since its inception, this might come as a shock. But, what's more important is the number of users that Facebook has actually lost and if this is something they should worry about.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -37,14 +38,16 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Mark Zuckerberg's Statement on Losing Users
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -54,15 +57,13 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## Is Facebook’s End Near?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
@@ -75,8 +76,9 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's User Loss Is Not as Big as It Seems
 
  Losing half a million daily users, and that too for the first time in 18 years, is surely not a good sign for Facebook. But, thanks to its giant user base, this decline is only a drop in the ocean.
@@ -85,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
 
  But only time will tell if Facebook succeeds in regaining its lost users and the interest among the younger generation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +100,20 @@ thumbnail: https://thmb.techidaily.com/a6cda5d3da29aa302f42489d12b2f7ee98a977d6c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-how-to-use-snap-camera-on-google-meet/"><u>[Updated] How to Use Snap Camera on Google Meet?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-snicker-shelf-premium-collection-of-gratuitous-gags/"><u>2024 Approved Snicker Shelf Premium Collection of Gratuitous Gags</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-breakdown-major-social-media-failure/"><u>Communication Breakdown: Major Social Media Failure</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-on-unlocking-iphone-11-pro-with-a-broken-screen-drfone-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone 11 Pro with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://win-net.techidaily.com/expert-steps-to-repair-and-recover-gopro-video-content-successfully/"><u>Expert Steps to Repair and Recover GoPro Video Content Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-identity-vs-online-alias-whats-the-difference/"><u>Facebook Identity Vs Online Alias: What's The Difference?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-policy-shift-for-trumps-page/"><u>Facebook Policy Shift for Trump's Page</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-tecno-camon-20-pro-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Tecno Camon 20 Pro 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/riding-the-wave-of-innovation-spotify-and-facebooks-collaborative-dream/"><u>Riding the Wave of Innovation: Spotify & Facebook's Collaborative Dream</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-most-laugh-out-loud-youtube-clips-of-20162017-a-ranked-list/"><u>The Most Laugh-Out-Loud YouTube Clips of 2016/2017 - A Ranked List!</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-more-than-headlines-dissecting-fb-dossiers-objectively/"><u>Understanding More than Headlines: Dissecting FB Dossiers Objectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-these-five-economical-ways-to-time-your-fb-updates/"><u>Unlock These Five Economical Ways to Time Your FB Updates</u></a></li>
+</ul></div>
 

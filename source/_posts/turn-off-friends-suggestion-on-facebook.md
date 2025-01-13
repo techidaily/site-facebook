@@ -1,7 +1,7 @@
 ---
 title: Turn Off Friends Suggestion on Facebook
-date: 2024-08-08T11:23:09.095Z
-updated: 2024-08-09T11:23:09.095Z
+date: 2025-01-09T19:35:28.593Z
+updated: 2025-01-12T18:48:46.170Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/e3a22512763a41f8aa30352bd2ecc133cddafc4e3
 ---
 
 ## Turn Off Friends Suggestion on Facebook
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -29,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/e3a22512763a41f8aa30352bd2ecc133cddafc4e3
 
  Many of us would rather scroll through our Facebook feeds without having to deal with friend suggestions. Luckily, you can hide the "People You May Know" feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does Facebook Come Up With Its Friend Suggestions?
 
  Facebook uses its engagement algorithms, your uploaded contact lists, and existing friends to suggest lists of people it believes you may know. You find some of these people in your News Feed under the "People You May Know" gallery.
@@ -41,12 +49,13 @@ thumbnail: https://thmb.techidaily.com/e3a22512763a41f8aa30352bd2ecc133cddafc4e3
 
  Here's how to hide the "People You May Know" feature on Facebook:
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![android screenshot showing facebook newsfeed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-newsfeed.jpg)
 
 ![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -59,26 +68,25 @@ Close
 
  Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## How to Turn off Facebook's "People You May Know" Alerts
 
  Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![android screenshot showing facebook settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-settings-page.jpg)
 
 ![screenshot showing notification settings on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-notification-settings-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing people you may know alerts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-people-you-may-know-alerts-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -94,34 +102,22 @@ Close
 
 1. Log in to your Facebook account and click on the downward-facing triangle icon at the top right.
 2. Click on**Settings & Privacy.**
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3. ![desktop screenshot showing facebook profile menu option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-profile-menu-option.jpg)  
  Then, click on**Settings** .
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
 
  Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +126,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unlock-the-secrets-of-youtube-description-upgrades/"><u>[New] 2024 Approved Unlock the Secrets of YouTube Description Upgrades</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-macs-choice-of-capture-an-in-depth-look-at-premium-software-for-2024/"><u>[New] Mac's Choice of Capture An In-Depth Look at Premium Software for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-prime-binge-worthy-hits-highest-tweets-and-view-counts/"><u>[Updated] 2024 Approved Prime Binge-Worthy Hits Highest Tweets & View Counts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-transformative-notetaking-the-mematic-way/"><u>[Updated] Transformative Notetaking The Mematic Way</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-guide-to-uploading-videos-into-youtube-lists/"><u>2024 Approved Guide to Uploading Videos Into YouTube Lists</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-charisma-enhancing-with-bold-and-italic-styles/"><u>Chat Charisma: Enhancing with Bold and Italic Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-expansion-a-future-headline/"><u>Cryptocurrency's Expansion: A Future Headline?</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-a-closer-look-at-facebook-files/"><u>Debunking Myths: A Closer Look at Facebook Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-calls-for-halt-to-facebooks-whatsapp-data-harvesting/"><u>Germany Calls for Halt to Facebook's WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/gopro-hero9-black-unveiled-quality-meets-cost/"><u>GoPro HERO9 Black Unveiled - Quality Meets Cost</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-6-plus-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 6 Plus</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-step-by-step-guide-for-using-zoom-via-gmail/"><u>In 2024, Step-by-Step Guide for Using Zoom via Gmail</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-connectivity-facebook-unveils-new-subscription-link-methods/"><u>Innovating Connectivity: Facebook Unveils New Subscription Link Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-reconnection-on-social-networks/"><u>Navigating Reconnection on Social Networks</u></a></li>
+<li><a href="https://win11.techidaily.com/redefining-monitor-clarity-on-windows-11/"><u>Redefining Monitor Clarity on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
+</ul></div>
 

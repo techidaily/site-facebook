@@ -1,7 +1,7 @@
 ---
 title: "The Invisible Networker: Eliminating Public View of Fb Stories"
-date: 2024-08-08T11:24:14.128Z
-updated: 2024-08-09T11:24:14.128Z
+date: 2025-01-07T17:42:42.055Z
+updated: 2025-01-12T20:25:22.848Z
 tags:
   - facebook
 categories:
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/962100c4bb1cf841eba9a73f110c7891af5a14d4c
 
  Related:[How to Hide Your Social Media Profiles From Bullies](https://www.makeuseof.com/tag/how-to-hide-your-social-media-profiles/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Hide Facebook Posts With the Archive Feature
 
  Depending on the number of posts you'd like to hide, you can choose between archiving individual posts or bulk-archiving them.
@@ -41,9 +45,6 @@ This guide will show you how to do both.
 
 Follow the steps below to archive a post on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![screen showing facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile-page.jpg)
 
 ![screen showing move to archive on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-move-to-archive-on-facebook.jpg)
@@ -58,27 +59,19 @@ Close
  This will immediately remove the post from your timeline, and you can only access it through the archive folder.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Archive Facebook Posts in Bulk
 
 Here's how you can archive multiple posts at once:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screen showing navigation to activity log on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-activity-log-on-Facebook.jpg)
 
 ![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
 
 Close
@@ -91,6 +84,10 @@ Close
 
 This will immediately move the posts to your archive.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Restore Archived Posts on Facebook
 
 Here's how to restore archived posts on Facebook:
@@ -99,10 +96,11 @@ Here's how to restore archived posts on Facebook:
 
 ![screen showing navigation to archive page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-archive-page-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screen showing how to restore archived post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-restore-archived-post-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -115,22 +113,20 @@ Close
  The process is very similar on the web version of Facebook—just look out for the ellipsis and corresponding action.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Keep Your Memories Away From Prying Eyes
 
  If you want to hide old posts on Facebook but at the same time don't want to delete them, go ahead and archive them.
 
  The archived posts will only be accessible through your Archive page, and others can't see them. You can always restore an archived post anytime in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +135,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-quick-hacks-for-ensuring-visual-discretion-in-photos/"><u>[New] Quick Hacks for Ensuring Visual Discretion in Photos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boost-video-engagement-top-8-youtube-ranks-unveiled/"><u>[Updated] Boost Video Engagement Top 8 YouTube Ranks Unveiled</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-cut-to-perfection-innovative-video-edits-on-windows-11-photos/"><u>[Updated] In 2024, Cut to Perfection Innovative Video Edits on Windows 11 Photos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leveraging-fb-platforms-for-public-health-initiatives/"><u>[Updated] Leveraging FB Platforms for Public Health Initiatives</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchats-creative-frontier-mastering-more-than-120-stories-with-individual-flair-for-2024/"><u>[Updated] Snapchat's Creative Frontier Mastering More than 120 Stories with Individual Flair for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-youtube-revenue-the-unfavorable-guidelines-for-2024/"><u>[Updated] YouTube Revenue The Unfavorable Guidelines for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-transformation-and-future-of-meta-platforms/"><u>Beyond Social Media: The Transformation and Future of Meta Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/easy-guide-to-install-winx-youtube-downloader-beginner-friendly-tutorial/"><u>Easy Guide to Install WinX YouTube Downloader - Beginner-Friendly Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/guaranteeing-your-snaps-stay-off-public-sight/"><u>Guaranteeing Your Snaps Stay Off Public Sight</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-step-by-step-editing-and-enhancing-your-youtube-content/"><u>In 2024, Step-by-Step Editing and Enhancing Your YouTube Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-intimacy-facebooks-embrace-by-instagram/"><u>Interactive Intimacy: Facebook's Embrace by Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-silence-no-more-comments-on-your-online-sharing/"><u>Master Silence: No More Comments on Your Online Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-abrupt-social-media-disruptions/"><u>Navigating Through Abrupt Social Media Disruptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-to-safety-how-facebook-users-purchased-oculus-q2/"><u>Resetting to Safety - How Facebook Users Purchased Oculus Q2</u></a></li>
+<li><a href="https://facebook.techidaily.com/skirting-sophisticated-social-swindles-with-ease/"><u>Skirting Sophisticated Social Swindles with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dawn-of-meta-facebook-redefines-its-corporate-identity/"><u>The Dawn of Meta: Facebook Redefines Its Corporate Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-to-inconspicuous-social-media-applause/"><u>The Secret to Inconspicuous Social Media Applause</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-and-fixing-call-of-duty-warzone-pc-stability-for-a-flawless-gaming-experience-202n/"><u>Troubleshooting and Fixing Call of Duty Warzone PC Stability for a Flawless Gaming Experience (202N)</u></a></li>
+</ul></div>
 

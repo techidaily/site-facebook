@@ -1,7 +1,7 @@
 ---
 title: Mastering Visual Privacy on Facebook
-date: 2024-08-08T11:24:48.646Z
-updated: 2024-08-09T11:24:48.646Z
+date: 2025-01-09T19:51:58.274Z
+updated: 2025-01-12T23:53:16.088Z
 tags:
   - facebook
 categories:
@@ -32,12 +32,13 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Inline Privacy Controls
 
@@ -50,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
  You have six options to choose from:**Public** ,**Friends** ,**Friends except** (to exclude some people),**Specific friends** ,**Only me** , and**Custom** .
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Old Photos
 
@@ -77,9 +82,6 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
 ### Pro Tip: Use the Activity Log
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
@@ -87,8 +89,9 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -101,36 +104,31 @@ thumbnail: https://thmb.techidaily.com/742c07b37bc56bb3aebc8573a3c5f52e5aeacf6ca
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Tag Suggestions
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +137,19 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-cloudsafe-experts-opinion/"><u>[New] CloudSafe Experts Opinion</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-story-an-easy-guide-to-screen-recording-for-2024/"><u>[New] Instagram Story An Easy Guide to Screen Recording for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-streamline-your-multi-tasking-pip-settings-in-safari-for-2024/"><u>[New] Streamline Your Multi-Tasking PIP Settings in Safari for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unveiling-the-illusion-how-genuine-growth-is-stifled-by-shams/"><u>[New] Unveiling the Illusion How Genuine Growth Is Stifled by Shams</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfect-your-mobile-photography-with-targeted-blurs/"><u>[Updated] Perfect Your Mobile Photography with Targeted Blurs</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-writing-and-publishing-on-facebook-multi-lang/"><u>Best Practices for Writing and Publishing on Facebook (Multi-Lang)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/conversion-crisis-top-alternatives-to-download-when-convert2mp3-fails/"><u>Conversion Crisis: Top Alternatives to Download When Convert2MP3 Fails</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/syncopated-sing-sessions-tiktok-style/"><u>Syncopated Sing-Sessions TikTok Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-sharing-3d-facebook-photos/"><u>The Ultimate Guide to Sharing 3D Facebook Photos</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-realme-c67-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Realme C67 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vk-the-russian-social-networks-essentials/"><u>Unveiling VK: The Russian Social Network's Essentials</u></a></li>
+</ul></div>
 

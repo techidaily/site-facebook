@@ -1,7 +1,7 @@
 ---
 title: Deciphering Who’s in Your FB Blacklist
-date: 2024-07-29T07:42:34.901Z
-updated: 2024-07-30T07:42:34.901Z
+date: 2025-01-07T22:43:21.372Z
+updated: 2025-01-12T17:09:24.295Z
 tags:
   - facebook
 categories:
@@ -20,19 +20,24 @@ thumbnail: https://thmb.techidaily.com/29ac8237603a8a16889982067f296c3f071e4f84b
  That's where this guide comes in. In this article, we will show you how to view the list of people you have blocked on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -46,15 +51,13 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to View Your Blocked List on the Web
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -65,9 +68,6 @@ Close
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## Can People Tell if You've Blocked Them on Facebook?
 
  People will not be notified when you block them on Facebook. However, there are[ways to figure out if someone has blocked you on Facebook](https://www.makeuseof.com/tag/who-blocked-me-on-facebook/) .
@@ -77,20 +77,18 @@ Close
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Checking Your Facebook Blocked List
 
  It's fairly easy to view your blocked list on both the mobile app and web browser. It's important to periodically check this list to make sure you're not blocking people accidentally or by mistake. If you do find someone who shouldn't be there, simply unblock them with a click of a button. And if you want to re-establish a connection, go ahead and send them a friend request.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -99,4 +97,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-hues-harmony-crafting-colorful-artistry/"><u>[Updated] 2024 Approved Hues Harmony Crafting Colorful Artistry</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-play-your-srt-files-easily-winmac-tips/"><u>[Updated] 2024 Approved Play Your SRT Files Easily Win/Mac Tips</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1-in-depth-evaluation-affordable-quality-and-rich-functions-in-the-keychron-c3-pro-wired-mechanical-keyboard/"><u>1. In-Depth Evaluation: Affordable Quality and Rich Functions in the Keychron C3 Pro Wired Mechanical Keyboard</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/captivating-cherry-blossom-visual-content-images-photos-and-wallpaper-collections-from-yl-software/"><u>Captivating Cherry Blossom Visual Content: Images, Photos, and Wallpaper Collections From YL Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-how-content-is-screened-by-facebook/"><u>Decoding How Content Is Screened by Facebook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-iphone-scaling-images-quickly/"><u>Mastering iPhone Scaling Images Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-leads-facebooks-customized-mobile-payments-exceeding-expectations/"><u>Personalization Leads: Facebook's Customized Mobile Payments Exceeding Expectations</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-the-significant-date-of-my-digital-enlightenment-facebook/"><u>Seeking the Significant Date of My Digital Enlightenment: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-guide-updating-your-facebook-birthday/"><u>Simple Guide: Updating Your Facebook Birthday</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-describing-photos-on-popular-networks/"><u>Strategies for Describing Photos on Popular Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rationale-behind-multiplying-user-identities-in-a-single-facebook-profile/"><u>The Rationale Behind Multiplying User Identities in a Single Facebook Profile</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-user-manual-for-reading-with-amazons-latest-kindle-paperwhite-model/"><u>The Ultimate User Manual for Reading with Amazon's Latest Kindle Paperwhite Model</u></a></li>
+<li><a href="https://win-bits.techidaily.com/ultimate-guide-to-choosing-the-best-software-for-bitlocker-drive-encryption-restoration-on-various-windows-versions/"><u>Ultimate Guide to Choosing the Best Software for BitLocker Drive Encryption Restoration on Various Windows Versions</u></a></li>
+</ul></div>
 

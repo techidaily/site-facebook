@@ -1,7 +1,7 @@
 ---
 title: Revolutionize Your Social Media Routine - Best Fb Configs
-date: 2024-12-29T18:39:43.438Z
-updated: 2025-01-06T05:18:15.355Z
+date: 2025-01-08T19:39:11.088Z
+updated: 2025-01-12T17:32:08.932Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 ![Shortcut Bar and Notification Dots Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Bar-and-Notification-Dots-Settings-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -41,10 +41,6 @@ Close
  When you open your Facebook app, youwill see a shortcut bar at the top with links to Home, Watch, Marketplace, and others. You can[customize this Facebook shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) according to your preferences.
 
  Whether you want to remove the red notification dots from the bar or the Marketplace shortcut, you can do so from the settings. Go to**Settings & Privacy > Settings > Shortcuts,** and here you can customize both the**Shortcut Bar** and**Notifications Dots** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Adjust the Video Quality and Autoplay Options
 
@@ -76,17 +72,21 @@ Close
 
  To access the screen time report, go to **Settings & Privacy > Settings > Preferences > Your Time on Facebook > See Your Time** . Here you’ll see an app usage graph, and you can toggle on the**Weekly Update** option to receive automated weekly updates.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Turn On the Quiet Mode and Daily Time Reminders
 
 ![Your Time on Facebook Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Manage Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Manage-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -98,18 +98,18 @@ Close
 
  In the same menu, you can also choose the amount of time you want to spend on Facebook through Daily Time Reminder. As the name suggests, this feature sends you a reminder once you have used the app for the specified duration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Toggle Dark Mode On or Off
 
 ![Dark Mode Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Dark Mode Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Settings-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -149,10 +149,14 @@ Close
 ![Media-Settings-Highlighted-in-the-Facebook-App-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Links Open Externally Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Links-Open-Externally-Setting-Highlighted-in-the-Facebook-App.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -160,20 +164,20 @@ Close
 
  To enable this feature, go to **Settings & Privacy > Settings > Preferences > Media** . Scroll to the bottom and check the**Links Open Externally** option. Now every time you open a link, it will redirect you to your default phone browser.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. View Your Wi-Fi and Cellular Performance
 
 ![WiFi and Cellular Performance Option Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/WiFi-and-Cellular-Performance-Option-Highlighted-in-the-Facebook-App.jpg)
 
 ![WiFi Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/WiFi-Information-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Cellular Network Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Cellular-Network-Information-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -184,25 +188,21 @@ Close
 
  Furthermore, you can manage the network-related notifications and location settings by tapping on the**cog icon** in the top-right corner.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10\. Adjust Your Facebook Reels Settings
 
 ![Reels Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 ![Reels Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Settings-in-the-Facebook-App.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Close
 
  The Facebook app allows you to create and watch short videos called Reels. The app enables you to manage your Reels’ audience and the sharing options through the settings.
 
  To access these options, go to **Settings & Privacy > Settings > Audience and Visibility > Reels** . Here, you can restrict your Reels to your friend list or to specific friends only. You can also restrict your audience from sharing your reels. If you want, you can also[stop seeing reels on Facebook](https://www.makeuseof.com/how-to-stop-seeing-reels-on-facebook/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Fine Tune Your Mobile Facebook Experience
 
@@ -223,24 +223,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-top-5-high-quality-online-meeting-capture-devices/"><u>[New] Top 5 High-Quality Online Meeting Capture Devices</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-unlocking-the-secrets-of-profitability-on-vimeo-platform-for-2024/"><u>[New] Unlocking the Secrets of Profitability on Vimeo Platform for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-enhancing-visual-impact-editing-videos-for-instagram/"><u>[Updated] Enhancing Visual Impact Editing Videos for Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-era-begins-six-transformative-aspects-of-fbs-metaverse/"><u>A New Era Begins: Six Transformative Aspects of FB's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/ban-lift-rebuilding-old-social-ties/"><u>Ban Lift: Rebuilding Old Social Ties</u></a></li>
-<li><a href="https://facebook.techidaily.com/clandestine-continuity-delving-into-facebooks-stealthy-wrist-tech/"><u>Clandestine Continuity: Delving Into Facebook’s Stealthy Wrist Tech</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/deciphering-ai-slang-your-comprehensive-guide-to-29-important-ai-concepts/"><u>Deciphering AI Slang: Your Comprehensive Guide to 29 Important AI Concepts</u></a></li>
-<li><a href="https://facebook.techidaily.com/englands-football-giants-disavow-online-platforms-for-mental-wellness/"><u>England's Football Giants Disavow Online Platforms for Mental Wellness</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-obtain-the-latest-drivers-for-your-canon-mf4800-printer/"><u>How to Obtain the Latest Drivers for Your Canon MF4800 Printer</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-novatech-series-unified-4k-all-in-one-workstations/"><u>In 2024, NovaTech Series Unified 4K, All-in-One Workstations</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/landing-your-dream-it-job-at-microsoft-expert-tips-and-advice-featured-on-zdnet/"><u>Landing Your Dream IT Job at Microsoft: Expert Tips and Advice Featured on ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
-<li><a href="https://facebook.techidaily.com/restricting-access-to-in-app-internet-via-facebook/"><u>Restricting Access to In-App Internet via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaking-up-tech-monopolies-why-governments-step-in/"><u>Shaking Up Tech Monopolies: Why Governments Step In</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/the-complete-guide-to-captivating-your-audience-on-snapchat-for-2024/"><u>The Complete Guide to Captivating Your Audience on Snapchat for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-to-craft-share-worthy-content-the-facebook-way/"><u>Tips to Craft Share-Worthy Content: The Facebook Way</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/king-youtube-success-elite-video-tagging-secrets/"><u>Unlocking YouTube Success Elite Video Tagging Secrets</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-economical-hardware-peak-performance-via-obs/"><u>[New] In 2024, Economical Hardware - Peak Performance via OBS</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-best-music-live-streaming-services/"><u>[Updated] Best Music Live Streaming Services</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-sony-s6700-updated-summary-unpacked/"><u>[Updated] Sony S6700 Updated Summary Unpacked</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-how-to-change-voice-on-ps5ps4-software-and-hardware-solutions-here/"><u>2024 Approved How to Change Voice on PS5/PS4? Software & Hardware Solutions Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/decluttering-discussions-keep-politics-at-bay-on-facebook/"><u>Decluttering Discussions: Keep Politics at Bay on Facebook</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/demystifying-the-world-of-youtube-shorts-for-2024/"><u>Demystifying the World of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-breakdown-of-every-action-on-your-facebook-page/"><u>Detailed Breakdown of Every Action on Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-music-spotify-miniplayer-in-facebook-app/"><u>Dive Into Music: Spotify Miniplayer in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/dominion-of-thought-metas-global-ai-titan-emerges/"><u>Dominion of Thought: Meta's Global AI Titan Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-for-social-media-recruitment/"><u>Effective Strategies for Social Media Recruitment</u></a></li>
+<li><a href="https://techidaily.com/tech-giant-apple-advocates-for-widespread-us-right-to-repair-act/"><u>Tech Giant Apple Advocates for Widespread U.S. Right-to-Repair Act</u></a></li>
 </ul></div>
 

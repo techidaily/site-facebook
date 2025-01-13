@@ -1,7 +1,7 @@
 ---
 title: "Privacy Implications: The Aftermath of Facial ID Removal on Social Media"
-date: 2024-08-08T11:24:15.999Z
-updated: 2024-08-09T11:24:15.999Z
+date: 2025-01-06T23:55:18.370Z
+updated: 2025-01-12T22:44:23.931Z
 tags:
   - facebook
 categories:
@@ -20,22 +20,17 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
  So what does this mean for you? And how might it affect your security?
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Did Facebook Facial Recognition Do?
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![A woman sitting at desk in front of a laptop while holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-front-of-laptop-holding-phone.jpg)
 
  Facebook used facial recognition for several purposes. For example, the technology helped generate image descriptions for people who are blind or visually impaired, helping them to know if a college classmate or co-worker was in a picture.
 
  There’s also a longtime Facebook feature that gave users automatic notifications when friends posted photos featuring them. Similarly, it suggested who people should tag when uploading photos. Facial recognition worked in the background in those cases.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## What’s Changing With Facebook Facial Recognition?
 
  The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying[templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
@@ -43,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Facebook Still Use Facial Recognition?
 
  In short,[Facebook says](http://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/) it will no longer rely on facial recognition technology to detect when people appear in the site’s content. However, the company is not leaving facial recognition behind. Instead, it intends to keep using the technology in certain instances.
@@ -54,8 +50,9 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will This Change Affect Facebook’s Public Perception?
 
  Numerous damaging allegations about Facebook’s algorithms and how they encourage engagement have put the company in the spotlight for all the wrong reasons.
@@ -70,12 +67,17 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## No Major Security Improvements Here
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -83,14 +85,11 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  Since people will still opt in to future facial recognition features, it’s critical they read the details before activating anything new on their profiles.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -99,4 +98,26 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-pioneering-innovative-webcam-functions-for-2024/"><u>[New] Pioneering Innovative Webcam Functions for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dominating-the-youtube-sphere-key-strategies-for-top-tier-presence-for-2024/"><u>[Updated] Dominating the YouTube Sphere Key Strategies for Top-Tier Presence for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-exclusive-catalog-budget-friendly-image-treasuries-online/"><u>[Updated] In 2024, Exclusive Catalog Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirming-the-authenticity-of-(securityfacebookmailcom)-as-fbs-safety-mail/"><u>Confirming the Authenticity of @<security@facebookmail.com> as FB's Safety Mail</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquer-fb-surveillance-using-the-off-fb-toolset/"><u>Conquer FB Surveillance Using the Off-FB Toolset</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-failure-of-fb-notifications-to-load/"><u>Fixing the Failure of FB Notifications to Load</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-internship-to-impact-unveiling-the-metamate-identity/"><u>From Internship to Impact: Unveiling the Metamate Identity</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-a-guide-to-todays-most-popular-tiktok-acts/"><u>In 2024, A Guide to Today's Most Popular TikTok Acts</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-profitability-in-production-starting-a-successful-vlog/"><u>In 2024, Profitability in Production Starting a Successful Vlog</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/la-solution-definitive-pour-recuperer-les-fichiers-disparus-post-chkdsk-suivez-ces-5-astuces/"><u>La Solution Definitive Pour Récupérer Les Fichiers Disparus Post Chkdsk : Suivez Ces 5 Astuces</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/masterful-phone-apps-altering-speech-patterns-for-2024/"><u>Masterful Phone Apps Altering Speech Patterns for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/maximizing-privacy-and-security-a-complete-guide-to-operating-opera-vpn-digital-trends/"><u>Maximizing Privacy and Security: A Complete Guide to Operating Opera VPN | Digital Trends</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-outage-alert-facebook-whatsapp-and-instagram-offline/"><u>Platform Outage Alert: Facebook, WhatsApp & Instagram Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/revel-in-social-network-supporters/"><u>Revel in Social Network Supporters</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-ultimate-audio-editing-playbook-mastering-the-use-of-keyframes-for-dynamic-filmmaking-in-final-cut-pro-x/"><u>The Ultimate Audio Editing Playbook Mastering the Use of Keyframes for Dynamic Filmmaking in Final Cut Pro X</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/tips-and-tricks-voice-overseas-that-elevate-your-film-projects-for-2024/"><u>Tips & Tricks Voice Overseas That Elevate Your Film Projects for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-no-cost-applications-for-social-media-supremacy/"><u>Top Ten No-Cost Applications for Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-embedded-web-experience/"><u>Turn Off Facebook's Embedded Web Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-growth-on-facebook-the-strength-of-pages-over-personal/"><u>Unlocking Brand Growth on Facebook: The Strength of Pages Over Personal</u></a></li>
+</ul></div>
 

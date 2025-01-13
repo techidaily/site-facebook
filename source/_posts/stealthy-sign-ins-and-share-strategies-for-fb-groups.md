@@ -1,7 +1,7 @@
 ---
 title: Stealthy Sign-Ins and Share Strategies for FB Groups
-date: 2024-08-08T11:24:03.755Z
-updated: 2024-08-09T11:24:03.755Z
+date: 2025-01-05T21:09:03.272Z
+updated: 2025-01-12T16:26:56.349Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/7c4b3f31474d59dd334b247ce3128a18563012870
 
  Here’s all you need to know about anonymous posting, along with a walkthrough for using it in a Facebook group.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Brief Background on Anonymous Group Posts
 
  In June 2020, [Facebook](https://www.facebook.com/community/whats-new/new-parenting-group-type/) announced the introduction of a new group type for parents in its community. It came with some features, one of which was the ability to share anonymous group posts.
@@ -26,34 +30,24 @@ thumbnail: https://thmb.techidaily.com/7c4b3f31474d59dd334b247ce3128a18563012870
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Post Anonymously in a Facebook Group
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![create an anonymous post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-post.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -70,14 +64,9 @@ Close
 **Note:** This feature is only available in groups set as parenting groups.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What You Need to Know About Anonymous Posts
 
  All anonymous posts are subject to approval by admins, even if post approval is turned off on the group. This is understandable, as it helps keep spammers at bay.
@@ -88,10 +77,6 @@ Close
 
  Some post formats are disabled for anonymous posts to protect you from accidentally exposing your identity. You can’t go live or tag people in the Anonymous Post interface.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Now You Know How to Share an Anonymous Post on Facebook
 
  Posting anonymously in a Facebook group is an effective way to share information and express opinions, without revealing your identity to group members.
@@ -100,14 +85,11 @@ The ultimate burning program for all your needs!</a>
 
  You can think of it as an effective way to get your voice heard, but without the pressure of being seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +98,22 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-balancing-creativity-and-monetization-in-youtube-shorts/"><u>[New] 2024 Approved Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-finding-your-portal-to-youtubes-video-mastery-hub/"><u>[New] In 2024, Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-iphone-burst-photography/"><u>[New] Mastering iPhone Burst Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-film-star-access-pass-talent-release-for-2024/"><u>[Updated] Film Star Access Pass - Talent Release for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/camouflaging-connections-in-facebook/"><u>Camouflaging Connections in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-deleting-fb-watch-history-and-its-benefits/"><u>Clearing Up: Deleting FB Watch History & Its Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-access-to-deceased-friends-facebook-profile-content/"><u>Controlling Access to Deceased Friends' Facebook Profile Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-digital-life-the-complete-fb-safety-guidebook/"><u>Fortify Your Digital Life: The Complete FB Safety Guidebook</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-magic-vs-2-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor Magic Vs 2</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/movavimod-diy/"><u>Movaviを使ったコストフリーMOD動画編集 - DIYガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-screen-for-interactive-video-conferences/"><u>Optimizing Your Screen for Interactive Video Conferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/revised-tips-youngsters-advised-against-insta-use/"><u>Revised Tips: Youngsters Advised Against Insta Use</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210055325-9781945252723-synchronicity/"><u>SYNCHRONICITY | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-to-clear-your-facebook-chronicle/"><u>The Ultimate Strategy to Clear Your Facebook Chronicle</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/yl-software-tutorial-advanced-image-video-and-document-password-protection-techniques/"><u>YL Software Tutorial: Advanced Image, Video and Document Password Protection Techniques</u></a></li>
+</ul></div>
 

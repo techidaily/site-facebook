@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2024-12-31T06:15:59.786Z
-updated: 2025-01-06T07:52:08.323Z
+date: 2025-01-11T20:01:44.191Z
+updated: 2025-01-12T22:26:12.785Z
 tags:
   - facebook
 categories:
@@ -44,17 +44,13 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
-![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
 Close
 
@@ -68,6 +64,10 @@ Here’s how you add alt text to images while uploading them:
 6. Type in desired alt text and hit**Done** .
 
  There you have it. Your photos will now upload with your desired alt text.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Add Alt Text to Facebook Images on the Web
 
@@ -90,15 +90,19 @@ Here’s how you add alt text to images while uploading them:
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -113,10 +117,6 @@ Close
  Using the web version of Facebook, the process is very similar—just look out for the ellipsis when you view the image you want to add alt text to.
 
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Make Your Facebook Photos More Accessible
 
@@ -139,24 +139,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-mastering-facebook-livestreams-four-easy-steps/"><u>[New] 2024 Approved Mastering Facebook Livestreams Four Easy Steps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-optimize-content-delivery-on-instagram-with-these-top-8-tools/"><u>[Updated] 2024 Approved Optimize Content Delivery on Instagram with These Top 8 Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-best-free-photo-enhancer-online-and-app-for-mobile-phone/"><u>[Updated] Best Free Photo Enhancer Online and App for Mobile Phone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-beyond-brand-promotion-real-insights-into-instagram-reels/"><u>2024 Approved Beyond Brand Promotion Real Insights Into Instagram Reels</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/constructing-compelling-trailer-crafts/"><u>Constructing Compelling Trailer Crafts</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-survival-scenarios-post-fb-demise/"><u>Data Survival Scenarios Post-FB Demise</u></a></li>
-<li><a href="https://facebook.techidaily.com/harmonize-conversations-with-facebooks-new-sounds-for-messaging/"><u>Harmonize Conversations with Facebook's New Sounds for Messaging</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-link-your-social-accounts-on-xbox/"><u>How to Link Your Social Accounts on Xbox</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-20-proplus-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 20 Pro+ Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-12-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi 12 5G Phone FRP Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/natures-gift-to-facebook-entire-operations-on-renewables/"><u>Nature's Gift to Facebook: Entire Operations on Renewables</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
-<li><a href="https://games-able.techidaily.com/prime-mouse-comforts-for-playing/"><u>Prime Mouse Comforts for Playing</u></a></li>
-<li><a href="https://article-posts.techidaily.com/pushing-boundaries-spotlight-on-top-6-digital-innovators-for-2024/"><u>Pushing Boundaries Spotlight on Top 6 Digital Innovators for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/sculpting-social-media-exposure-the-art-of-facebooks-privacy-lists/"><u>Sculpting Social Media Exposure: The Art of Facebook's Privacy Lists</u></a></li>
-<li><a href="https://driver-error.techidaily.com/sound-error-eliminated-on-hd-bus/"><u>Sound Error Eliminated on HD Bus</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-planner-softwares-a-guide-to-scheduling-success/"><u>Top Planner Softwares: A Guide to Scheduling Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/tweaking-childrens-data-a-parents-guide-to-messenger-kids/"><u>Tweaking Children's Data: A Parent's Guide to Messenger Kids</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-understanding-the-essence-of-luts-for-professional-photography-for-2024/"><u>[Updated] Understanding the Essence of LUTs for Professional Photography for 2024</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-oppo-find-n3-flip-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-dissolution-of-face-tech-with-fb/"><u>Decoding Meta's Dissolution of Face Tech with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dwelling-pinpointing-the-top-20-social-media-havens/"><u>Digital Dwelling: Pinpointing the Top 20 Social Media Havens</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-facebooks-impact-analysis/"><u>Disconnecting: Facebook's Impact Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/downtime-dilemma-facebook-whatsapp-and-instagram-down/"><u>Downtime Dilemma: Facebook, WhatsApp & Instagram Down?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/effortless-tips-for-instagram-collage-creation/"><u>Effortless Tips for Instagram Collage Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-platforms-reach-with-ripl-methods/"><u>Elevate Your Platform's Reach with Ripl Methods</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-step-into-sound-design-crafting-and-integrating-whatsapp-ringtone-on-devices/"><u>In 2024, Step Into Sound Design Crafting and Integrating WhatsApp Ringtone on Devices</u></a></li>
+<li><a href="https://common-error.techidaily.com/innovative-solutions-to-get-your-ps4-microphone-working-again/"><u>Innovative Solutions to Get Your PS4 Microphone Working Again</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/reverse-action-flipping-your-iphone-video-footage-for-2024/"><u>Reverse Action Flipping Your iPhone Video Footage for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/understanding-the-importance-of-addressing-legacy-technology-lessons-from-a-failed-system-upgrade/"><u>Understanding the Importance of Addressing Legacy Technology: Lessons From a Failed System Upgrade</u></a></li>
 </ul></div>
 

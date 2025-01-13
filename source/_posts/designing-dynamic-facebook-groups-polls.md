@@ -1,7 +1,7 @@
 ---
 title: Designing Dynamic Facebook Groups Polls
-date: 2024-07-29T07:41:44.275Z
-updated: 2024-07-30T07:41:44.275Z
+date: 2025-01-06T17:56:52.707Z
+updated: 2025-01-12T19:54:15.987Z
 tags:
   - facebook
 categories:
@@ -19,17 +19,15 @@ thumbnail: https://thmb.techidaily.com/6e2f3010b64553c858c441b2aa0463f3e8a124b61
 
  In this guide, we’ll show you how to create a poll on Facebook—specifically for posts on Pages, in Groups, and on your Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Create a Poll on a Facebook Page
 
  Facebook supports adding a poll to your Facebook Page, and this way you can collect responses from the people who follow it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Create a poll on a Facebook page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-page.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To create a poll on your page from Facebook’s desktop site:
 
@@ -46,13 +44,18 @@ To create a poll on your page from Facebook’s desktop site:
  Related: [Here's What Facebook's New Page Labels Mean](https://www.makeuseof.com/what-facebook-new-page-labels-mean/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Start a Poll in a Facebook Group
 
  You can add a poll as a post to your Facebook Groups as well. The procedure to do this is similar to how you add a poll to a Facebook Page.
 
 ![Start a poll in a Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-group.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A Group poll helps collect responses from its members. Here's how you set one up::
 
@@ -65,19 +68,20 @@ To create a poll on your page from Facebook’s desktop site:
 7. Finally, click**Post** at the bottom to publish your poll.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Post a Poll to a Facebook Story
 
  You must use Facebook’s iOS or Android app to add a poll to a Facebook Story. This is because Facebook’s desktop version doesn’t offer the option to make a poll in your Stories.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Post a poll in a Facebook story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/create-poll-facebook-story.png)
 
 ![Poll options in a Facebook Story](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/poll-options-facebook-story.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -92,21 +96,15 @@ To create a poll in a Story:
 7. When you’re done, tap**Done** at the top-right corner.
 8. Select**Share** at the bottom to share your poll in your Facebook Story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Collect Opinions With Ease Using Facebook Polls
 
  With Facebook allowing you to create polls in your Pages, Groups, and Stories, it’s easy to collect opinions about various topics from your social media following. Try it out and see how it works for yourself.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,4 +113,22 @@ To create a poll in a Story:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-projector-vs-tv-which-is-best-for-your-4k-experience/"><u>[New] Projector vs TV Which Is Best for Your 4K Experience</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-assessing-virtual-realitys-dual-facets-pros-and-cons/"><u>[Updated] 2024 Approved Assessing Virtual Reality’s Dual Facets Pros & Cons</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-fascination-on-screen-top-6-engaging-video-categories/"><u>[Updated] 2024 Approved Fascination on Screen Top 6 Engaging Video Categories</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-ultimate-iphone-manual-for-capturing-and-adjusting-pace-in-motion/"><u>[Updated] 2024 Approved The Ultimate iPhone Manual for Capturing and Adjusting Pace in Motion</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-live-feed-capture-via-obs-for-instagram-for-2024/"><u>[Updated] Live Feed Capture via OBS for Instagram for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-free-film-and-image-repository-highlights/"><u>2024 Approved Free Film and Image Repository Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-online-tests-a-stealthy-cybersecurity-menace/"><u>Are Online Tests a Stealthy Cybersecurity Menace?</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-battleground-navigating-through-emerging-us-antitrust-laws/"><u>Big Tech's Battleground: Navigating Through Emerging U.S. Antitrust Laws</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leveraging-buyselladscom-for-effective-advertising-on-your-blog/"><u>Leveraging BuySellAds.com for Effective Advertising on Your Blog</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-with-your-newsfeed-again-by-evading-unwanted-marketing/"><u>Making Friends with Your Newsfeed Again by Evading Unwanted Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-social-space-management-with-facebooks-latest-tools/"><u>Streamlining Social Space Management with Facebook's Latest Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-and-implementation-of-sleep-mode-on-messenger-kids-platform/"><u>The Importance & Implementation of Sleep Mode on Messenger Kids Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-the-tables-on-fb-with-off-facebook-activity-insight/"><u>Turn the Tables on FB with Off-Facebook Activity Insight</u></a></li>
+</ul></div>
 

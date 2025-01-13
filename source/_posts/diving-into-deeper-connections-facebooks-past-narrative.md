@@ -1,7 +1,7 @@
 ---
 title: "Diving Into Deeper Connections: Facebook’s Past Narrative"
-date: 2024-07-29T07:43:37.251Z
-updated: 2024-07-30T07:43:37.251Z
+date: 2025-01-05T16:04:00.013Z
+updated: 2025-01-12T17:50:05.740Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/69247ac14d53a4d423914a7a567f7db5686b08abe
 
 ## Diving Into Deeper Connections: Facebook’s Past Narrative
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How to See Your Friendship History on Facebook](#how-to-see-your-friendship-history-on-facebook)
@@ -22,8 +26,9 @@ thumbnail: https://thmb.techidaily.com/69247ac14d53a4d423914a7a567f7db5686b08abe
 * [Is There a Privacy Risk to Viewing Your Facebook Friendships?](#is-there-a-privacy-risk-to-viewing-your-facebook-friendships)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Viewing your friendship history on Facebook lets you see common interests and interactions with friends through a button or URL.
@@ -34,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/69247ac14d53a4d423914a7a567f7db5686b08abe
 
  Here's all you need to know about accessing your friendship history on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## How to See Your Friendship History on Facebook
 
  By viewing your friendship history on Facebook, you'll see a list of things you have in common and photos or posts you're both tagged in. There are two ways to view your Facebook friendship history: through a button on the friend's page or a custom URL.
@@ -47,17 +49,15 @@ thumbnail: https://thmb.techidaily.com/69247ac14d53a4d423914a7a567f7db5686b08abe
 2. Click the**three dots icon** near the message button.
 3. Click**See Friendship** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Profile Page in App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-profile-page-in-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -70,25 +70,14 @@ Close
 
  You should now be looking at a page that shows any posts, events, photos, and videos the two people are tagged in. At the top it will say,**You and \[Your Friend\]** .
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -96,6 +85,10 @@ Close
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
  You can also see the friendship history between your account and memorialized accounts on Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
@@ -105,14 +98,11 @@ Close
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +111,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-channeling-tweets-to-facebook-viewers-efficiently/"><u>[New] 2024 Approved Channeling Tweets to Facebook Viewers Efficiently</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-essential-list-of-top-10-costless-apps-for-srt-files/"><u>[Updated] In 2024, Essential List of Top 10 Costless Apps for Srt Files</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-premier-manual-leveraging-mobizens-full-potential-for-mobile-capture/"><u>2024 Approved Premier Manual Leveraging Mobizen's Full Potential for Mobile Capture</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/accelerating-livestreams-on-periscope-made-easy/"><u>Accelerating Livestreams on Periscope Made Easy</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-profits-with-top-4-business-metadata-strategies/"><u>Boosting Profits with Top 4 Business Metadata Strategies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/re-it-right-essential-camera-lenses-for-video-blogging-for-2024/"><u>Capture It Right Essential Camera Lenses for Video Blogging for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-joy-in-digital-connections-9-reasons-to-love-social-media/"><u>Discovering Joy in Digital Connections: 9 Reasons to Love Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-a-world-without-social-media/"><u>Exploring a World Without Social Media</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-acer-predator-triton-300-se-stack-up-insider-gaming-laptop-reviews-on-portability-value-and-performance/"><u>How Does the Acer Predator Triton 300 SE Stack Up? – Insider Gaming Laptop Reviews on Portability, Value, and Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-competition-us-antitrust-law-updates/"><u>Redefining Competition: U.S. Antitrust Law Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-newest-sponsored-features-explore-both-platforms/"><u>Social Media's Newest Sponsored Features Explore Both Platforms</u></a></li>
+<li><a href="https://some-tips.techidaily.com/taco-bell-introduces-artificial-intelligence-for-drive-thru-orders/"><u>Taco Bell Introduces Artificial Intelligence for Drive-Thru Orders</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-facebook-polling-in-communities/"><u>The Ultimate Guide to Facebook Polling in Communities</u></a></li>
+<li><a href="https://some-tips.techidaily.com/uniting-realms-a-comparative-study-of-mr-ar-and-vr-technologies-for-2024/"><u>Uniting Realms A Comparative Study of MR, AR, and VR Technologies for 2024</u></a></li>
+</ul></div>
 

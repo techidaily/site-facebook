@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2025-01-04T00:31:02.609Z
-updated: 2025-01-06T01:43:50.341Z
+date: 2025-01-07T17:15:32.151Z
+updated: 2025-01-12T21:36:37.069Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -40,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 ![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
 4. Select the**Videos you've watched** option.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
 That's it. Here you will find all the recently watched videos.
@@ -47,6 +47,10 @@ That's it. Here you will find all the recently watched videos.
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
 
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
@@ -59,10 +63,6 @@ That's it. Here you will find all the recently watched videos.
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
@@ -73,10 +73,14 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
@@ -92,10 +96,6 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
@@ -104,16 +104,16 @@ Close
 
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 1. Open the Activity log window on your Android or iOS device.
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -134,22 +134,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-snapback-success-the-secrets-to-loops-on-instagram/"><u>[Updated] 2024 Approved Snapback Success The Secrets to Loops on Instagram</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-quick-and-easy-guide-enhance-youtube-shorts-with-new-images/"><u>[Updated] Quick & Easy Guide Enhance YouTube Shorts with New Images</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-navigating-spotifys-ad-landscape-a-beginners-guide/"><u>2024 Approved Navigating Spotify's Ad Landscape A Beginner's Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/inners-tutorial-how-to-insert-on-screen-dialogue-in-video-formats-for-2024/"><u>A Beginner's Tutorial How to Insert On-Screen Dialogue in Video Formats for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-the-value-of-online-dislikes/"><u>Assessing the Value of Online Dislikes</u></a></li>
-<li><a href="https://facebook.techidaily.com/concealed-choices-how-interfaces-steal-privacy/"><u>Concealed Choices: How Interfaces Steal Privacy</u></a></li>
-<li><a href="https://solve-news.techidaily.com/cookiebot-enabled-boost-your-websites-traffic-with-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Boost Your Website's Traffic with Advanced Tracking Solutions</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/cutting-edge-ai-for-companionship-the-chatgpt-solution/"><u>Cutting-Edge AI for Companionship: The ChatGPT Solution</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-leading-alternative-to-apple-and-tile-expert-evaluation-of-the-best-wallet-airtags/"><u>Discover the Leading Alternative to Apple and Tile: Expert Evaluation of the Best Wallet AirTags</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissolving-the-digital-duo-instagram-and-facebook-separation/"><u>Dissolving the Digital Duo: Instagram and Facebook Separation</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-social-medias-negative-feedback-mechanism/"><u>Evaluating Social Media's Negative Feedback Mechanism</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/expressoes-de-bom-dia-a-boa-noite-no-brasil-lusofono/"><u>Expressões De Bom Dia a Boa Noite No Brasil Lusófono</u></a></li>
-<li><a href="https://facebook.techidaily.com/gear-up-your-guide-to-the-meta-account-oversight-hub/"><u>Gear Up: Your Guide to the Meta Account Oversight Hub</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-a-step-by-step-introduction-to-ffpm/"><u>In 2024, A Step-by-Step Introduction to FFPM</u></a></li>
-<li><a href="https://facebook.techidaily.com/shooting-sports-societies-suspend-digital-outreach/"><u>Shooting Sports Societies Suspend Digital Outreach</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-4-techniques-for-identifying-new-group-trends/"><u>Top 4 Techniques for Identifying New Group Trends</u></a></li>
-<li><a href="https://facebook.techidaily.com/uk-football-faction-steps-away-from-social-media-to-combat-hate-speech/"><u>UK Football Faction Steps Away From Social Media to Combat Hate Speech</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-commanders-conclave-celebrating-the-best-of-7-total-wars/"><u>[Updated] Commanders' Conclave Celebrating the Best of 7 Total Wars</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-guide-to-embedding-on-screen-text-on-youtube-clips-for-2024/"><u>[Updated] Guide to Embedding On-Screen Text on YouTube Clips for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-transitioning-away-from-newest-sierra-version-back-to-1010/"><u>[Updated] Transitioning Away From Newest Sierra Version Back to 10.10</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrease-personalized-promotions-on-social-platforms/"><u>Decrease Personalized Promotions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/demanding-action-from-social-media-leaders-against-scam-campaigns/"><u>Demanding Action From Social Media Leaders Against Scam Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-fbs-tracking-tactics-using-off-fb-toolset/"><u>Disable Fb's Tracking Tactics Using Off-FB Toolset</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-hate-button-pros-and-cons/"><u>Disabling 'Hate' Button: Pros & Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnwhileengage-top-5-revenue-generating-strategies-for-social-media/"><u>EarnwhileEngage: Top 5 Revenue-Generating Strategies for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-implement-2fa-on-facebook-platform/"><u>Easy Steps to Implement 2FA on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-privacy-game-facebooks-secure-strategies-explained/"><u>Elevate Your Privacy Game: Facebook's Secure Strategies Explained</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/immerse-in-the-world-of-gaming-download-premium-gamercat-imagery-from-yl-computing-the-leading-provider-of-custom-graphics-and-themes/"><u>Immerse in the World of Gaming: Download Premium Gamercat Imagery From YL Computing – The Leading Provider of Custom Graphics and Themes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-8-desktop-images-to-personalize-your-mbp/"><u>In 2024, Ideal 8 Desktop Images to Personalize Your MBP</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oppo-reno-11-pro-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Oppo Reno 11 Pro 5G Phones</u></a></li>
+<li><a href="https://win11.techidaily.com/keep-clicking-at-a-comfortable-rate-deactivating-mouse-speed-on-windows-11/"><u>Keep Clicking at a Comfortable Rate: Deactivating Mouse Speed on Windows 11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-navigating-and-optimizing-your-experience-with-google-gemini/"><u>Step-by-Step Tutorial: Navigating and Optimizing Your Experience with Google Gemini</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-7-best-ways-to-speed-up-your-computer/"><u>The 7 Best Ways to Speed Up Your Computer</u></a></li>
 </ul></div>
 

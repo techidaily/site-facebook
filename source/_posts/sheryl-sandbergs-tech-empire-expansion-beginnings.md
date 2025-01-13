@@ -1,7 +1,7 @@
 ---
 title: Sheryl Sandberg’s Tech Empire Expansion Beginnings
-date: 2024-08-08T11:23:25.809Z
-updated: 2024-08-09T11:23:25.809Z
+date: 2025-01-05T19:57:44.458Z
+updated: 2025-01-13T00:08:23.263Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
 
  Sandberg has seen Meta, previously Facebook, through noteworthy events—including several controversies. So, let's take a run-down of her resignation and a brief history of her role at Meta over the years.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Sheryl Sandberg Resigns From Meta
 
  Meta's second-in-command is stepping down from her position after 14 years at the helm of its operations. She announced her resignation in a lengthy Facebook post on May 2, 2022.
@@ -35,14 +32,16 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Brief History of Sheryl Sandberg's Role at Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -67,14 +66,16 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Sheryl Sandberg Is Leaving Meta
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
@@ -83,22 +84,20 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What's Next for Sheryl Sandberg?
 
  With Mark Zuckerberg's help, Sheryl Sandberg will hand over her work and transition out of the company. And while she will no longer be involved in the day-to-day running of the business, she will continue to serve on Meta's board of directors.
 
  Sandberg admitted she does not know what comes next for her in her Facebook post. However, she said she wants to focus on her foundation and philanthropic efforts, marriage, and blended family.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,4 +106,22 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-humor-hierarchy-the-20-most-popular-memes/"><u>[Updated] 2024 Approved Humor Hierarchy The 20 Most Popular Memes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-essential-enhancements-for-terria-pros/"><u>2024 Approved Essential Enhancements for Terria Pros</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/command-the-field-with-a-customized-in-game-character-voice-in-free-fire/"><u>Command the Field with a Customized In-Game Character Voice in Free Fire</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-second-life-make-a-comeback-as-we-head-into-the-metaverse/"><u>Could Second Life Make a Comeback as We Head Into the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-yourself-beyond-the-likes-and-loyalty-to-facebook/"><u>Discover Yourself Beyond the Likes and Loyalty to Facebook</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diy-tech-repairing-a-broken-razer-headset-microphone-in-five-simple-ways/"><u>DIY Tech: Repairing a Broken Razer Headset Microphone in Five Simple Ways</u></a></li>
+<li><a href="https://windows11.techidaily.com/efficiency-boost-for-winwms-excessive-graphics-use/"><u>Efficiency Boost for WinWM's Excessive Graphics Use</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-tecno-spark-20-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Tecno Spark 20 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-breaks-in-life-facebooks-timing-assistance/"><u>Optimizing Breaks in Life: Facebook’s Timing Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/photography-revolution-toolwizs-2023-app-insights-for-2024/"><u>Photography Revolution Toolwiz's 2023 App Insights for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-time-warning-for-hidden-screen-captures/"><u>Real-Time Warning for Hidden Screen Captures</u></a></li>
+<li><a href="https://win-trending.techidaily.com/troubleshooting-a-non-responsive-mouse-causes-and-solutions-insights-from-yl-computing/"><u>Troubleshooting a Non-Responsive Mouse: Causes & Solutions - Insights From YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150176344-watch-for-verdict-facebook-board-to-decide-on-presidential-block/"><u>Watch For Verdict: Facebook Board to Decide on Presidential Block.</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/whats-behind-device-based-machine-learning-implementations/"><u>What's Behind Device-Based Machine Learning Implementations?</u></a></li>
+</ul></div>
 

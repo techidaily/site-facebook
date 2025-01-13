@@ -1,7 +1,7 @@
 ---
 title: Declining Interest in iOS Data Collection Among Users
-date: 2024-07-29T07:40:34.886Z
-updated: 2024-07-30T07:40:34.886Z
+date: 2025-01-06T23:13:11.867Z
+updated: 2025-01-12T16:35:42.326Z
 tags:
   - facebook
 categories:
@@ -18,29 +18,13 @@ thumbnail: https://thmb.techidaily.com/81ac4ba09f7fbb502f897ca0c55434cc97c04fe41
  Unfortunately for Facebook, it would appear that there aren't very many people that are willing to have their app activity tracked.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Many iPhone Users Opt Into User Tracking?
 
  Analytics firm Flurry has released data on Apple's new**App Tracking Transparency** feature, which suggests that most iPhone users have chosen not to opt into app tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Users that opt into app tracking in the US](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/app-tracking-data-1.png)
 
  The report claims that only four percent of iPhone users in the US, based on a sample of 2.5 million daily active users (DAU), have chosen to opt into app tracking. When looking at users worldwide, that statistic grows to 12 percent in a sample size of 5.3 million DAU.
@@ -49,14 +33,16 @@ Key features:
 
  "This change \[every app having to ask for permission to track\] is expected to create challenges for personalized advertising and attribution, impacting the $189 billion mobile advertising industry worldwide," Flurry writes.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Users that opt into app tracking worldwide](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/app-tracking-data-2.png)
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### What Is App Tracking Transparency?
 
  Following[the release of iOS 14.5](https://www.makeuseof.com/apple-releases-ios-14-5-update-iphone-ipad-ipod-touch/) for iPhone users, apps now have to ask you for permission to track you across other apps and websites. Every time you open an app for the first time, a prompt will ask you for permission.
@@ -64,8 +50,9 @@ Key features:
  Whatever you choose, you can always adjust every app individually in your iPhone's **Settings** , under**Privacy** and then**Tracking** . There's also a global switch to allow or disallow all tracking by default.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### What Is Flurry?
 
  Owned by Verizon Media (yes, the company that's[selling Yahoo and AOL for $5 billion](https://www.makeuseof.com/verizon-selling-yahoo-aol/) ), Flurry Analytics brings aggregated insights to two billion mobile devices every month through over one million mobile apps.
@@ -75,8 +62,9 @@ Key features:
 > This data translates to accelerated revenue and growth for app developers, an improved mobile experience for consumers, and best-in-class advertising opportunities for advertisers and brands looking to reach engaged mobile audiences.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What This Opt-In Rate Could Mean
 
  You might not care about how many people choose to opt into user app tracking, but Facebook sure does.
@@ -85,14 +73,11 @@ Key features:
 
  We'll have to wait and see whether the world's most popular social media apps will start making you pay to view and publish posts. Seeing how a majority of users have turned user tracking off, it's clear that privacy is fair more important to people.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +86,22 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ndroid-centric-top-downloads-for-youtube-videos-explored/"><u>[New] Android-Centric Top Downloads for YouTube Videos Explored</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-explore-better-than-sharex-a-guide/"><u>[New] Explore Better Than ShareX - A Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-10-superior-youtube-mp3-extractors/"><u>[New] In 2024, 10 Superior YouTube Mp3 Extractors</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-essence-of-e-story-creation-techniques/"><u>[New] The Essence of E-Story Creation Techniques</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ultima-designs-analysis-pinnacle-suite-studio-2023-overview/"><u>[Updated] In 2024, Ultima Designs Analysis Pinnacle Suite Studio, 2023 Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-access-methods-for-lost-facebook-codes/"><u>Alternative Access Methods for Lost Facebook Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-growing-challenge-to-big-tech-the-new-antitrust-reality/"><u>America's Growing Challenge to Big Tech: The New Antitrust Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-hangouts-positive-interaction-tips-for-fb-friends/"><u>Chill Hangouts: Positive Interaction Tips for FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-the-path-implementing-or-rejecting-meta-ai-on-sites/"><u>Choosing the Path - Implementing or Rejecting Meta AI on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/comfort-in-conciseness-a-guide-for-comment-free-facebook-updates/"><u>Comfort in Conciseness: A Guide for Comment-Free Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/composing-your-personal-brand-visual/"><u>Composing Your Personal Brand Visual</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-tecno-spark-20-proplus-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Tecno Spark 20 Pro+ Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-reduce-microsoft-telemetry-impact-on-hard-drive-capacity-in-windows-11-systems/"><u>How to Reduce Microsoft Telemetry Impact on Hard Drive Capacity in Windows 11 Systems</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-5-ways-to-track-apple-iphone-7-plus-without-app-drfone-by-drfone-virtual-ios/"><u>In 2024, 5 Ways to Track Apple iPhone 7 Plus without App | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-closer-look-approach-to-team-collaboration/"><u>In 2024, The Closer Look Approach to Team Collaboration</u></a></li>
+</ul></div>
 

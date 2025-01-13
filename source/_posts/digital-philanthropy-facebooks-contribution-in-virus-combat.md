@@ -1,7 +1,7 @@
 ---
 title: "Digital Philanthropy: Facebook's Contribution in Virus Combat"
-date: 2024-07-29T07:40:45.753Z
-updated: 2024-07-30T07:40:45.753Z
+date: 2025-01-11T17:51:13.116Z
+updated: 2025-01-12T21:50:38.657Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/4615a0815eaaaa9b22c58e4b20231144a4af2f1f5
  In an effort to help more communities get access to the COVID-19 vaccines, Facebook announced that it's donating $5 million to the World Health Organization's (WHO)[Go Give One](https://gogiveone.org/) fundraiser. The goal of the fundraiser is to ensure that everyone gets access to the COVID-19 vaccine, including those living in developing countries.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
 
  A post on[the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
@@ -28,28 +29,31 @@ thumbnail: https://thmb.techidaily.com/4615a0815eaaaa9b22c58e4b20231144a4af2f1f5
 
  To raise money for Facebook's goal, Facebook will donate $20 to every Facebook Fundraiser created for the United Nations Foundation. This campaign will be rolled out first for fundraisers in the US, UK, Germany, and Norway.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook vaccine fundraiser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-vaccine-fundraiser.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image Credit: Facebook
 
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Also Aims to Highlight "Trusted Messengers"
 
  In the same blog post, Facebook also outlined its goal to help people affected by COVID-19 the most.
 
  Facebook is working with the Kaiser Family Foundation, BlackDoctor.org, and the National Academy of Medicine in the US to "to amplify content that features black doctors, nurses and researchers answering common questions about COVID-19 vaccines."
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
 
@@ -60,20 +64,18 @@ Image Credit: Facebook
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Fights for Vaccine Equity
 
  It looks like Facebook is trying to help promote the COVID-19 vaccines both on and off the platform. While Facebook's donation will go towards helping the most vulnerable communities receive the COVID-19 vaccine, the platform-wide vaccine campaigns will also encourage users to get vaccinated.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,4 +84,22 @@ Image Credit: Facebook
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-remote-recording-techniques-for-podcasts/"><u>[New] In 2024, Remote Recording Techniques for Podcasts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-corsair-headset-not-working/"><u>[SOLVED] Corsair Headset Not Working</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-premier-tools-to-record-your-pc-screenshots/"><u>[Updated] 2024 Approved Premier Tools to Record Your PC Screenshots</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-light-the-flame-the-best-inspiring-movie-list/"><u>2024 Approved Light the Flame The Best Inspiring Movie List</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-high-ranking-investment-for-badge/"><u>Achieve High Ranking: Investment for Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-hidden-chat-photos-messenger-screen-shot-triggers/"><u>Alert for Hidden Chat Photos: Messenger Screen Shot Triggers</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-tech-life-pausing-on-facebook/"><u>Balancing Tech Life: Pausing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/busting-the-biggest-facebook-myths-top-10-reality-checks/"><u>Busting the Biggest Facebook Myths: Top 10 Reality Checks</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metamorphosis-be-beneficial-meta-ai-meets-social-networks/"><u>Can Metamorphosis Be Beneficial: Meta AI Meets Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-control-crusade-commanding-conversations-with-facebooks-advanced-tools/"><u>Community Control Crusade: Commanding Conversations with Facebook’s Advanced Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-sleuthing-for-safety-decoding-the-9-signs-of-account-hijacking/"><u>Cyber Sleuthing for Safety: Decoding the 9 Signs of Account Hijacking</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-prompt-engineering-a-real-job-9-factors-to-consider/"><u>Is Prompt Engineering a Real Job? 9 Factors to Consider</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/1728481041548-pc-windows-10/"><u>PCへの移行 : Windows 10 ライセンスを簡単にコピーする方法</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-out-with-a-unique-streamer-identity-a-filmora-approach-for-2024/"><u>Stand Out with a Unique Streamer Identity A Filmora Approach for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/troubleshooting-guide-star-wars-jedi-fallen-order-failure-to-start/"><u>Troubleshooting Guide: Star Wars Jedi: Fallen Order Failure to Start</u></a></li>
+</ul></div>
 

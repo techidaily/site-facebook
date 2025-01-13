@@ -1,7 +1,7 @@
 ---
 title: Unveiling Why Social Networking Sites Like Facebook Permit More Than One Profile per Account
-date: 2024-08-08T11:23:44.006Z
-updated: 2024-08-09T11:23:44.006Z
+date: 2025-01-05T20:14:15.589Z
+updated: 2025-01-12T19:56:16.661Z
 tags:
   - facebook
 categories:
@@ -20,23 +20,16 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
  Yet social media allows everyone to see what you are saying or doing with your friends, unless you take steps to restrict your account. In order to address this, Meta is testing a feature that will allow users to maintain up to five separate profiles under the same Facebook account.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Coming Soon: One Facebook Account, 5 Profiles
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta prohibits users from having more than one Facebook account. However, the company is testing a way for users to have more than one profile connected to their account, as first reported by[Bloomberg](https://www.bloomberg.com/news/articles/2022-07-14/meta-to-start-letting-facebook-users-have-up-to-five-profiles) .
 
@@ -51,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
  Your overall account will also remain subject to Facebook's disciplinary procedures should any of the profiles violate Facebook's rules.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Now Allowing Multiple Profiles?
 
  According to Lam, the feature will "help people tailor their experience based on interests and relationships."
@@ -66,22 +60,20 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
  Multiple profiles may help Facebook to stop[bleeding young users](https://www.makeuseof.com/why-facebook-is-losing-users/) to rivals like TikTok, who don't necessarily want their parents, relatives, strangers, or co-workers to see everything they are doing online with their friends.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Boost to Privacy
 
  This new feature, when fully rolled out, should help users experience Facebook more discreetly, which should be a boost to online privacy.
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -90,4 +82,18 @@ thumbnail: https://thmb.techidaily.com/858d049547f59eac162cc6b5d9eb7989714fa4113
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-the-secrets-of-facebooks-live-feature-for-2024/"><u>[Updated] Unlocking the Secrets of Facebook's Live Feature for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96180164-9781633410862-besom-stang-sword/"><u>Besom, Stang & Sword | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-excessive-ad-content-tailoring-on-social-networks/"><u>Cut Excessive Ad Content Tailoring on Social Networks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/efficiently-record-your-periscope-experience-now/"><u>Efficiently Record Your Periscope Experience Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-disguised-threat-to-security/"><u>Facebook Quizzes: A Disguised Threat to Security?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-13-with-imei-code-by-drfone-ios/"><u>How to Unlock iPhone 13 with IMEI Code?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-expert-tips-extracting-audio-from-youtube-video-playback/"><u>In 2024, Expert Tips Extracting Audio From YouTube Video Playback</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-oppo-find-n3-flip-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Oppo Find N3 Flip Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/joint-endeavor-facebook-advances-rust-development/"><u>Joint Endeavor: Facebook Advances Rust Development</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/review-of-the-logitech-g515-lightspeed-tkl-mouse-compact-design-and-budget-friendly/"><u>Review of the Logitech G515 Lightspeed TKL Mouse - Compact Design and Budget-Friendly</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-best-places-to-find-freelance-work/"><u>The 5 Best Places to Find Freelance Work</u></a></li>
+</ul></div>
 

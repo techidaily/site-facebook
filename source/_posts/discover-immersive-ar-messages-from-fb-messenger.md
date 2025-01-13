@@ -1,7 +1,7 @@
 ---
 title: Discover Immersive AR Messages From FB Messenger
-date: 2024-07-29T07:42:07.764Z
-updated: 2024-07-30T07:42:07.764Z
+date: 2025-01-11T19:01:06.887Z
+updated: 2025-01-12T17:19:51.263Z
 tags:
   - facebook
 categories:
@@ -20,14 +20,16 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 So, what are Group Effects all about? Keep reading to find out.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Amps Up Its Video Call Function With Group Effects
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Illustration of Video Conference Calls on Three Different Devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/video-conference-call-illustration.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook Messenger has added Group Effects, a new feature that allows everyone on a video call to join in on the same AR experience at the same time, making video calls more engaging and fun.
 
@@ -38,28 +40,16 @@ So, what are Group Effects all about? Keep reading to find out.
  Related:[Facebook Messenger Icons and Symbols: What Do They Mean?](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Messenger’s Group Effects Work
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A huge shift from the platform's one-participant-at-a-time AR feature, the Group Effects feature allows you to play multiplayer games with your friends during a video call, so you can do more than just catch up.
 
@@ -70,8 +60,9 @@ Key features:
  To start using Group Effects, open the Messenger app and**start a video call** or**create a room** . Tap the**smiley face icon** , and then select**Group Effects** . Now choose from the range of effects to start playing.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is Adding Dimension to Messenger Video Calls
 
  Facebook is adding more creative ways to communicate and catch up with others, thereby breaking the monotony that sometimes comes with phone or video conversations.
@@ -80,14 +71,11 @@ Key features:
 
  This is important as many people rely on video calls to feel closer to their loved ones, especially when seeing them in person is not an option.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,4 +84,18 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-streamline-your-experience-with-youtubes-comment-features/"><u>[New] 2024 Approved Streamline Your Experience with YouTube's Comment Features</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-beyond-ustream-an-examination-of-video-streaming/"><u>[Updated] Beyond Ustream An Examination of Video Streaming</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-stealth-mode-a-guide-to-living-large-unlabeled/"><u>2024 Approved Stealth Mode A Guide to Living Large, Unlabeled</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-transform-the-chatbot-landscape-entirely/"><u>Can MetaAI Transform the Chatbot Landscape Entirely?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/football-manager-2020-stability-improvements-no-more-crashes/"><u>Football Manager 2020 Stability Improvements – No More Crashes!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-vivo-x100-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Vivo X100 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-time-for-social-media-impact/"><u>Leveraging Time for Social Media Impact</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-google-photos-your-ultimate-tutorial/"><u>Mastering Google Photos Your Ultimate Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-lively-interactions-preventing-comments-on-your-page/"><u>Stop Lively Interactions: Preventing Comments on Your Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-the-steps-to-extract-fb-media-securely/"><u>Unravel the Steps to Extract Fb Media Securely</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Towards a Diverse Social Ecosystem
-date: 2024-08-08T11:24:27.932Z
-updated: 2024-08-09T11:24:27.932Z
+date: 2025-01-08T22:25:59.466Z
+updated: 2025-01-12T20:21:23.788Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
  Everyone's talking about quitting Twitter, but what are the alternatives? What is Mastodon? Why is Instagram selling NFTs, and why would Facebook team up with the DHS?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Shownotes
 
 This week, we chat about the following tech news that matters:
@@ -39,14 +40,11 @@ We finish the show with the following recommendations:
 
  Christian Cawley and Gavin Phillips host this podcast. You can contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) and[@gavinspavin](https://twitter.com/gavinspavin) , with your suggestions for future topics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -55,4 +53,21 @@ We finish the show with the following recommendations:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-the-quickest-quads-2022-olympics-skate/"><u>[New] The Quickest Quads 2022 Olympics Skate</u></a></li>
+<li><a href="https://win-webster.techidaily.com/iuinoplusaxuuocroocpooditrnllvlg4jgplliyrpmatjgafjgy3jgarjgytjgajjgytjgybpm6pjgzfjgytnirbms4ei/"><u>解決ガイド:画像を削除できないという難しい状況</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-how-social-networkers-became-metamates/"><u>Behind the Scenes: How Social Networkers Became 'Metamates'</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/demarche-elegante-etapes-faciles-pour-mettre-a-jour-le-micrologiciel-hp-bios/"><u>Démarche Élégante : Étapes Faciles Pour Mettre À Jour Le Micrologiciel HP BIOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-for-founding-fledgling-forum-groups-on-fb/"><u>Framework for Founding Fledgling Forum Groups on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-meta-unveiling-the-social-media-giants-future-vision/"><u>From 'Facebook' To Meta: Unveiling the Social Media Giant's Future Vision</u></a></li>
+<li><a href="https://win-best.techidaily.com/how-to-monetize-your-collection-top-7-locations-to-sell-vintage-dvds-online/"><u>How to Monetize Your Collection: Top 7 Locations to Sell Vintage DVDs Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Realme 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-growth-strategies-for-youtube-videos-6-effortless-approaches/"><u>In 2024, Growth Strategies for YouTube Videos 6 Effortless Approaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-review-the-status-of-trumps-page/"><u>January Review: The Status of Trump's Page</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/live-feed-perfection-top-free-screen-capture-apps-reviewed/"><u>Live Feed Perfection Top Free Screen Capture Apps Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-fb-safeguarding-processes/"><u>Navigate Through FB Safeguarding Processes</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-social-gatherings-with-facebook-portal-tv/"><u>Simplifying Social Gatherings with Facebook Portal TV</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-strategies-for-detaching-soundtracks-from-footage/"><u>Updated Strategies for Detaching Soundtracks From Footage</u></a></li>
+</ul></div>
 

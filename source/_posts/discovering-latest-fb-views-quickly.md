@@ -1,7 +1,7 @@
 ---
 title: Discovering Latest FB Views Quickly
-date: 2024-07-29T07:43:34.644Z
-updated: 2024-07-30T07:43:34.644Z
+date: 2025-01-08T23:24:55.340Z
+updated: 2025-01-12T23:07:24.978Z
 tags:
   - facebook
 categories:
@@ -40,23 +40,25 @@ That's it. Here you will find all the recently watched videos.
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Filter Facebook Watched Videos by Date on the Web
 
  If you want to view videos watched in a particular month and year, you can do that too. Here's how:
 
 1. Open the Activity Log window of your Facebook profile.
 2. Click the**Date** option in the left sidebar.  
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
@@ -64,14 +66,12 @@ That's it. Here you will find all the recently watched videos.
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
 Close
@@ -89,20 +89,17 @@ Close
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -111,21 +108,15 @@ Close
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## Never Lose Facebook Videos Again
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +125,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-make-a-striking-yt-preview-with-optimal-thumbnail-sizing-for-2024/"><u>[New] How to Make a Striking YT Preview with Optimal Thumbnail Sizing for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-thieye-t5-versus-jcb-xs30-best-choice/"><u>[New] Thieye T5 Versus JCB XS30 Best Choice?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-shots-premium-video-cams-for-slow-motion-magic/"><u>[Updated] Top Shots Premium Video Cams for Slow-Motion Magic</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-visual-ventures-partnership-playbook/"><u>[Updated] Visual Ventures Partnership Playbook</u></a></li>
+<li><a href="https://facebook.techidaily.com/channels-as-pathways-within-facebook-communities/"><u>Channels as Pathways Within Facebook Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-rethinking-the-stigma-around-fb-reports/"><u>Digging Deeper: Rethinking The Stigma Around FB Reports</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-non-functional-mic-and-voice-chat-issues-in-sea-of-thieves-pc/"><u>Effective Fixes for Non-Functional Mic & Voice Chat Issues in Sea of Thieves (PC)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/elevating-nvme-drive-efficiency-in-depth-look-at-the-best-coolers-with-a-closer-look-at-id-cooling-zero-m15-and-m05/"><u>Elevating NVMe Drive Efficiency: In-Depth Look At The Best Coolers With A Closer Look At ID-Cooling Zero M15 & M05</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-video-experience-best-youtube-to-avi-companions/"><u>Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-and-found-precise-steps-to-restore-your-fb-sign-in/"><u>Lost and Found: Precise Steps to Restore Your FB Sign-In</u></a></li>
+<li><a href="https://article-files.techidaily.com/next-gen-editing-experience-reviewed-magix-video-pro-x-for-2024/"><u>Next-Gen Editing Experience Reviewed Magix Video Pro X for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/quell-the-public-forum-strategies-for-curtailing-comments-in-facebook/"><u>Quell the Public Forum: Strategies for Curtailing Comments in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/saving-your-social-footprint-regaining-deleted-fb-stories/"><u>Saving Your Social Footprint: Regaining Deleted FB Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-mysteries-of-filter-bubble-act/"><u>Unraveling the Mysteries of Filter Bubble Act</u></a></li>
+</ul></div>
 

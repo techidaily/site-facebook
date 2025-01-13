@@ -1,7 +1,7 @@
 ---
 title: "Disconnect Spotify & Facebook: Easy Steps to Follow"
-date: 2024-07-29T07:40:28.892Z
-updated: 2024-07-30T07:40:28.892Z
+date: 2025-01-10T21:34:35.023Z
+updated: 2025-01-12T16:14:50.988Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/5780260a4b921055eadce5da1ebf75bed86b12220
 
  However, perhaps you want to unlink your Facebook account from Spotify. In this case, you'll want to set aside ten minutes or so, as unlinking your Facebook account from Spotify is not as simple as it sounds.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## What You Should Do Before Unlinking Your Spotify Account From Facebook
 
  You could decide to unlink Facebook from your Spotify account for any number of reasons. Perhaps you're not interested in Spotify's social features and don't wish to be found by others this way. Perhaps you no longer use Facebook and want to make sure you can still access your Spotify account without it. Perhaps you just prefer not to chain platforms together this way.
@@ -34,15 +31,16 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
 
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
 ###
@@ -55,8 +53,9 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
 
  You can also manage the apps and websites connected to your Facebook. Here's how:
@@ -66,49 +65,39 @@ Here's what you should do to unlink Facebook from Spotify.
 3. Scroll down to the**Permissions** section and tap**Apps and websites** .
 4. On the**Apps and websites** page, tap**Spotify** \>**Remove** .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Enjoy Spotify Without Facebook
 
  Some people may enjoy having their Spotify account connected with Facebook, but you likely didn't for any number of reasons. Now you can continue to use your Spotify account without that worrying about Facebook. If you ever change your mind, you can always reconnect to a Facebook account in the future.
 
  For now, focus on finding the best playlists around and enjoying your favorite tracks on Spotify.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +106,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-best-color-grading-plugins-top-15-luts-for-action-cams-for-2024/"><u>[New] Best Color Grading Plugins Top 15 LUTs For Action Cams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-the-settings-youtube-comments-activation/"><u>[New] In 2024, Navigating the Settings YouTube Comments Activation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-the-ultra-hd-revolution-dissecting-samsungs-ue590-tv/"><u>[New] In 2024, The Ultra HD Revolution - Dissecting Samsung's UE590 TV</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-evolution-of-4k-a-look-at-the-d500-model/"><u>[Updated] The Evolution of 4K A Look at the D500 Model</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-transform-your-streaming-journey-by-activating-youtubes-av1-for-2024/"><u>[Updated] Transform Your Streaming Journey by Activating YouTube's AV1 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-embrace-new-ad-formats-on-fb-and-instagram/"><u>Brands Embrace New Ad Formats on FB & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/codifying-conduct-formulating-a-code-for-your-fb-group/"><u>Codifying Conduct: Formulating a Code for Your Fb Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-commerce-leveraging-metas-tools-for-profit-making-video-content/"><u>Content Commerce: Leveraging Meta's Tools for Profit-Making Video Content</u></a></li>
+<li><a href="https://win-able.techidaily.com/hitman-3-not-working-fix-the-steam-pc-crash-issues-with-ease/"><u>Hitman 3 Not Working? Fix the Steam PC Crash Issues with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153819023-unearthed-tech-moments-youve-overlooked-top-4-must-know/"><u>Unearthed Tech Moments You've Overlooked - Top 4 Must-Know</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlocking-secrets-to-selecting-prime-videographers-for-2024/"><u>Unlocking Secrets to Selecting Prime Videographers for 2024</u></a></li>
+</ul></div>
 

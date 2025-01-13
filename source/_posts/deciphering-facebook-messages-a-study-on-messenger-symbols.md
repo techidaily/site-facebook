@@ -1,7 +1,7 @@
 ---
 title: Deciphering Facebook Messages - A Study on Messenger Symbols
-date: 2024-07-29T07:42:46.195Z
-updated: 2024-07-30T07:42:46.195Z
+date: 2025-01-06T20:05:13.858Z
+updated: 2025-01-12T16:59:36.045Z
 tags:
   - facebook
 categories:
@@ -21,21 +21,18 @@ thumbnail: https://thmb.techidaily.com/5eac549bf0074d54dd4b3414ac1cd5ccda2e57524
 
 ## 1\. Open Blue Circle
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![blue circle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle.jpg)
 
  The open blue circle Facebook Messenger icon means that your message is currently being sent.
 
  If you navigate away from the message or lose network connectivity while the open blue circle is present, Facebook still sends the message once the connection is restored.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Open Blue Circle + Checkmark
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
 
  The open blue circle with a checkmark means that your message has been delivered.
@@ -46,27 +43,41 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  A filled blue circle with a checkmark means that your message has been delivered.
 
  While the person may not have seen your message yet, you can be confident that it'll be available to them whenever they next check their phone, tablet, or computer.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Red Triangle + Exclamation
 
 ![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
 
  A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you[fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Green Dot
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A green dot in the lower right corner of your contacts' pictures at the top indicates that they're online and available to chat.
 
@@ -76,20 +87,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ## 6\. Blue Dot
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook messenger blue icon-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-blue-icon-2.jpg)
 
  A blue dot to the right of a chat indicates an unread message. The sender won't get a message read confirmation until you click the chat.
 
  Opening a chat with a blue dot removes the dot and shows the sender that you've opened and read their message. This feature is also handy for quickly sorting and identifying messages you don't want to read.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. A Gray Crossed-Out Bell
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
 
  The gray crossed bell to the right of a chat indicates that you've muted the chat. A muted person can send you messages,but you won't be notified that they've sent you a message.
@@ -102,37 +111,25 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Know if Someone Saw Your Facebook Message
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
 
  If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
 
  You'll also see the word “Seen” displayed under a message that has been read, along with a timestamp to let you know when the recipient opened it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook Messenger Alternatives
 
  Although many users have taken issue with Messenger's permission requirements, it remains one of the most-used messaging apps around. At the last count, it had over 1.3 billion active users, with 20 billion messages sent monthly. That means you'll almost always be able to contact the person you want to connect with.
 
  Other popular alternatives to Messenger include WhatsApp, Viber, and Telegram. If you live in Asia, check out WeChat and Line. And remember, Messenger also works with Facebook's other major service, Instagram.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +138,19 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-expert-tips-streaming-success-using-zoom-and-fb-live/"><u>[New] Expert Tips Streaming Success Using ZOOM & FB Live</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-revel-in-filmoras-top-9-edits-every-editor-loves/"><u>[Updated] 2024 Approved Revel in Filmora's Top 9 Edits Every Editor Loves</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-unadulterated-newsfeed-experience-on-facebook/"><u>Creating an Unadulterated Newsfeed Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-gems-in-your-facebook-archive/"><u>Discovering Hidden Gems in Your Facebook Archive</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-feature-ray-ban-stories-functions-and-pricing/"><u>Facebook's Latest Feature: Ray-Ban Stories - Functions & Pricing</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-play-40c-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Honor Play 40C Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-s24plus-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy S24+ without App | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-rapid-assembly-of-google-image-mosaics/"><u>In 2024, Rapid Assembly of Google Image Mosaics</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumors-swirl-over-facebooks-ethical-commerce-stance/"><u>Rumors Swirl Over Facebook's Ethical Commerce Stance</u></a></li>
+<li><a href="https://facebook.techidaily.com/trouble-brewing-as-trust-fades-in-giant-internet-firms/"><u>Trouble Brewing as Trust Fades in Giant Internet Firms</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-resolving-constant-content-warning-app-crashes-on-your-computer/"><u>Troubleshooting Steps: Resolving Constant 'Content Warning' App Crashes on Your Computer</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-the-leading-smart-glasses-innovations-for-2e-year-2024/"><u>Ultimate Guide: The Leading Smart Glasses Innovations for 2E Year 2024</u></a></li>
+</ul></div>
 

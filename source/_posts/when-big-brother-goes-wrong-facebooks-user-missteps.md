@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2025-01-01T06:31:55.818Z
-updated: 2025-01-06T09:01:54.623Z
+date: 2025-01-09T18:37:46.376Z
+updated: 2025-01-12T22:19:00.597Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Facebook Beacon Tracking
@@ -39,12 +39,16 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
 
@@ -60,17 +64,9 @@ Close
 
  So, will Facebook take some action and bring creativity to the table? Maybe, maybe not. Only time can tell.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. Data Harvesting Through Quizzes and Third-Party Apps
 
 ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
 
@@ -81,6 +77,10 @@ Close
  But the[Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) revealed just how much data harvesting was possible with these quizzes. Cambridge Analytica was a British political consulting firm that collected data from Facebook users. All that information was then used for political purposes. Upon discovery, this matter was considered unethical and a total breach of privacy.
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. The Spread of Fake News
 
@@ -93,7 +93,7 @@ Close
  Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Failure to Moderate in Developing Countries
@@ -131,20 +131,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-from-free-to-fortune-carryminatis-youtube-transformation-ajey-for-2024/"><u>[New] From Free to Fortune CarryMinati’s YouTube Transformation (Ajey) for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-see-your-subscribers-on-youtube/"><u>[Updated] How to See Your Subscribers on YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enthralling-audienrances-the-most-captivating-6-videos/"><u>[Updated] In 2024, Enthralling Audienrances The Most Captivating 6 Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-shadows-an-overview-of-youtubes-unlisted-videos/"><u>[Updated] Navigating the Shadows An Overview of YouTube's Unlisted Videos</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-halts-new-ios-beta-release-following-iphone-malfunction-claims/"><u>Apple Halts New iOS Beta Release Following iPhone Malfunction Claims</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-is-ipogo-not-working-on-realme-11-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Realme 11 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/launching-effective-social-groups-on-facebook/"><u>Launching Effective Social Groups on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-and-instagram-facebooks-latest-chat-enhancements/"><u>Messenger & Instagram: Facebook's Latest Chat Enhancements</u></a></li>
-<li><a href="https://facebook.techidaily.com/pause-the-pixelation-unpacking-instagrams-call-for-digital-steps-backward/"><u>Pause the Pixelation: Unpacking Instagram's Call for Digital Steps Backward</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-htc-u23-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on HTC U23? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unblocking-your-faceboook-security-sign-in-token/"><u>Unblocking Your Faceboook Security Sign-In Token</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-mastodons-community/"><u>Understanding Mastodon's Community</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-facebooks-privacy-shield/"><u>Unlocking the Secrets of Facebook's Privacy Shield</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-manages-my-digital-imagery/"><u>Who Manages My Digital Imagery?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-hilarityhub-online-tool-for-funny-image-crafting-for-2024/"><u>[New] HilarityHub Online Tool for Funny Image Crafting for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-androids-photo-editor-showdown-can-pickup-claim-victory/"><u>[New] In 2024, Android's Photo Editor Showdown Can PickUp Claim Victory?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-perfecting-pics-a-full-guide-to-facetune-mastery/"><u>[Updated] Perfecting Pics - A Full Guide to Facetune Mastery</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-secrets-to-enjoying-authentic-cricket-games-in-real-time-for-2024/"><u>[Updated] Secrets to Enjoying Authentic Cricket Games in Real-Time for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-rifts-as-key-to-unlocking-post-hack-credentials/"><u>$300 Rifts as Key to Unlocking Post-Hack Credentials</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-the-latest-evolution-2023s-samsung-bd-j5900-review/"><u>2024 Approved The Latest Evolution 2023'S Samsung BD-J5900 Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/30-social-media-abbreviations-every-user-should-know/"><u>30 Social Media Abbreviations Every User Should Know</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/windows-1-0-5/"><u>修復 Windows 1 0 在更新後不斷重啟的狀況，5 項可靠解決方案</u></a></li>
+<li><a href="https://facebook.techidaily.com/activism-affects-apps-groups-seek-to-lower-social-media-stars/"><u>Activism Affects Apps: Groups Seek to Lower Social Media Stars</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/anaxonic-neurons-have-no-clear-axon-but-multiple-dendrites-for-local-circuitry-within-the-brain/"><u>Anaxonic Neurons Have No Clear Axon but Multiple Dendrites for Local Circuitry Within the Brain.</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-social-fallout-exiting-virtual-gatherings-wisely/"><u>Avoiding Social Fallout: Exiting Virtual Gatherings Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-facebooks-new-sonic-connectivity-feature/"><u>Breaking: Facebook's New Sonic Connectivity Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-worlds-or-converging-the-metaverse-and-virtual-reality-split/"><u>Bridging Worlds or Converging? The Metaverse & Virtual Reality Split</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-custom-viewability-in-social-media-sphere/"><u>Crafting Custom Viewability in Social Media Sphere</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-itel-p55-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Itel P55 5G</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Deciphering the Processes Within PhotoDNA Framework
-date: 2024-07-29T07:40:37.443Z
-updated: 2024-07-30T07:40:37.443Z
+date: 2025-01-09T19:54:26.133Z
+updated: 2025-01-12T22:04:33.196Z
 tags:
   - facebook
 categories:
@@ -22,12 +22,9 @@ thumbnail: https://thmb.techidaily.com/fea69578f265b77158961ce9649233eee0ace50ab
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -41,8 +38,9 @@ No advertising on the website.
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Does PhotoDNA Work?
 
  When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
@@ -61,9 +59,6 @@ No advertising on the website.
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -77,14 +72,16 @@ No advertising on the website.
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
@@ -93,8 +90,9 @@ No advertising on the website.
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does PhotoDNA Make the Internet Safer?
 
  The Microsoft-developed service is undoubtedly an essential tool. PhotoDNA plays a crucial role in preventing these images from spreading and may even help to help at-risk children.
@@ -103,14 +101,11 @@ No advertising on the website.
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +114,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discovering-the-top-tools-for-engaging-video-beginnings/"><u>[New] In 2024, Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-prime-voice-recorders-for-online-use/"><u>2024 Approved Prime Voice Recorders for Online Use</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revolutionize-playtime-unveiling-win11s-latest-titles/"><u>2024 Approved Revolutionize Playtime Unveiling Win11's Latest Titles</u></a></li>
+<li><a href="https://windows11.techidaily.com/5-steps-to-reclaim-your-windows-daylight-look/"><u>5 Steps to Reclaim Your Windows' Daylight Look</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-primer-to-social-media-symbol-mastery-facebooks-icons-explained/"><u>A Primer to Social Media Symbol Mastery: Facebook's Icons Explained</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-step-by-step-guide-to-correcting-missing-d3d9dll-error-codes/"><u>A Step-by-Step Guide to Correcting 'Missing' d3d9.dll Error Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-ancestral-social-ties-in-facebook-timeline/"><u>Accessing Ancestral Social Ties in Facebook Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipated-ruling-by-social-medias-governance-authority-on-trump/"><u>Anticipated Ruling by Social Media’s Governance Authority on Trump</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-certified-user-meta-verification-us-style/"><u>Become a Certified User: Meta Verification, US Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-photo-privacy/"><u>Best Practices for FB Photo Privacy</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/budget-conscious-pc-capture-programs-for-2024/"><u>Budget-Conscious PC Capture Programs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-reels-solve-the-tiktok-problem-for-facebook/"><u>Can Reels Solve the TikTok Problem for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-your-ideal-facebook-portal/"><u>Choosing Your Ideal Facebook Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/curating-a-healthier-newsfeed-avoiding-fb-reels/"><u>Curating a Healthier Newsfeed: Avoiding Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/darkening-skies-predicted-bad-press-for-fb/"><u>Darkening Skies: Predicted Bad Press for FB</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c67-4g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme C67 4G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://games-able.techidaily.com/luminous-futures-more-than-just-energy/"><u>Luminous Futures: More than Just Energy</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-extracting-audio-from-mp4-files-with-top-tools/"><u>Step-by-Step Guide: Extracting Audio From MP4 Files with Top Tools</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723207655767-xbox-one-online-connectivity-issues-heres-your-comprehensive-solution/"><u>Xbox One Online Connectivity Issues? Here's Your Comprehensive Solution</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2024-12-31T01:53:46.507Z
-updated: 2025-01-05T22:07:51.457Z
+date: 2025-01-10T17:51:22.841Z
+updated: 2025-01-12T17:33:50.410Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are All Facebook Services Down?
@@ -41,13 +41,13 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -78,15 +78,15 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
 
@@ -109,17 +109,24 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-leveraging-social-media-tactics-more-insta-vids-watched/"><u>2024 Approved Leveraging Social Media Tactics More Insta Vids Watched</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-visualizing-your-vision-incorporating-new-fonts-into-after-effects/"><u>2024 Approved Visualizing Your Vision Incorporating New Fonts Into After Effects</u></a></li>
-<li><a href="https://windows11.techidaily.com/beginners-tutorial-on-windows-canary-usage/"><u>Beginner’s Tutorial on Windows Canary Usage</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Nokia 105 Classic | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-samsung-galaxy-f14-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Samsung Galaxy F14 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-immediate-youtube-audience-insights/"><u>In 2024, Immediate YouTube Audience Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-paradigms-shifted-unveiling-the-four-main-changes-in-online-society/"><u>Networking Paradigms Shifted: Unveiling the Four Main Changes in Online Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-prying-eyes-german-mandate-against-facebooks-whatsapp-data-invasion/"><u>No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/proiphone-macro-techniques-achieving-professional-quality-for-2024/"><u>Proiphone Macro Techniques Achieving Professional Quality for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/stay-trusted-in-social-trade-essential-marketplace-security-tips/"><u>Stay Trusted in Social Trade: Essential Marketplace Security Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitter-and-instagram-again-for-trump/"><u>Twitter and Instagram, Again for Trump?</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-some-outdated-your-drivers-in-windows-1110-by-drivereasy-guide/"><u>Use Device Manager to identify some outdated your drivers in Windows 11/10</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-compreenas-guide-to-seamless-time-marking-in-youtube-videos-desktopmobile/"><u>[New] In 2024, The Compreenas Guide to Seamless Time Marking in YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-showcase-spectacatives-the-best-ice-artistry-22/"><u>2024 Approved Showcase Spectacatives The Best Ice Artistry '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-choosing-a-great-fb-pic/"><u>A Step-by-Step Guide to Choosing a Great Fb Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/activate-the-fortress-facebooks-personal-safety-toolkit/"><u>Activate the Fortress: Facebook's Personal Safety Toolkit</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-powered-narration-bring-life-to-your-social-media-images/"><u>AI-Powered Narration: Bring Life to Your Social Media Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-boosts-lifes-true-value-without-social-apps/"><u>Beyond the Boosts: Life's True Value Without Social Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-post-fb-existence/"><u>Beyond the Newsfeed: Post-FB Existence</u></a></li>
+<li><a href="https://facebook.techidaily.com/bonding-to-buying-online-income-insights/"><u>Bonding to Buying: Online Income Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-the-right-networking-realm-casual-vs-career-communities/"><u>Choosing the Right Networking Realm: Casual Vs. Career Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-uncoupling-from-the-social-media-giant/"><u>Complete Uncoupling From the Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-your-trail-stealthy-download-tactics-for-social-media-files/"><u>Concealing Your Trail: Stealthy Download Tactics for Social Media Files</u></a></li>
+<li><a href="https://games-able.techidaily.com/exclusive-gadgets-and-mods-for-the-best-ps5-experience/"><u>Exclusive Gadgets and Mods for the Best PS5 Experience</u></a></li>
+<li><a href="https://win-top.techidaily.com/how-to-set-up-automatic-windows-server-sync-with-network-drive-for-easy-backups/"><u>How to Set Up Automatic Windows Server Sync with Network Drive for Easy Backups</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/navigating-network-growth-strategies-for-instagram-success/"><u>Navigating Network Growth Strategies for Instagram Success</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-what-is-emoji-and-what-does-it-mean/"><u>New In 2024, What Is Emoji and What Does It Mean?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-apple-watch-ultra-2-how-its-features-make-it-a-top-choice-for-me-now-at-100-off-expert-review-by-zdnet/"><u>The Apple Watch Ultra 2: How Its Features Make It a Top Choice for Me, Now at $100 Off - Expert Review by ZDNET</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/616665-9781770704572-the-big-book-of-ufos/"><u>The Big Book of UFOs | Free Book</u></a></li>
+<li><a href="https://win-latest.techidaily.com/troubleshooting-guide-overcoming-inaccessible-d-drive-problems-in-windows-11/"><u>Troubleshooting Guide: Overcoming Inaccessible D-Drive Problems in Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlocking-ultra-clear-video-in-zoom-meetings-for-2024/"><u>Unlocking Ultra-Clear Video in Zoom Meetings for 2024</u></a></li>
 </ul></div>
 

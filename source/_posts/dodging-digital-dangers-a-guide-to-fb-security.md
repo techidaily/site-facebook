@@ -1,7 +1,7 @@
 ---
 title: "Dodging Digital Dangers: A Guide to FB Security"
-date: 2024-07-29T07:43:00.908Z
-updated: 2024-07-30T07:43:00.908Z
+date: 2025-01-11T20:13:00.465Z
+updated: 2025-01-12T22:22:48.038Z
 tags:
   - facebook
 categories:
@@ -19,12 +19,17 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
  These eight strategies can help you avoid phishing and scammers on Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Would Someone Hack Your Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Phishing website with credentials being lifted with fishhook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Phishing-website-with-credentials-being-lifted-with-fishhook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because they want your personal information. They can use that info to access your bank accounts, or even steal your identity. And they have many ways to[steal from you through Facebook](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) .
 
@@ -37,8 +42,9 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 ![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
 
 ![A vulnerable Facebook profile detailing all the user's workplaces](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---work-history-1.jpg)
@@ -57,10 +63,11 @@ Close
 
 ![A blank Work Education and Places Lived page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-blank-Work-Education-and-Places-Lived-page-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Messenger blocking messages from a stranger on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Messenger-blocking-messages-from-a-stranger-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -68,12 +75,17 @@ Close
 
  You can take it one step further, so people can only send you messages if you have a mutual friend. Do this using the**Privacy Settings** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Manage Your Facebook Privacy Settings
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
 
@@ -82,8 +94,9 @@ Close
 It’s a good idea to do a privacy check on a regular basis.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Remove Access to Facebook From Suspicious Apps
 
 ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
@@ -92,14 +105,8 @@ It’s a good idea to do a privacy check on a regular basis.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Don’t Click Strange URLs on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
@@ -116,9 +123,6 @@ Close
 
  If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of[reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Know the Signs of a Facebook Scam
 
 ![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
@@ -133,13 +137,13 @@ Close
 
  Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## 6\. Don’t Reply to Trivia Facebook Posts
 
 ![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook is full of public posts asking users to reply with trivia. They often ask for nostalgic things, such as your first car or favorite teacher. These posts seem like fun, but they are dangerous.
 
@@ -151,10 +155,11 @@ Close
 
 ## 7\. Only Add People You Know to Your Facebook Account
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Make sure you trust someone before accepting a request. Scammers often go after personal details hidden behind “friends only” privacy settings. To protect yourself, it’s a good idea to limit your Facebook Friends to people you actually know.
 
@@ -162,14 +167,8 @@ Close
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Use a Strong Password for Your Facebook Account
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
 
  Avoid using phone numbers, pet names, and similar information as passwords, as these are easy to guess. Also, avoid having short, simple passwords, and never use the same password on more than one site.
@@ -182,14 +181,11 @@ Close
 
  If you think you may have been phished, the first thing you should do is change your Facebook password. Then, log out of all devices. It can also help to go through a checklist of security measures.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,4 +194,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-thumbnail-extraction-from-youtube-on-multiple-platforms/"><u>[New] 2024 Approved Mastering Thumbnail Extraction From Youtube on Multiple Platforms</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-seamless-subtitle-conversion-at-your-fingertips-top-8-software-for-windowsmacos-srt-transition/"><u>[New] Seamless Subtitle Conversion at Your Fingertips - Top 8 Software for Windows/MacOS SRT Transition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-use-filters-on-instagram-2023/"><u>[Updated] In 2024, How to Use Filters on Instagram 2023?</u></a></li>
+<li><a href="https://facebook.techidaily.com/audio-free-video-free-ig-live-experience/"><u>Audio-Free, Video-Free IG Live Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-authenticity-with-a-cleaner-facebook-slate/"><u>Boost Authenticity with a Cleaner Facebook Slate</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-more-clicks-on-fb-with-these-5-free-timetable-strategies/"><u>Get More Clicks on FB with These 5 Free Timetable Strategies</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Infinix Smart 8 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-navigating-tiktok-web-efficiently-as-a-mac-user/"><u>In 2024, Navigating TikTok Web Efficiently as a Mac User</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-minefield-of-facebooks-privacy-settings/"><u>Navigating the Minefield of Facebook's Privacy Settings</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-art-of-juggling-multiple-youtube-presences-a-possibility-or-not/"><u>The Art Of Juggling Multiple YouTube Presences - A Possibility Or Not?</u></a></li>
+</ul></div>
 

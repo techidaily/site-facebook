@@ -1,7 +1,7 @@
 ---
 title: "Digital Detox: Implementing Facebook's Break Notifications"
-date: 2024-07-29T07:42:32.254Z
-updated: 2024-07-30T07:42:32.254Z
+date: 2025-01-10T16:23:26.709Z
+updated: 2025-01-12T17:25:58.190Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/4729098ff75053594bc9af7963d84132dd5d779fe
 
  If you're tired of spending too much time on Facebook, we'll show you how to limit it by setting up a daily time reminder alert using the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set a Daily Time Reminder Alert on Facebook
 
 To set a daily time reminder alert on Facebook, follow these steps:
@@ -34,17 +31,23 @@ To set a daily time reminder alert on Facebook, follow these steps:
 4. Navigate to**Your time on Facebook** under**Preferences** .
 5. Go to**Manage your time** .
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Settings Menu in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Settings-Menu-in-Facebook-App.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Your Time on Facebook Option in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Your-Time-on-Facebook-Option-in-Facebook-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Manage Your Time Option in Facebook's Your Time on Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Manage-Your-Time-Option-in-Facebooks-Your-Time-on-Facebook-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -54,16 +57,13 @@ Then:
 2. Set a time limit for your Facebook usage.
 3. To set a reminder, tap the**Set Reminder** button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Turning On Daily Time Reminder Option in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Turning-On-Daily-Time-Reminder-Option-in-Facebook-App.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Choosing the Timeframe for Daily Time Reminder in Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Choosing-the-Timeframe-for-Daily-Time-Reminder-in-Facebook-App.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -74,20 +74,18 @@ Close
  With the Facebook app, you can[switch between multiple Facebook accounts](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) and easily set a time limit for each.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Use Daily Time Reminder Alert to Limit Your Facebook Usage
 
  Use Facebook's daily time reminder feature to limit your time on Facebook for the day, and the app will notify you when you cross that limit. Having a reminder alert will help you stop scrolling through your feed and boost your productivity.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,4 +94,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>[New] In 2024, Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-unraveling-the-fabric-of-augmented-realities-for-2024/"><u>[Updated] Unraveling the Fabric of Augmented Realities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessibility-guide-for-facebook-neighborhood-memberships/"><u>Accessibility Guide for Facebook Neighborhood Memberships</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-vivo-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Vivo</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/getting-started-with-vision-pros-travel-mode-insights-and-preparation-tips-for-a-smooth-journey-zdnet/"><u>Getting Started with Vision Pro’s Travel Mode: Insights & Preparation Tips for a Smooth Journey | ZDNet</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-compelling-iphone-shadow-images/"><u>In 2024, Crafting Compelling iPhone Shadow Images</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-the-ultimate-3gp-video-editor-cutting-and-trimming-made-simple/"><u>New In 2024, The Ultimate 3GP Video Editor Cutting and Trimming Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-privacy-delete-fb-watch-logs-now/"><u>Securing Your Privacy: Delete FB Watch Logs Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-tutorial-how-to-get-windows-essentials-with-movie-maker-for-both-32-and-64-bit-systems/"><u>Step-by-Step Tutorial: How to Get Windows Essentials with Movie Maker for Both 32 and 64-Bit Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-data-trail-your-actions-secure-lifelinas/"><u>Telegram's Data Trail: Your Actions Secure Lifelinas</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/unraveling-the-mystery-what-leads-to-hard-drive-corruption-explained-by-yl-computing/"><u>Unraveling the Mystery: What Leads to Hard Drive Corruption Explained by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-pivotal-news-moments-in-google/"><u>Unveiling the Pivotal News Moments in Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-7-pivotal-facebook-revelations/"><u>Unveiling the Truth: 7 Pivotal Facebook Revelations</u></a></li>
+</ul></div>
 

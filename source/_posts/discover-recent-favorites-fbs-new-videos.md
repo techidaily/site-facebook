@@ -1,7 +1,7 @@
 ---
 title: "Discover Recent Favorites: FB's New Videos"
-date: 2024-07-29T07:42:11.244Z
-updated: 2024-07-30T07:42:11.244Z
+date: 2025-01-10T16:07:47.443Z
+updated: 2025-01-12T19:52:57.603Z
 tags:
   - facebook
 categories:
@@ -19,10 +19,6 @@ thumbnail: https://thmb.techidaily.com/377e38553991337f1398bdbfe5a8f44bdc61d9fc3
 
  In this article, we'll see how to find recently watched videos on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -32,9 +28,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 1. Open Facebook on your computer and log in with your credentials.
 2. Click your profile picture in the top right corner, and then click on your name.
 3. Click on the**three dots** and choose**Activity log** from the context menu.  
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
 4. Select the**Videos you've watched** option.  
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
@@ -43,12 +36,17 @@ That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on the Web
 
@@ -69,13 +67,11 @@ That's it. Here you will find all the recently watched videos.
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
 Close
@@ -96,8 +92,9 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 Close
@@ -108,20 +105,18 @@ Close
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Never Lose Facebook Videos Again
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +125,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-cutting-edge-techniques-in-image-fusion/"><u>[Updated] 2024 Approved Cutting-Edge Techniques in Image Fusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150747284-facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-oppo-find-x6-pro-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Oppo Find X6 Pro FRP In 3 Different Ways</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-find-x6-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Find X6 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-xiaomi-13t-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Xiaomi 13T Pro Lock Screen Password</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-on-your-apple-iphone-12-pro-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID On your Apple iPhone 12 Pro without Security Questions?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-wav-format-a-comprehensive-tutorial-for-windows-11-users/"><u>Mastering WAV Format: A Comprehensive Tutorial for Windows 11 Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-our-networked-world-with-six-key-advantages-of-facebook/"><u>Navigating Our Networked World with Six Key Advantages of Facebook</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/navigating-with-tom-comprehensive-computer-hardware-guides/"><u>Navigating with Tom: Comprehensive Computer Hardware Guides</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/redefining-ai-conversation-with-alternatives/"><u>Redefining AI Conversation with Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-into-meta-facebooks-strategic-rebranding-move/"><u>Transforming Into Meta: Facebook's Strategic Rebranding Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-offers-a-digital-bitcoin-goat-parody/"><u>Zuckerberg Offers: A Digital Bitcoin-Goat Parody?</u></a></li>
+</ul></div>
 

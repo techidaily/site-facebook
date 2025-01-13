@@ -1,7 +1,7 @@
 ---
 title: Social Media's Duty to Combat Pandemic Rumors and Lies
-date: 2024-08-08T11:23:41.171Z
-updated: 2024-08-09T11:23:41.171Z
+date: 2025-01-07T20:52:22.420Z
+updated: 2025-01-12T17:05:57.219Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f
 
 Here's what social media platforms can do to tackle the issue.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## The Spread of COVID-19 and Vaccine Misinformation on Social Media
 
  Social media is an extension of our lives, so information shared online can spread like wildfire. When COVID-related misinformation is circulated, it creates uncertainty, skepticism and distrust, which can lead to people rejecting proven public health measures.
@@ -40,16 +37,10 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
 
 Close
@@ -68,6 +59,10 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
@@ -78,12 +73,13 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  They can also share their personal experiences around getting vaccinated.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
@@ -96,8 +92,9 @@ YouTube also removes videos that violate its COVID-19 policy.
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
@@ -105,11 +102,16 @@ YouTube also removes videos that violate its COVID-19 policy.
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
@@ -117,14 +119,11 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,22 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/decline-to-share-your-digital-footprint-with-facebook/"><u>Decline to Share Your Digital Footprint with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-administrator-capabilities-for-online-communities-on-fb/"><u>Enhanced Administrator Capabilities for Online Communities on FB</u></a></li>
+<li><a href="https://techtrends.techidaily.com/enhanced-bing-ai-superior-search-capabilities-and-increased-query-quotas-unveiled/"><u>Enhanced Bing AI: Superior Search Capabilities & Increased Query Quotas Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-different-post-formats-for-optimal-social-media-reach/"><u>Exploring Different Post Formats for Optimal Social Media Reach</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-motorola-moto-g04-frp-bypass-by-drfone-android/"><u>In 2024, About Motorola Moto G04 FRP Bypass</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-film-enhancements-15-best-luts-to-boost-gopro-cinematography/"><u>In 2024, Film Enhancements 15 Best LUTs to Boost GoPro Cinematography</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-60-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo 60 5G Phone without PIN</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ering-online-video-secrets-for-youtubes-spherical-livestreaming-techniques-for-2024/"><u>Pioneering Online Video Secrets for YouTube's Spherical Livestreaming Techniques for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/say-goodbye-to-overfeeding-with-arf-pets-smart-feeder-solution/"><u>Say Goodbye to Overfeeding with Arf Pets Smart Feeder Solution</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-downloading-and-updating-synaptics-drivers-on-your-windows-system/"><u>Step-by-Step: Downloading and Updating Synaptics Drivers on Your Windows System</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-life-without-constant-connectivity/"><u>The Quiet Life Without Constant Connectivity</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-to-reveal-hidden-headphones-on-your-windows-11-setup/"><u>Troubleshooting Steps to Reveal Hidden Headphones on Your Windows 11 Setup</u></a></li>
+</ul></div>
 

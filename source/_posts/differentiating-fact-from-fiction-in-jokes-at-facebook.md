@@ -1,7 +1,7 @@
 ---
 title: Differentiating Fact From Fiction in Jokes at Facebook
-date: 2024-07-29T07:43:09.373Z
-updated: 2024-07-30T07:43:09.373Z
+date: 2025-01-11T00:10:41.125Z
+updated: 2025-01-12T21:40:39.047Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff74
  Satire is social commentary. It's the use of humor, ridicule, and wit to point out the vices, follies, and shortcomings of people and society. But how does Facebook define the genre, and does it have a place on the platform?
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Will Soon Update Its Community Standards
 
  In response to a recommendation from its Oversight Board, Facebook is updating its Community Standards to better explain what the it considers to be satirical content in the first place.
@@ -30,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff74
 
 > Given the context-specific nature of satire, we are not immediately able to scale this kind of assessment or additional consultation to our content moderators. We need time to assess the potential tradeoffs (...), and \[there will be\] potentially slower review times among our content moderators.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![off-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/09/off-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This update comes after the Oversight Board challenged Facebook's decision to remove a user comment that referred to the Turkish government with the["Daily Struggle" meme](https://knowyourmeme.com/memes/daily-struggle) . Here is the board's description of the comment in question:
 
@@ -44,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff74
  Related: [What Is Facebook's Oversight Board and What Does It Do?](https://www.makeuseof.com/what-is-facebook-oversight-board/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Satire a Dying Art?
 
  As the current generation of young people works to become more inclusive of and privy to the many cultures of the world, there is much discussion of whether political correctness is "killing" satire, and even comedy in general.
@@ -56,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff74
 
  You can read Facebook's full post on the upcoming changes on the [Transparency Center](https://transparency.fb.com/oversight/oversight-board-cases/comment-related-to-armenian-people-and-the-armenian-genocide/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,4 +72,20 @@ thumbnail: https://thmb.techidaily.com/81e161f907419dfdc391568e85d3e05da23f1ff74
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-heroblack-vs-yi-4k-updates-gopro-and-yi-showcase-their-best-for-2024/"><u>[New] HeroBlack Vs. Yi 4K Updates - GoPro and Yi Showcase Their Best for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-google-account-integration-for-private-youtube-video-sharing/"><u>[Updated] In 2024, Google Account Integration for Private YouTube Video Sharing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-excellent-videocameras-of-the-year-2024/"><u>[Updated] The Excellent Videocameras of the Year 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-wearable-experiment-could-include-two-detachable-cameras/"><u>FB's Wearable Experiment: Could Include Two Detachable Cameras?</u></a></li>
+<li><a href="https://win-forum.techidaily.com/free-online-converter-convert-rmvb-files-to-mov-format-with-movavi/"><u>Free Online Converter: Convert RMVB Files to MOV Format with Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-ban-a-profile-from-your-facebook-page/"><u>How to Ban a Profile From Your Facebook Page</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-oneplus-ace-3-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-honor-magic-5-pro-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Honor Magic 5 Pro</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-6-apps-to-transform-photos-by-eliminating-backgrounds/"><u>In 2024, Leading 6 Apps to Transform Photos by Eliminating Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-economics-growth-and-gold-in-social-space/"><u>Network Economics: Growth & Gold in Social Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/system-shutdown-fb-wa-ig-services-offline/"><u>System Shutdown: FB, WA, IG Services Offline</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-12-mini-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 12 mini | Dr.fone</u></a></li>
+</ul></div>
 

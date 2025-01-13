@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2025-01-03T19:39:11.115Z
-updated: 2025-01-05T18:45:51.436Z
+date: 2025-01-06T22:48:35.279Z
+updated: 2025-01-13T00:04:09.892Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,16 +87,24 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/nraveling-the-secrets-of-viral-content-creation-for-2024/"><u>[New] Unraveling the Secrets of Viral Content Creation for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-wave-goodbye-to-breakups-keep-your-streak-going/"><u>[Updated] 2024 Approved Wave Goodbye to Breakups Keep Your Streak Going</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-integrate-free-audio-in-your-videos-effortlessly/"><u>[Updated] In 2024, Integrate FREE Audio in Your Videos Effortlessly</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unraveling-the-mystery-of-a-frozen-tiktok-app-on-chrome/"><u>2024 Approved Unraveling the Mystery of a Frozen TikTok App on Chrome</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-will-begin-surveying-users-about-their-news-feed-experiences/"><u>Facebook Will Begin Surveying Users About Their News Feed Experiences</u></a></li>
-<li><a href="https://facebook.techidaily.com/facilitating-interactive-feedback-via-page-polls/"><u>Facilitating Interactive Feedback via Page Polls</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-social-to-virtual-sphere-6-revolutionary-facts-about-fbs-metaverse/"><u>From Social to Virtual Sphere: 6 Revolutionary Facts About FB’s Metaverse</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-depth-cost-calculation-estimating-a-podcasts-price-tag/"><u>In-Depth Cost Calculation Estimating a Podcast's Price Tag</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-video-editing-on-a-mac-the-top-picks-for/"><u>New Video Editing on a Mac The Top Picks For</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-marketing-efforts-discover-8-crowdflower-features/"><u>Streamlining Marketing Efforts: Discover 8 CrowdFlower Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-trend-alert-unbundling-giphy-from-facebook-debated/"><u>Tech Trend Alert: Unbundling Giphy From Facebook Debated</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-create-captivating-photos-adding-motion-blur-in-photoshop/"><u>[New] 2024 Approved Create Captivating Photos Adding Motion Blur in Photoshop</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultimate-vr-clarity-achieved/"><u>[New] Ultimate VR Clarity Achieved</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-forge-funny-online-content-on-the-fly/"><u>[Updated] In 2024, Forge Funny Online Content on the Fly</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-essential-tutorial-for-facebook-live-on-roku-tv/"><u>[Updated] In 2024, The Essential Tutorial for Facebook Live on Roku TV</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-ultimate-steps-to-document-lol-encounters/"><u>[Updated] Ultimate Steps to Document LOL Encounters</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-untag-yourself-on-facebook/"><u>A Step-by-Step Approach to Untag Yourself on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-supremacy-on-the-horizon-metas-initiative/"><u>AI Supremacy on the Horizon - Meta's Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/an-overview-of-resources-offered-by-fb-help-center/"><u>An Overview of Resources Offered by FB Help Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-busters-reviving-online-friendships/"><u>Ban Busters: Reviving Online Friendships</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-a-savvy-shopper-top-9-security-measures-for-facebook-sales/"><u>Be a Savvy Shopper: Top 9 Security Measures for Facebook Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/collaboration-facebook-and-rust-for-code-enhancement/"><u>Collaboration: Facebook & Rust for Code Enhancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-effective-job-posts-on-facebook/"><u>Crafting Effective Job Posts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-off-default-mass-tagging-feature/"><u>Cut Off Default Mass-Tagging Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-ties-sever-your-social-media-snooping-record/"><u>Cut the Ties: Sever Your Social Media Snooping Record</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminating-nvidias-opengl-failure-no-3-in-windows-11/"><u>Eliminating NVIDIA's OpenGL Failure No. 3 in Windows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/o-elevate-your-youtube-videos-popularity-through-persistent-cc-licensing-for-2024/"><u>How to Elevate Your YouTube Video's Popularity Through Persistent CC Licensing for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-apple-iphone-xr-activation-lock-by-drfone-ios/"><u>How to Remove Apple iPhone XR Activation Lock</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-iphone-video-editing-shorten-crop-and-resize-basics/"><u>In 2024, IPhone Video Editing Shorten, Crop & Resize Basics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/innovative-video-enhancement-using-vce-22/"><u>Innovative Video Enhancement Using VCE 2.2</u></a></li>
 </ul></div>
 

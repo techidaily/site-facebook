@@ -1,7 +1,7 @@
 ---
 title: The Social Sleuth's Guide to Unmasking Digital Dissemblers
-date: 2024-08-08T11:23:07.192Z
-updated: 2024-08-09T11:23:07.192Z
+date: 2025-01-11T17:18:57.344Z
+updated: 2025-01-12T20:51:13.718Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
  Unfortunately, one of Facebook's biggest strengths—close personal interaction—is often exploited for malicious purposes. Sometimes, the person you're having a conversation with might not be who you think they're. In an era of fake online profiles, it's important to stay vigilant. Here's a quick guide on how to spot a fake profile on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Do People Create Fake Facebook Profiles?
 
  Surely, there's a lot to gain from using your real identity on Facebook. Your friends are able to find you easily, and you'd build a trustworthy brand if you do business on the platform. So why do people create fake Facebook profiles anyway?
@@ -34,14 +35,8 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
 
  At first glance, a fake Facebook profile isn't any different from a genuine one. However, the devil is in the details. Here are some tips for identifying a fake profile on Facebook:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Fake or Stolen Photos
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
 
  Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by[online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
@@ -49,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
  If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like[TinEye](http://tineye.com) and[Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. An Inconsistent Timeline
 
  A lot of the fake accounts on Facebook are pawned off or hacked accounts. There's a surprisingly thriving black market for old Facebook accounts. If a person tries to impersonate another person with a new Facebook account, it's easier to spot. So, malicious individuals go for older accounts. Just about anyone can buy, say, a 10-year-old account of any country of choice.
@@ -60,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
  Sometimes, you'll find a long period of dormancy where there's no post at all and then a period of almost daily posting. This is a red flag.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Strange Stories with a Plea for Help
 
 ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
@@ -70,18 +67,23 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
 
  The reason most scammers succeed in perpetrating their scams on Facebook is that the victims typically believe they know who they're dealing with. The stories can come in different styles. They could say you should help them pay for an online service because they're not with their credit card or something similar. And yes, there's the popular story about being a US soldier on a United Nations mission in Africa, who's desperately in need of your help to return to the US. Yep, fake Facebook profile.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. An Account That Rarely Messages
 
  A sizable number of fake accounts are run by bots or people who know little about you. As a result, they'll typically try to avoid any conversation that might reveal their lack of knowledge about you. This is why a good way to confirm whether or not an account is fake is to start a deep conversation.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Friend Requests From People Who Have No Mutuals
 
  If you're getting lots of friend requests from accounts that do not have any mutual friends, there's a possibility that it's a fake account that's directly targeting you. Sadly, there are a lot of fake profiles out there which are hand-crafted to deceive a particular person. These are trickier to spot, especially as they gain credibility by learning a lot about you. However, they're little slip-ups that you'll still notice along the way.
 
  It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other[ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Protect Yourself From Fake Profiles
 
@@ -89,14 +91,11 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
 
  If you're not sure if you know someone, send them a message asking them to remind you. If they can't or won't respond, then they probably aren't your friend. If you think the account is someone impersonating a friend, try contacting that friend through some previously verified method such as an email address or phone number you already have for them. Also, talk to mutual friends about whether an account that's communicating with you is genuine or not.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +104,23 @@ thumbnail: https://thmb.techidaily.com/e2b01a1128735e3ec5310f2cbee0a0035159bd501
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-a-palette-in-balance-implementing-theoretical-knowledge/"><u>[New] A Palette in Balance Implementing Theoretical Knowledge</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-face-the-future-with-elite-iphone-and-android-modifiers/"><u>[New] Face the Future with Elite iPhone & Android Modifiers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-maximizing-your-virtual-meetings-expert-insights-on-using-zoom-win10-for-2024/"><u>[New] Maximizing Your Virtual Meetings Expert Insights on Using Zoom (Win10) for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-step-by-step-how-to-master-zoom-in-windows-10-for-2024/"><u>[New] Step-by-Step How to Master Zoom in Windows 10 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweet-town-ranking-the-trending-threads/"><u>[Updated] 2024 Approved Tweet Town Ranking the Trending Threads</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-direct-access-in-facebook-application/"><u>Blocking Direct Access in Facebook Application</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-link-to-download-gaomon-s620-drivers/"><u>Direct Link to Download Gaomon S620 Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefined-6-revolutionary-reasons-to-experience-its-metaverse/"><u>Facebook Redefined: 6 Revolutionary Reasons to Experience Its Metaverse</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-14-pro-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-download-and-install-kyocera-printer-drivers-on-your-windows-pc/"><u>How to Download & Install KYOCERA Printer Drivers on Your Windows PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-spot-fake-profiles-on-facebook/"><u>How to Spot Fake Profiles on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-break-alert-a-day-timer-guide/"><u>Mastering Facebook's Break Alert: A Day-Timer Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-of-execution-on-trump-ban-in-progress/"><u>Stay of Execution on Trump Ban in Progress</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/tech-alert-recurring-bedbug-plague-hits-student-chromebooks-across-campuses-insights-from-zdnet/"><u>Tech Alert: Recurring Bedbug Plague Hits Student Chromebooks Across Campuses - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-of-promotional-marketing-deciphering-the-role-of-hashtags-on-fb/"><u>The Puzzle of Promotional Marketing: Deciphering the Role of #Hashtags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vandals-suspected-profile-fraud/"><u>Virtual Vandals: Suspected Profile Fraud</u></a></li>
+</ul></div>
 

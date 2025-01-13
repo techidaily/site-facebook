@@ -1,7 +1,7 @@
 ---
 title: Tactics to Decrease Fb Reel Viewing Frequency
-date: 2024-12-31T00:24:27.736Z
-updated: 2025-01-05T21:48:09.546Z
+date: 2025-01-06T22:33:49.879Z
+updated: 2025-01-12T23:22:01.126Z
 tags:
   - facebook
 categories:
@@ -28,21 +28,17 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Use Facebook Web
 
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
@@ -56,12 +52,16 @@ thumbnail: https://thmb.techidaily.com/f03d30631576de9c6f4ebbf1b70482dc429c1bbf9
 
 ![Screenshot of Settings and Privacy page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -76,15 +76,15 @@ Close
 
 ###
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Hide Content You Don't Like
 
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -100,19 +100,19 @@ Close
 
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
 Close
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## These Are Your Only Good Options
 
@@ -139,20 +139,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-affordable-mcb-theme-images-for-channels-for-2024/"><u>[New] Affordable MCB Theme Images for Channels for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-quick-cinematic-creations-your-ultimate-guide-to-at-home-filmmaking-hacks-for-2024/"><u>[New] Quick Cinematic Creations Your Ultimate Guide to At-Home Filmmaking Hacks for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/bluetooth-audio-lag-quickly-and-easily/"><u>✅ Bluetooth Audio Lag | Quickly & Easily</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/comparing-scales-public-vs-private-ai-systems/"><u>Comparing Scales: Public Vs. Private AI Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-prototype-sparks-interest-could-support-two-cameras/"><u>Facebook Prototype Sparks Interest: Could Support Two Cameras?</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/free-video-editing-software-with-split-screen-capability-online-and-offline-for-2024/"><u>Free Video Editing Software with Split Screen Capability Online & Offline for 2024</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/how-to-adjust-network-and-internet-preferences-via-control-panel-comprehensive-guide-by-yl-computing/"><u>How to Adjust Network & Internet Preferences via Control Panel - Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://facebook.techidaily.com/humor-in-the-age-of-fact-vs-fiction/"><u>Humor in the Age of Fact vs Fiction</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unveiling-the-secrets-of-facebook-video-content-success/"><u>In 2024, Unveiling the Secrets of Facebook Video Content Success</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-social-locating-facebook-profile-and-group-connections/"><u>Mastering Social: Locating Facebook Profile & Group Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-inside-the-new-era-of-privacy-control-with-facebooks-updated-settings-hub/"><u>Step Inside the New Era of Privacy Control With Facebook’s Updated Settings Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-10-affordable-360-degree-cameras-for-2024/"><u>Top 10 Affordable 360 Degree Cameras for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-potential-with-8-must-try-crowdfire-innovations/"><u>Unlocking Potential with 8 Must-Try Crowdfire Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/upcoming-us-legislation-on-tech-monopolies-unpacked/"><u>Upcoming US Legislation on Tech Monopolies Unpacked</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-nikon-j5-unleashed-embracing-4k-camera-technology/"><u>[Updated] Nikon J5 Unleashed Embracing 4K Camera Technology</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-silent-snaps-mastering-the-art-of-unseen-image-recording-on-snapchat/"><u>[Updated] Silent Snaps Mastering the Art of Unseen Image Recording on Snapchat</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-the-art-of-srt-to-subc-innovative-techniques-explored/"><u>[Updated] The Art of SRT to SUBC Innovative Techniques Explored</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-funniest-memes-download-now/"><u>2024 Approved The Funniest Memes, Download Now</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/diy-techniques-to-resolve-persistent-hum-issues-with-your-subwoofers/"><u>DIY Techniques to Resolve Persistent Hum Issues with Your Subwoofers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone 8 Plus</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-realme-narzo-n55-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Realme Narzo N55</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-depth-look-at-camstudios-capturing-capabilities-for-2024/"><u>In-Depth Look at CamStudio's Capturing Capabilities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/major-mistakes-a-look-at-tech-fails-of-22/"><u>Major Mistakes: A Look at Tech Fails of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-shortcut-setup-guide/"><u>Mastering FB: Shortcut Setup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-spontaneous-social-media-ousters/"><u>Navigating Spontaneous Social Media Ousters</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-implications-the-aftermath-of-facial-id-removal-on-social-media/"><u>Privacy Implications: The Aftermath of Facial ID Removal on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-examine-shared-experiences-via-facebook/"><u>Re-Examine Shared Experiences via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/saturation-point-is-facebook-there-now/"><u>Saturation Point – Is Facebook There Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-stitching-piecing-together-profile-and-group-links/"><u>Social Stitching: Piecing Together Profile & Group Links</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-the-issue-how-to-get-stardew-valley-running-smoothly-again/"><u>Solving the Issue: How to Get Stardew Valley Running Smoothly Again</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-networker-eliminating-public-view-of-fb-stories/"><u>The Invisible Networker: Eliminating Public View of Fb Stories</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/understanding-the-digiarty-software-winxdvd-eula-terms-and-conditions/"><u>Understanding the Digiarty Software - WinXDVD EULA Terms and Conditions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-power-dynamics-between-metaai-and-bots/"><u>Unraveling the Power Dynamics Between MetaAI and Bots</u></a></li>
 </ul></div>
 

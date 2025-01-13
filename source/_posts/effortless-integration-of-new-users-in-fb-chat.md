@@ -1,7 +1,7 @@
 ---
 title: Effortless Integration of New Users in FB Chat
-date: 2024-07-29T07:43:13.157Z
-updated: 2024-07-30T07:43:13.157Z
+date: 2025-01-09T21:43:10.045Z
+updated: 2025-01-12T17:24:22.771Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/9304676ddebde0491fac069817e2e83439806cdb3
 
  But how can you actually add contacts to Facebook Messenger? Can you add them on Messenger but not on Facebook? And what if they don’t even have Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How Do I Add New Contacts on Messenger?
 
  If you have the person you want to interact with already added as a Facebook friend, you can chat to them via Messenger really easily.
@@ -33,14 +30,16 @@ thumbnail: https://thmb.techidaily.com/9304676ddebde0491fac069817e2e83439806cdb3
  Suggested contacts will appear, or you can type in a name in the “To:” field to filter that list. All applicable Facebook friends and groups will appear, so simply click on the one you want and start talking!
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Messenger Automatically Add Contacts?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You might have opened Messenger and been shocked to see a list of people who you can chat to right away. That’s because Messenger automatically adds your friends from Facebook to Messenger.
 
@@ -50,21 +49,19 @@ thumbnail: https://thmb.techidaily.com/9304676ddebde0491fac069817e2e83439806cdb3
 
  If you change your mind afterwards, you can do this process again to unsync the two.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ### How Do I Sync My Contacts From Facebook to Messenger?
 
  You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
 
 ## Can I Add Someone on Messenger but Not Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
 
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -84,6 +81,10 @@ Close
 
 ![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
  If you haven’t done this yourself, go to your profile, then tap**Mobile number > Add mobile number** and add your number. Facebook will text you a verification code to check it’s correct.
@@ -95,8 +96,9 @@ Close
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do I Delete Chats From Messenger?
 
  Let’s say you’ve got loads of chat threads open on Messenger now and want to close some. You have a few options to delete the conversations. In case you’re wondering, blocking someone won’t delete the chats on Messenger, but they won’t be able to send new messages from that account.
@@ -111,14 +113,11 @@ So how can you delete old messages on Messenger?
 
  You can now keep in touch with your family and friends easily through Facebook and its associated Messenger app. Of course, there are plenty of instant messaging alternatives, but if you’re intent on sticking with Meta, you can at least make sure your chats are secure by keeping them encrypted too.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,20 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevated-viewership-status-symbolized-by-buttons-for-2024/"><u>[New] Elevated Viewership Status Symbolized by Buttons for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-list-of-top-hd-video-player-apps-android/"><u>[New] Exclusive List of Top HD Video Player Apps, Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-using-youtube-to-boost-classroom-engagement/"><u>[Updated] Strategies for Using YouTube to Boost Classroom Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-legitimacy-of-security-email-at-facebookmailcom-for-fb/"><u>Assessing Legitimacy of Security Email at facebookmail.com for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-trailblazer-finding-friendly-face-on-fb/"><u>Digital Trailblazer: Finding Friendly Face on FB</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-ideal-gps-tools-for-your-apple-smartphone/"><u>Discover the Ideal GPS Tools for Your Apple Smartphone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/essential-english-simplified-by-oxford-and-mondly/"><u>Essential English, Simplified by Oxford & Mondly</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasive-internet-use-top-3-places-without-facebook/"><u>Evasive Internet Use: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-the-tiktok-threat-to-its-revenue-streams/"><u>Facebook Faces the TikTok Threat to Its Revenue Streams</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-zte-nubia-z60-ultra-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-tecno-spark-10-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Tecno Spark 10 Pro Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-xiaomi-redmi-12-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Xiaomi Redmi 12 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
+</ul></div>
 

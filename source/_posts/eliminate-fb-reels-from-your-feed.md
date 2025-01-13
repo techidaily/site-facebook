@@ -1,7 +1,7 @@
 ---
 title: Eliminate Fb Reels From Your Feed
-date: 2024-08-08T11:24:44.730Z
-updated: 2024-08-09T11:24:44.730Z
+date: 2025-01-08T16:39:12.659Z
+updated: 2025-01-12T22:40:57.665Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd65
  Not a fan of TikTok-like videos on Facebook? You're not the only one. While some people (creators, especially) seem to enjoy Facebook's short-form video feature, plenty of others wish it would go away. You might be wondering how to remove Reels from Facebook. Here's what you should know...
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Hide and Reduce Reels On Facebook
 
  Unfortunately, there's no easy way to disable the Reels feature on Facebook. While Facebook has reduced the rate at which Reels show up on your feed, it still doesn't support disabling the feature completely.
@@ -46,17 +47,15 @@ thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd65
 
 ![Screenshot of Settings and Privacy page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Use an Older Version of Facebook
 
@@ -68,12 +67,17 @@ Close
 
 ###
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Hide Content You Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -83,53 +87,43 @@ Close
 
  When you're shown a Reel you don't like, tap on the three dots at the bottom of the screen and select**Hide reel** . Doing this will tell Facebook that you're not interested in seeing this type of content. Therefore, Facebook is less likely to show it to you again.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Disable Auto-Playing Reels on Facebook
 
  Another way you can reduce the bother of Reels is by disabling auto-playing videos. This way, you won't have to worry about videos automatically playing and taking up your data.
 
  To do this, open the Facebook app and tap on the menu option. Tap the**gear icon** , then scroll down and tap on**Media** . Here you can then choose to never autoplay videos or have them only autoplay when you're on Wi-Fi.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## These Are Your Only Good Options
 
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Working Around Facebook Reels
 
  Facebook Reels are here to stay, whether or not we like them. However, we do have some control over how they auto-play and when they show up in our News Feeds. If you’re not a fan of the feature, hopefully, one of these workarounds will help make things more bearable for you until Facebook decides to give us a “hide reel” button.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +132,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-navigating-through-the-best-tools-to-monitor-instagram-metrics-effectively/"><u>[New] In 2024, Navigating Through the Best Tools to Monitor Instagram Metrics Effectively</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unveiling-the-futures-finest-business-strategy-titles-mobilepc/"><u>[New] Unveiling the Future's Finest Business Strategy Titles (Mobile/PC)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-detailed-breakdown-visioncraft-editions-capabilities/"><u>[Updated] In 2024, Detailed Breakdown VisionCraft Edition's Capabilities</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prime-techniques-for-vhs-photo-effects-on-pconline-platforms/"><u>2024 Approved Prime Techniques for VHS Photo Effects on PC/Online Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-business-and-ethics-in-social-media-interactions/"><u>Balancing Business and Ethics in Social Media Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/blended-browsing-experience-the-rise-of-fbinsta-ties/"><u>Blended Browsing Experience: The Rise of FB/Insta Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/demolishing-dying-off-talk-with-concrete-evidence-supporting-fbs-life/"><u>Demolishing Dying-Off Talk with Concrete Evidence Supporting FB’s Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-comments-for-your-fb-post-a-step-by-step-guide/"><u>Disabling Comments for Your FB Post: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-friends-utilizing-facebook-portal-tv-for-video-calls/"><u>Engage Friends: Utilizing Facebook Portal TV for Video Calls</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixative-strategies-addressing-and-correcting-black-screens-in-swbf2/"><u>Fixative Strategies: Addressing and Correcting Black Screens in SWBF2.</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-rog-phone-7-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Asus ROG Phone 7 Phone without PIN</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-workplace-ethics-with-chatgpt-possible-termination-cases/"><u>Navigating Workplace Ethics with ChatGPT - Possible Termination Cases</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-chat-when-will-end-to-end-encryption-hit-fb/"><u>Protecting Privacy in Chat: When Will End-to-End Encryption Hit FB?</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-system-freeze-repair-wdf-api-crashes-in-winos/"><u>Stop System Freeze: Repair WDF API Crashes in WinOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/wave-goodbye-to-work-erase-your-business-profile-online/"><u>Wave Goodbye to Work: Erase Your Business Profile Online</u></a></li>
+</ul></div>
 

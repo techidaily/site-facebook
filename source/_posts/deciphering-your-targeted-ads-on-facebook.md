@@ -1,7 +1,7 @@
 ---
 title: Deciphering Your Targeted Ads on Facebook
-date: 2024-07-29T07:36:17.428Z
-updated: 2024-07-30T07:36:17.428Z
+date: 2025-01-13T16:11:08.387Z
+updated: 2025-01-18T16:07:08.735Z
 tags:
   - facebook
 categories:
@@ -27,45 +27,32 @@ thumbnail: https://thmb.techidaily.com/34105a367409817e108368ea9b44a6be3f4efc35b
 
  By using information such as your age, location, app use, page likes, and data from the sites you browse, Facebook is able to learn which advertisements could get your attention.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ### Interests
 
  This subcategory will reach the audience by their “interest,” which can be broad. Advertisers can type in any brand, place, or topic they have in mind, and target those users.
 
  Related:[Why Targeted Ads Are a Serious Threat to Your Privacy](https://www.makeuseof.com/tag/targeted-ads-threat-privacy/)  This category includes posts users share on their timeline, pages that they “Like,” and apps that they use.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Behaviors
 
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Demographics
 
  This subcategory will reach people by carefully considering certain details, such as their employment, finance, income, household, education, language, and lifestyle.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Learn More About the Ads You See
 
  The easiest way to learn why you are seeing a certain post or ad on Facebook is to use its feature “Why am I seeing this ad?”. This will provide you with specific insight as to why that certain ad or post appeared on your feed.
@@ -78,22 +65,25 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
  However, since[Facebook’s News Feed](https://www.facebook.com/help/1155510281178725) is still a mystery to many, it has provided a detailed explanation of how all of this works.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Adjust Your Ad Preferences on Facebook
 
  Did you know that you can easily adjust your ad preferences on Facebook?
 
  You just have to open Facebook. Click on the small triangle in the corner of the screen, then go to**Settings & Privacy** .
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Facebook Settings & Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings-And-Privacy.jpg)
 
  After that, click**Settings** .
 
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
@@ -109,20 +99,21 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Let Facebook Know Your Ad Preferences
 
  In order to specifically target users, Facebook uses a lot of complex math and algorithms. It all boils down to the information that you decided to make public. To make your Facebook experience more pleasant, Facebook has provided its users with ways to adjust their ad preferences.
 
  That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +122,21 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-become-an-expert-tutorial-for-making-gifs-into-desirable-whatsapp-and-telegram-stickers/"><u>[New] Become an Expert Tutorial for Making GIFs Into Desirable WhatsApp & Telegram Stickers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-hit-the-bottom-finding-your-best-free-youtube-downloader-app-on-android-for-2024/"><u>[New] Hit the Bottom - Finding Your Best Free YouTube Downloader App on Android for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-integrating-apis-expanding-functionality-beyond-basic-html/"><u>[New] In 2024, Integrating APIs Expanding Functionality Beyond Basic HTML</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ecrets-of-hosting-no-cost-seminars-on-the-worlds-largest-video-platform/"><u>[New] Secrets of Hosting No-Cost Seminars on the World’s Largest Video Platform</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-accelerating-video-conversion-youtube-to-mpeg-edition/"><u>[Updated] Accelerating Video Conversion YouTube to MPEG Edition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-boost-your-visibility-with-a-cutting-edge-set-of-banners-for-2024/"><u>[Updated] Boost Your Visibility with a Cutting-Edge Set of Banners for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-triggers-behind-your-fb-ban/"><u>Hidden Triggers Behind Your Fb Ban</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-iphone-6s-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix iPhone 6s Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-leader-joins-forces-with-world-health-in-pandemic-battle/"><u>Internet Leader Joins Forces with World Health in Pandemic Battle</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-posts-a-guide-with-ripl/"><u>Mastering Social Media Posts: A Guide with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/pay-for-verified-meta-user-status/"><u>Pay-for-Verified Meta User Status</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/pro-snipping-made-simple-the-top-5-pc-screen-capture-apps-revealed/"><u>Pro Snipping Made Simple The Top 5 PC Screen Capture Apps Revealed</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/stop-video-preview-on-all-platforms-with-yt-for-2024/"><u>Stop Video Preview on All Platforms with YT for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-sponsored-feed-presentation/"><u>Streamline Social Media Sponsored Feed Presentation</u></a></li>
+</ul></div>
 

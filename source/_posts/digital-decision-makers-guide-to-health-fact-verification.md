@@ -1,7 +1,7 @@
 ---
 title: Digital Decision Makers' Guide to Health Fact Verification
-date: 2024-07-29T07:37:40.940Z
-updated: 2024-07-30T07:37:40.940Z
+date: 2025-01-14T16:13:13.135Z
+updated: 2025-01-18T16:07:54.686Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/4fad5dfb068fa17bd11d3278f05324268f19f0e4e
 
 Here's what social media platforms can do to tackle the issue.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Spread of COVID-19 and Vaccine Misinformation on Social Media
 
  Social media is an extension of our lives, so information shared online can spread like wildfire. When COVID-related misinformation is circulated, it creates uncertainty, skepticism and distrust, which can lead to people rejecting proven public health measures.
@@ -42,12 +39,17 @@ Here's what social media platforms can do to tackle the issue.
 
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -65,12 +67,13 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
@@ -78,9 +81,6 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  They can also share their personal experiences around getting vaccinated.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
@@ -91,12 +91,13 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
@@ -104,27 +105,25 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
  As the COVID-19 pandemic has highlighted, the role played by social media in the spread of misinformation can have serious social and public health consequences. Mass vaccination remains the most likely successful strategy to achieve long-term control of the pandemic.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +132,22 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-building-an-online-empire-ramp-up-video-views/"><u>[Updated] Building an Online Empire Ramp Up Video Views</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-perfect-srt-output-with-premiere-pro/"><u>[Updated] Crafting Perfect SRT Output with Premiere Pro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-step-by-step-methodology-assembling-youtube-playlists-for-2024/"><u>[Updated] Step-by-Step Methodology Assembling YouTube Playlists for 2024</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/boost-your-cpu-performance-effective-strategies-from-yl-computings-experts/"><u>Boost Your CPU Performance: Effective Strategies From YL Computing's Experts</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/conversion-libre-de-wav-a-wmv-sur-internet-avec-movavi-guide-detaille-et-facile-dutilisation/"><u>Conversion Libre De WAV À WMV Sur Internet Avec Movavi – Guide Détaillé Et Facile D'utilisation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-move-to-unlock-oculus-go-root-access-explained/"><u>Facebook's Move to Unlock Oculus Go Root Access Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-unexpected-facespace-lockouts-a-step-by-step-guide/"><u>Fixing Unexpected Facespace Lockouts: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-install-idt-high-definition-audio-codec-on-windows-10-solved/"><u>How to Install IDT High Definition Audio Codec on Windows 10 - Solved</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/meme-world-for-iphone-enthusiasts/"><u>Meme World for iPhone Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-facebooks-revamped-privacy-center/"><u>Navigating the Nuances of Facebook’s Revamped Privacy Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-media-friend-management-on-facebook/"><u>Strategic Social Media Friend Management on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-clash-of-titans-top-six/"><u>Tech's Clash of Titans: Top Six</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-mechanics-behind-espnpluss-successful-launch-a-deep-dive-into-sports-content-accessibility/"><u>The Mechanics Behind ESPN+'s Successful Launch: A Deep Dive Into Sports Content Accessibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-insights-into-metas-revised-data-protection-policy/"><u>Top Insights Into Meta’s Revised Data Protection Policy</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/two-proven-methods-for-free-recovery-of-images-from-erased-hard-drives/"><u>Two Proven Methods for Free Recovery of Images From Erased Hard Drives</u></a></li>
+</ul></div>
 

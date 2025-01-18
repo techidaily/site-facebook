@@ -1,7 +1,7 @@
 ---
 title: "Dismantle Your Online Watchers: Facebook Edition"
-date: 2024-07-29T07:38:45.082Z
-updated: 2024-07-30T07:38:45.082Z
+date: 2025-01-17T16:11:32.935Z
+updated: 2025-01-18T16:06:51.379Z
 tags:
   - facebook
 categories:
@@ -21,17 +21,14 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
  Can you block Facebook tracking? Is it possible to stop Facebook tracking you around the internet? You can certainly try. Here's how you stop Facebook tracking your online movements.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How Does Facebook Track You?
 
  We've become a society intent on sharing...**everything.** How many times do you scroll through your Facebook feed and sigh at the information people are spewing forth? It goes further than that.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Facebook Like and Share Plug-In Tracking
 
  The Facebook "Like" and "Share" buttons found on almost every website funnel data back into the Facebook advertising algorithm. The presence of the Facebook social share buttons means Facebook is hoovering up your data, regardless of whether you have an account or not.
@@ -40,23 +37,21 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
 
  As with Facebook tracking via the Like and Share social plug-ins, the crux of the issue is whether Facebook provides enough information to users to make informed decisions regarding data tracking.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ### 3\. Facebook Cookies
 
  Facebook places a cookie on your computer if you have a Facebook account. It also places a cookie on your computer if you use "Facebook Products, including our website or apps, or visit other websites and apps that use Facebook Products (including the Like button or other Facebook Technologies)."
 
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Facebook Tracking via Instagram and WhatsApp
 
@@ -67,8 +62,9 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
  Thankfully,[WhatsApp users can turn off data sharing](https://www.makeuseof.com/tag/4-security-threats-whatsapp-users-need-know/) . Instagram users do not have the same data privacy option. If you want to switch, here are[four privacy-focused WhatsApp alternatives](https://www.makeuseof.com/tag/4-slick-whatsapp-alternatives-guard-privacy/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does Facebook Know About You?
 
  Facebook tracking serves a single purpose: advertising. Advertising remains the largest source of revenue for Facebook. That's why collecting reams of data is essential for their business model, even after diversification into other areas of tech. After collecting your data for years, what does Facebook know about you?
@@ -83,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
@@ -92,6 +92,10 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -106,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
  Tech giants like Facebook and Google are now so large that a $5 billion fine isn't a deterrent. It is an operating cost, the price of doing business with your data.
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do I Stop Facebook Tracking Me?
 
@@ -127,11 +135,6 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
 ### uBlock Origin
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
@@ -140,9 +143,6 @@ The powerful video editing program for your Windows PC</a>
 
 **Download:** uBlock Origin for[Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### NoScript
 
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
@@ -150,8 +150,9 @@ The powerful video editing program for your Windows PC</a>
 **Download** : NoScript for[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Privacy Badger
 
  Privacy Badger is one of the next best things to NoScript. Where NoScript is for techies (but worth learning, I might add), you could install PrivacyBadger on your Grandma's computer, knowing she'll be protected**and** able to book flights.
@@ -160,12 +161,13 @@ The powerful video editing program for your Windows PC</a>
 
 **Download:** Privacy Badger for[Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Use a Privacy-Focused Alternative Browser
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Epic Privacy Browser
 
@@ -185,11 +187,6 @@ The powerful video editing program for your Windows PC</a>
 
 **Download** : Brave for Windows (64-bit) | Windows (32-bit) | macOS | Linux
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### Advertising Opt-Outs and Disabling Third-Party Cookies
 
 Users can opt out of behavioral advertising using a regional tool.
@@ -204,9 +201,6 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
@@ -227,14 +221,11 @@ Facebook tracking serves one purpose: Facebook advertising.
 
 Image Credit: Sabphoto/Shutterstock
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -243,4 +234,26 @@ Image Credit: Sabphoto/Shutterstock
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-8-apps-accelerating-slow-motion-footage/"><u>[New] 2024 Approved Top 8 Apps Accelerating Slow Motion Footage</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-screencaptureapps-recording-your-next-google-meet-for-2024/"><u>[New] ScreenCaptureApps Recording Your Next Google Meet for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-efficient-laptop-recording-with-top-screenrec-tools-for-2024/"><u>[Updated] Efficient Laptop Recording with Top ScreenRec Tools for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-zdsofts-edge-masterful-video-capture-analysis/"><u>[Updated] ZDSoft's Edge Masterful Video Capture Analysis</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2024aacsbdpluscinavia/"><u>必見!【2024年】評価されたブルーレイコピーガード解除ソフトリスト。AACS、BD+、Cinaviaのすべてを簡単にバイパス！</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-audience-accolades-for-content-makers-for-2024/"><u>Digital Audience Accolades for Content Makers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-messaging-experience-with-new-sounds-on-messenger/"><u>Elevating Messaging Experience with New Sounds on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-social-sweep-effective-tools-to-manage-your-online-communities/"><u>Facebook's Social Sweep: Effective Tools to Manage Your Online Communities</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-nubia-z50-ultra-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Nubia Z50 Ultra Phone? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-poco-f5-pro-5g-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Poco F5 Pro 5G Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-the-social-network-a-data-tale/"><u>Life without The Social Network: A Data Tale</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-or-fiction-separating-fact-from-beliefs/"><u>Metaverse or Fiction: Separating Fact From Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-visuals-vault-assembling-your-artistic-facebook-display/"><u>Online Visuals Vault: Assembling Your Artistic Facebook Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-blocked-verification-codes-in-login-process-facebook/"><u>Overcoming Blocked Verification Codes in Login Process (Facebook)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/simple-ai-explanation-guide/"><u>Simple AI Explanation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-fortunes-5-innovative-revenue-ideas-for-ig-and-facebook/"><u>Social Media Fortunes: 5 Innovative Revenue Ideas for IG & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-8-critical-moves-before-ending-your-fb-journey/"><u>The 8 Critical Moves Before Ending Your FB Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-downward-spiral-of-facebooks-active-users/"><u>The Downward Spiral of Facebook's Active Users</u></a></li>
+<li><a href="https://win-web.techidaily.com/ultimate-guide-leading-soundproof-window-treatments-for-noise-reduction-hometechreview/"><u>Ultimate Guide: Leading Soundproof Window Treatments for Noise Reduction | HomeTechReview</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Deciphering Digital Dialogue: Interpreting Hidden Messages"
-date: 2024-07-29T07:40:10.629Z
-updated: 2024-07-30T07:40:10.629Z
+date: 2025-01-11T16:06:38.939Z
+updated: 2025-01-18T16:12:14.290Z
 tags:
   - facebook
 categories:
@@ -20,24 +20,27 @@ thumbnail: https://thmb.techidaily.com/0275b65ec50c26c096fbd58891ad5416742f7595b
  We’ll show you how to see hidden messages on Facebook Messenger, plus give tips on controlling how you see them.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to See Hidden Messages on Facebook Messenger
 
  The menu to access your hidden Facebook messages is out of sight, but easy to open.
 
  To access it on desktop, open your message list by clicking the Messenger icon at the top-right of Facebook, then slick**See all in Messenger** at the bottom of the list. On the resulting page, click the three-dot button at the top-left of the screen and choose**Message requests** . This will change the sidebar view to show requests instead of your active conversations.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Messenger Desktop Message Requests](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Desktop-Message-Requests.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To see your hidden messages in the mobile Messenger app, tap the hamburger menu at the top-left and choose**Message requests** from the resulting menu. We’ll use the desktop version to illustrate below, but the same applies to the mobile apps too.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Replying to Hidden and Spam Messages
 
  Once you have this menu open using either method, it shows two tabs:**You may know** and**Spam** .**You may know** holds messages from friends of friends, or people that Facebook thinks you might have a connection to.**Spam** , as the name suggests, filters messages from people you have no connection with.
@@ -46,13 +49,14 @@ thumbnail: https://thmb.techidaily.com/0275b65ec50c26c096fbd58891ad5416742f7595b
 
 ![Messenger Requests Main View](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Requests-Main-View.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Until you reply, the other person can’t see if you’ve read their message or when you’re online on Messenger. Once you respond, Messenger will move the chat to your main inbox and treat it like any other. That person will then be able to see your online status, know that you’ve read their messages[via Messenger’s icons](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/) , and can call you.
 
  For messages you aren’t interested in, click the**I don’t want to hear from \[name\]** link above the reply box.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Messenger Stop Hearing From Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Stop-Hearing-From-Person.jpg)
 
  You’ll then get a choice to**Delete chat** (good for cleaning up your request inbox) or**Block** the person (useful if they won’t stop messaging you). Either way, the other person won’t be aware you’ve done this.
@@ -78,8 +82,9 @@ thumbnail: https://thmb.techidaily.com/0275b65ec50c26c096fbd58891ad5416742f7595b
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Other People: Probably Spam
 
  For the**Other people** section, you can choose to have messages go to**Message requests** , or**Don’t receive requests** to block them.**Others on Facebook** includes anyone you don’t have a connection with.
@@ -90,13 +95,14 @@ thumbnail: https://thmb.techidaily.com/0275b65ec50c26c096fbd58891ad5416742f7595b
 
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Your Archived Messages on Messenger
 
  Archiving chats is one of[Messenger’s lesser-known but useful features](https://www.makeuseof.com/useful-facebook-messenger-features/) . When you archive a conversation, it’s removed from your inbox but is still active. Next time someone sends a message in the chat, it will reappear in your main list.
@@ -105,9 +111,6 @@ Close
 
  To see all your archived chats in one place, click the three-dot button at the top-left and choose**Archived chats** . From there, you can click the three-dot button on a chat again and choose**Unarchive chat** to put it back in your inbox, or**Delete chat** if you’re done with it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Messenger Archived Chats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Archived-Chats.jpg)
 
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
@@ -118,9 +121,6 @@ Close
 
  This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 ## Seek and Find Hidden Messages on Facebook Messenger
@@ -131,14 +131,11 @@ Close
 
  Meanwhile, if you love Messenger, there’s a lot more to discover about it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +144,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-facebooks-ultimate-add-ons-for-the-tech-enthusiast/"><u>[New] 2024 Approved Facebook's Ultimate Add-Ons for the Tech Enthusiast</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-maximize-your-marketing-metrics-top-8-apps-for-facebook-like-boost/"><u>[New] In 2024, Maximize Your Marketing Metrics Top 8 Apps for Facebook Like Boost</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-unified-insight-the-easeus-perspective-for-2024/"><u>[New] Unified Insight The EaseUS Perspective for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-avi-visionary-player-compatible-with-pcmobile/"><u>[Updated] Avi Visionary Player Compatible with PC/Mobile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-efficient-broadcast-techniques-incorporating-youtube-loops-on-tv-for-2024/"><u>[Updated] Efficient Broadcast Techniques Incorporating YouTube Loops on TV for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-perpetual-media-capture-utility/"><u>2024 Approved Perpetual Media Capture Utility</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-novel-approach-outshines-apple-with-user-centric-linkage-services/"><u>Facebook’s Novel Approach Outshines Apple with User-Centric Linkage Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-not-to-utilize-fb-web-view-feature/"><u>How Not to Utilize FB Web View Feature</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-iphone-7-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From iPhone 7?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-next-level-splitting-tools-beyond-xsplit/"><u>In 2024, Next-Level Splitting Tools Beyond Xsplit</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policy-on-trump-correct-action-with-time-limit/"><u>Platform Policy on Trump: Correct Action with Time Limit</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-community-removal-on-social-media/"><u>Simplifying Community Removal on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-success-selecting-an-expert-admin-for-facebook/"><u>Steering Success: Selecting an Expert Admin for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-retrieving-lost-facebook-credentials/"><u>Step-by-Step Guide to Retrieving Lost Facebook Credentials</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-vivo-s17-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Vivo S17? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-telegrams-upswing-when-fb-was-inaccessible/"><u>Understanding Telegram's Upswing When FB Was Inaccessible</u></a></li>
+</ul></div>
 

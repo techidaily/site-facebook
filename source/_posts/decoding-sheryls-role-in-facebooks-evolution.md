@@ -1,7 +1,7 @@
 ---
 title: Decoding Sheryl's Role in Facebook's Evolution
-date: 2024-07-29T07:38:15.447Z
-updated: 2024-07-30T07:38:15.447Z
+date: 2025-01-12T16:07:53.990Z
+updated: 2025-01-18T16:16:06.221Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  Sandberg has seen Meta, previously Facebook, through noteworthy events—including several controversies. So, let's take a run-down of her resignation and a brief history of her role at Meta over the years.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Sheryl Sandberg Resigns From Meta
 
  Meta's second-in-command is stepping down from her position after 14 years at the helm of its operations. She announced her resignation in a lengthy Facebook post on May 2, 2022.
@@ -35,14 +32,16 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Brief History of Sheryl Sandberg's Role at Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -52,10 +51,11 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  For instance, there were allegations that Facebook helped Trump win the 2016 US presidential election by allowing his camp to spread fake news on the platform. However, Sandberg denied Facebook's role in Trump's win.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![President Trump Delivering Remarks in New Orleans](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/trump-at-ideag.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Tia Dufour/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:TrumpAmericanFarmBureau%2719.jpg)
 
@@ -69,16 +69,13 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Sheryl Sandberg Is Leaving Meta
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
@@ -86,20 +83,21 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
 
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What's Next for Sheryl Sandberg?
 
  With Mark Zuckerberg's help, Sheryl Sandberg will hand over her work and transition out of the company. And while she will no longer be involved in the day-to-day running of the business, she will continue to serve on Meta's board of directors.
 
  Sandberg admitted she does not know what comes next for her in her Facebook post. However, she said she wants to focus on her foundation and philanthropic efforts, marriage, and blended family.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -108,4 +106,26 @@ thumbnail: https://thmb.techidaily.com/93d0d2f898ab9f2aada0c8c4eae12b5163704e3e0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-video-sharing-showdown-deciding-between-vimeo-youtube-and-dailymotion/"><u>[New] 2024 Approved Video Sharing Showdown Deciding Between Vimeo, YouTube & DailyMotion</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-navigating-cross-platform-social-media-fb-vids-on-whatsapp/"><u>[New] In 2024, Navigating Cross-Platform Social Media FB Vids on WhatsApp</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-visual-flair-a-collection-of-ae-text-presets/"><u>[New] Visual Flair A Collection of AE Text Presets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-investigating-top-viewed-comments/"><u>[Updated] In 2024, Investigating Top Viewed Comments</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-perfect-your-subtitle-skills-with-this-complete-guide-and-tips/"><u>2024 Approved Perfect Your Subtitle Skills with This Complete Guide & Tips</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-honor-x50-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Honor X50 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://article-tips.techidaily.com/designing-multi-layered-photographic-illusions/"><u>Designing Multi-Layered Photographic Illusions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-google-pixel-fold-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Google Pixel Fold.</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-league-stars-refuse-snapchat-facebook-over-abusive-comments/"><u>English League Stars Refuse Snapchat, Facebook Over Abusive Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/interface-evolution-facebooks-pathway-to-metamorphosis/"><u>Interface Evolution: Facebook's Pathway to Metamorphosis</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-ray-ban-stories-via-facebook-what-to-expect/"><u>Introducing Ray-Ban Stories via Facebook: What to Expect</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-abandons-fbs-faces-what-does-this-mean/"><u>Meta Abandons FB's Faces: What Does This Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-social-media-groups-with-updated-guidelines/"><u>Revamping Social Media Groups with Updated Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/swimming-squads-ditch-instagram-twitter/"><u>Swimming Squads Ditch Instagram, Twitter</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/top-7-facebook-fraud-tactics-professional-guidance-to-stay-safe/"><u>Top 7 Facebook Fraud Tactics: Professional Guidance to Stay Safe</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-just-feed-on-user-engagement/"><u>Understanding the Impact of 'Just Feed' On User Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-vagueblogging-a-peek-at-its-intricacies/"><u>Understanding Vagueblogging: A Peek at Its Intricacies</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-digital-following/"><u>Understanding Your Digital Following</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-xiaomi-13t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Xiaomi 13T Pro | Dr.fone</u></a></li>
+</ul></div>
 

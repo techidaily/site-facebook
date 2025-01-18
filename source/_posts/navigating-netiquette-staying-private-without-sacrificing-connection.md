@@ -1,7 +1,7 @@
 ---
 title: "Navigating Netiquette: Staying Private without Sacrificing Connection"
-date: 2025-01-05T05:59:18.954Z
-updated: 2025-01-05T21:14:36.176Z
+date: 2025-01-12T16:07:39.505Z
+updated: 2025-01-18T16:16:11.267Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -53,6 +57,10 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -74,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -86,23 +90,19 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
  The key point is that you simply don't (and can't) know all the facts. If someone is sick or in trouble, they should seek professional help. This also applies to advice on exercise, weight loss, diet, finance, relationships, and other sensitive topics. You're not going to get the whole picture from a social post.
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Scammy Giveaways and Contests
 
@@ -115,7 +115,7 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. Privileged Inside Information
@@ -133,7 +133,7 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
@@ -157,24 +157,15 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-understanding-video-standards-on-the-microblogging-site/"><u>[New] 2024 Approved Understanding Video Standards on the Microblogging Site</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-top-picks-perfect-mics-for-creator-pros/"><u>[New] Top Picks Perfect Mics for Creator Pros</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-draw-laughter-dont-pay-quickmemes-guide/"><u>[Updated] Draw Laughter, Don't Pay - QuickMemes Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-elevate-your-gaming-the-funimate-way/"><u>[Updated] Elevate Your Gaming - The Funimate Way</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-creating-an-efficient-framework-for-ps3-game-screencasts/"><u>2024 Approved Creating an Efficient Framework for PS3 Game Screencasts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-unlock-beat-potential-explore-these-free-tempo-tracking-tools/"><u>2024 Approved Unlock Beat Potential – Explore These Free Tempo Tracking Tools</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/descargar-e-instalar-convertidor-de-wma-a-mp3-proporcionado-por-movavi-sin-coste/"><u>Descargar E Instalar Convertidor De WMA a MP3 Proporcionado Por Movavi - Sin Coste</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-online-identity-with-simplicity/"><u>Elevate Your Online Identity with Simplicity</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-eyes-are-always-on-you-heres-the-counter/"><u>Facebook's Eyes Are Always on You? Here's the Counter</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-and-giphy-in-trouble-selling-possibility-explored/"><u>FB and Giphy in Trouble? Selling Possibility Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-capitalize-on-your-tracks-through-facebooks-shared-earnings/"><u>How to Capitalize on Your Tracks Through Facebook's Shared Earnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-reels-on-facebook/"><u>How to Create Reels on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/legacy-management-keeping-or-clearing-a-deceaseds-facebook/"><u>Legacy Management: Keeping or Clearing a Deceased's Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/move-your-memories-fb-posts-and-notes-on-leading-websites-now-available/"><u>Move Your Memories: FB Posts & Notes on Leading Websites Now Available</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-essence-of-crossfading-soundtracks-for-2024/"><u>The Essence of Crossfading Soundtracks for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-exodus-uncovering-facebooks-user-drop/"><u>The Hidden Exodus: Uncovering Facebook's User Drop</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-influence-of-soundtracks-on-a-teasers-audience-reception-for-2024/"><u>The Influence of Soundtracks on a Teaser's Audience Reception for 2024</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/troubleshooting-sluggish-boot-times-expert-tips-from-yl-computings-yl-software/"><u>Troubleshooting Sluggish Boot Times: Expert Tips From YL Computing's YL Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/you-can-now-broadcast-on-instagram-live-without-video-or-sound/"><u>You Can Now Broadcast on Instagram Live Without Video or Sound</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-journey-to-high-definition-mastering-sdr-to-hdr-conversion/"><u>[New] Journey to High Definition Mastering SDR to HDR Conversion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-macos-sierra-switching-back-to-os-x-el-capitan/"><u>[Updated] 2024 Approved MacOS Sierra Switching Back To OS X El Capitan</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-unseen-ui-techniques-for-newcomers/"><u>2024 Approved Ultimate Unseen UI Techniques for Newcomers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2209040-9780007348534-an-angel-held-my-hand/"><u>An Angel Held My Hand | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/employers-guide-to-online-job-listings-facebook/"><u>Employer's Guide to Online Job Listings: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-leadership-sheryls-time-at-facebook-inc/"><u>Innovating Leadership: Sheryl’s Time at Facebook Inc</u></a></li>
+<li><a href="https://facebook.techidaily.com/silencing-sovereign-trumps-legal-action-against-g-f-t/"><u>Silencing Sovereign? Trump's Legal Action Against G-F-T</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>Swirling Shadows Adding Realistic Motion to Photoshop Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-reactivate-halted-fb-notification-system/"><u>Techniques to Reactivate Halted FB Notification System</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/transforme-sua-backup-com-o-upgrade-gratis-do-aomei-backupper-estandarte-versao-profissional/"><u>Transforme Sua Backup Com O Upgrade Grátis Do AOMEI Backupper - Estandarte Versão Profissional!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2025-01-04T17:37:57.293Z
-updated: 2025-01-05T18:02:40.369Z
+date: 2025-01-14T16:22:31.326Z
+updated: 2025-01-18T16:25:43.259Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
@@ -46,12 +46,16 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -63,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -75,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  Amazon says it took down more than 200 million suspected fake reviews in 2020 alone. Amazon has also reported more than 10,000 fake review groups to Meta since 2020\. Meta has taken down more than half.
 
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
 
@@ -101,20 +101,19 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-incorporating-captions-into-instagrams-video-platform/"><u>[Updated] 2024 Approved Incorporating Captions Into Instagram's Video Platform</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-elite-no-price-facebook-visual-storytelling-suite-for-2024/"><u>[Updated] Elite No-Price Facebook Visual Storytelling Suite for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/10-cool-features-that-make-you-love-filmora-video-editor-for-2024/"><u>10 Cool Features That Make You Love Filmora Video Editor for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-your-facebook-blocked-entities/"><u>Accessing Your Facebook Blocked Entities</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-evaluation-of-the-ecovacs-deebot-x2-omni-robotic-vacuum-mastery-in-home-cleaning/"><u>Comprehensive Evaluation of the Ecovacs Deebot X2 Omni Robotic Vacuum: Mastery in Home Cleaning</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-steps-for-a-stress-free-fb-deletion/"><u>Essential Steps for a Stress-Free FB Deletion</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-format-text-in-messenger-bold-italics-and-more/"><u>How to Format Text in Messenger: Bold, Italics, and More</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/lg-tv-and-netflix-woes-discover-effective-fixes-to-resume-streaming/"><u>LG TV and Netflix Woes? Discover Effective Fixes to Resume Streaming</u></a></li>
-<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/personalize-your-desktop-in-windows-11-adjusting-taskbar-colors/"><u>Personalize Your Desktop in Windows 11 - Adjusting Taskbar Colors</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/seamless-worldwide-engagement-with-chatgpt/"><u>Seamless Worldwide Engagement with ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-virtual-space-meta-vs-facebook/"><u>Securing Your Virtual Space: Meta Vs. Facebook?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/setting-up-your-footprint-a-complete-guide-to-fb-instream-ad-configuration/"><u>Setting Up Your Footprint A Complete Guide to FB Instream Ad Configuration</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-forecast-of-social-media-turmoil-fb-edition/"><u>The Forecast of Social Media Turmoil: FB Edition</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/twitters-guide-adding-videos/"><u>Twitter's Guide Adding Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-achieve-synchronicity-with-your-browser-and-fbs-autoplay-feature/"><u>[New] Achieve Synchronicity with Your Browser and FB's Autoplay Feature</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-advanced-visual-treatment-adding-effects-on-videos-pcmobile/"><u>[New] Advanced Visual Treatment Adding Effects on Videos (PC/Mobile)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unleash-creativity-with-snapchats-advanced-zooming/"><u>[Updated] Unleash Creativity with Snapchat's Advanced Zooming</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/beheben-sie-probleme-mit-dem-windows-11-defender-drei-bewahrte-ansatze-zur-wiederherstellung-der-funktionalitat/"><u>Beheben Sie Probleme Mit Dem Windows 11 Defender: Drei Bewährte Ansätze Zur Wiederherstellung Der Funktionalität</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/common-fixes-for-a-malfunctioning-logitech-g633-mic-get-it-back-on-track/"><u>Common Fixes for a Malfunctioning Logitech G633 Mic – Get It Back on Track!</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-raw-to-revealed-constructing-compelling-collage-features/"><u>From Raw to Revealed: Constructing Compelling Collage Features</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/host-the-perfect-karaoke-bash-tips-and-tricks-for-your-living-room-concert/"><u>Host the Perfect Karaoke Bash: Tips and Tricks for Your Living Room Concert</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-start-a-heart-connection-on-social-media-facebook-dating/"><u>How to Start a Heart Connection on Social Media: Facebook Dating</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-metacosm-musings-the-best-quotations-for-virtual-inhabitants/"><u>In 2024, Metacosm Musings The Best Quotations for Virtual Inhabitants</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-a-picture-in-picture-effect-is-a-very-popular-effect-in-that-it-allows-us-to-see-two-images-at-once-this-tutorial-shows-you-how-to-create-this-in-fcp-fo/"><u>New A Picture-in-Picture Effect Is a Very Popular Effect in that It Allows Us to See Two Images at Once. This Tutorial Shows You How to Create This in FCP for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefine-your-online-presence-why-its-time-to-say-no-to-facebook/"><u>Redefine Your Online Presence: Why It's Time to Say No to Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tackling-obs-delays-solutions-for-smooth-streams-and-records/"><u>Tackling OBS Delays? Solutions for Smooth Streams and Records!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bedrock-of-bitcoin-economy-crypto-stability-coins/"><u>The Bedrock of Bitcoin Economy: Crypto Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/undercover-data-collection-on-pinterest-and-tumblr-to-maintain-free-status/"><u>Undercover Data Collection on Pinterest & Tumblr to Maintain Free Status</u></a></li>
 </ul></div>
 

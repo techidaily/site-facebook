@@ -1,7 +1,7 @@
 ---
 title: Decoding Hidden Meanings on Facebook Messenger
-date: 2024-07-29T07:38:56.616Z
-updated: 2024-07-30T07:38:56.616Z
+date: 2025-01-17T16:04:15.747Z
+updated: 2025-01-18T16:07:32.368Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
  We’ll show you how to see hidden messages on Facebook Messenger, plus give tips on controlling how you see them.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Hidden Messages on Facebook Messenger
 
  The menu to access your hidden Facebook messages is out of sight, but easy to open.
@@ -30,7 +27,15 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
 ![Messenger Desktop Message Requests](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Desktop-Message-Requests.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To see your hidden messages in the mobile Messenger app, tap the hamburger menu at the top-left and choose**Message requests** from the resulting menu. We’ll use the desktop version to illustrate below, but the same applies to the mobile apps too.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Replying to Hidden and Spam Messages
 
@@ -68,33 +73,24 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Other People: Probably Spam
 
  For the**Other people** section, you can choose to have messages go to**Message requests** , or**Don’t receive requests** to block them.**Others on Facebook** includes anyone you don’t have a connection with.
 
  Since Messenger now works across Facebook and Instagram, the**Accounts on Instagram** toggle controls people reaching out from the other app. If you’re checking these controls in the mobile Messenger app, tap**Add your Instagram account** to link your Facebook and Instagram accounts for a more seamless experience.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![01a Messenger Settings Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01a-Messenger-Settings-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## How to See Your Archived Messages on Messenger
 
  Archiving chats is one of[Messenger’s lesser-known but useful features](https://www.makeuseof.com/useful-facebook-messenger-features/) . When you archive a conversation, it’s removed from your inbox but is still active. Next time someone sends a message in the chat, it will reappear in your main list.
@@ -108,22 +104,25 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Block People on Facebook Messenger
 
  To complete our discussion on managing hidden and unread messages on Messenger, don’t forget you can[block people on Messenger](https://www.makeuseof.com/how-to-block-and-unblock-messenger/) to prevent them from contacting you. To access this page, click the same three-dot menu in Messenger and choose**Preferences > Manage blocking** . This brings you to the[Blocking tab](https://www.facebook.com/settings/?tab=blocking) of your Facebook settings.
 
  This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Seek and Find Hidden Messages on Facebook Messenger
 
  We’ve walked through all the ways to find hidden messages in Messenger, along with how to control what messages you receive.
@@ -132,14 +131,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Meanwhile, if you love Messenger, there’s a lot more to discover about it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +144,26 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-tap-into-audience-desires-strategies-for-video-templates/"><u>[New] In 2024, Tap Into Audience Desires Strategies for Video Templates</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-key-top-5-agile-camcorders-for-adventure-selections/"><u>[New] Key Top 5 Agile Camcorders for Adventure Selections</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-stopping-auto-capture-in-apples-recorder-for-2024/"><u>[New] Stopping Auto-Capture in Apple's Recorder for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-enhancing-engagement-through-effective-video-strategies-on-fb/"><u>2024 Approved Enhancing Engagement Through Effective Video Strategies on FB</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-step-by-step-vsco-image-enhancement/"><u>2024 Approved Step-by-Step VSCO Image Enhancement</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/best-anti-tracker-software-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>Best Anti Tracker Software For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/csgo-crash-woes-heres-how-you-can-achieve-a-smooth-gaming-experience/"><u>CS:GO Crash Woes? Here's How You Can Achieve a Smooth Gaming Experience!</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-gameplay-with-the-ultimate-asus-vg245h-gaming-monitor/"><u>Elevate Your Gameplay with The Ultimate Asus VG245H Gaming Monitor</u></a></li>
+<li><a href="https://os-tips.techidaily.com/get-your-iphone-navigating-out-of-sticky-zoom-with-these-5-guaranteed-fixes/"><u>Get Your iPhone Navigating Out of Sticky Zoom with These 5 Guaranteed Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-acquainted-with-social-networkings-love-hub/"><u>Getting Acquainted with Social Networking's Love Hub</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-2030-the-anticipated-renaissance/"><u>Instagram 2030: The Anticipated Renaissance</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/pitch-perfect-promos-mastering-the-art-of-music-in-social-media/"><u>Pitch-Perfect Promos Mastering the Art of Music in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-moral-dilemrances-of-disapproving-platforms/"><u>The Moral Dilemrances of Disapproving Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-visuals-in-enhancing-facebook-engagement/"><u>The Role of Visuals in Enhancing Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-significance-of-being-on-the-verified-list/"><u>The Significance of Being on the 'Verified' List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-redefining-your-fb-profile-name/"><u>The Ultimate Guide to Redefining Your FB Profile Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-hidden-disclosures/"><u>Unveiling Facebook's Hidden Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-scares-us-threefold-in-society/"><u>Why Meta Scares Us Threefold in Society</u></a></li>
+</ul></div>
 

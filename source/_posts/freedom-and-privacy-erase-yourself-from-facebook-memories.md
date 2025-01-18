@@ -1,7 +1,7 @@
 ---
 title: "Freedom and Privacy: Erase Yourself From Facebook Memories"
-date: 2025-01-11T17:50:00.803Z
-updated: 2025-01-13T00:15:50.914Z
+date: 2025-01-13T16:16:26.537Z
+updated: 2025-01-18T16:12:33.148Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Find Your Photos on Facebook
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 ![Access photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/profile-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The thumbnail for each image should have a**pencil icon** in the upper right-hand corner. Click this to access the settings and options for that image. If you uploaded the picture, you can delete it. If you didn't upload it, you will still have the option to untag yourself.
@@ -47,13 +47,13 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 ![Facebook warns you before you delete a photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/fb-delete-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Related:[How to Make Your Photos Private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Happens When You Delete or Remove Tags in Facebook Photos?
@@ -67,7 +67,7 @@ When you delete a photo from Facebook, it's gone forever.
  Related:[How to Delete a Facebook Post (or Posts)](https://www.makeuseof.com/how-to-delete-facebook-posts/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## There's Always More That You Can Do
@@ -91,17 +91,17 @@ When you delete a photo from Facebook, it's gone forever.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-sculpt-your-vision-editing-videos-using-story-remix-and-windows-photos/"><u>[New] Sculpt Your Vision Editing Videos Using Story Remix and Windows Photos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-correcting-obs-darkness-during-live-streams/"><u>[Updated] 2024 Approved Correcting OBS Darkness During Live Streams</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-ace-all-round-strategies-maximizing-efficiency-in-acquiring-and-storing-vimeo-videos-for-2024/"><u>[Updated] Ace All-Round Strategies Maximizing Efficiency in Acquiring & Storing Vimeo Videos for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/a-dual-device-expedition-in-virtual-frontiers-for-2024/"><u>A Dual-Device Expedition in Virtual Frontiers for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Motorola Moto E13 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/delayed-dictum-social-media-court-hesitates/"><u>Delayed Dictum: Social Media Court Hesitates</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-identifies-counterfeits/"><u>Demystifying How PhotoDNA Identifies Counterfeits</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decorum-or-discretion-managing-late-family-members-on-fb/"><u>Digital Decorum or Discretion? Managing Late Family Members on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/dividing-lines-in-digital-districts-with-facebook-update/"><u>Dividing Lines in Digital Districts with Facebook Update</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/simplify-your-experience-obtaining-microsoft-ergonomic-keyboard-4000-drivers-with-a-simple-click/"><u>Simplify Your Experience: Obtaining Microsoft Ergonomic Keyboard 4000 Drivers with a Simple Click</u></a></li>
-<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-samsung-galaxy-z-flip-5-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Samsung Galaxy Z Flip 5 on Windows?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-digital-decluttering-how-to-shun-surplus-backdrops-effectively/"><u>[New] Digital Decluttering How to Shun Surplus Backdrops Effectively</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevate-viewer-connection-mastering-the-art-of-square-footage-in-videos/"><u>[New] In 2024, Elevate Viewer Connection Mastering the Art of Square Footage in Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-passport-photos-made-simple-10-free-high-quality-images-available-for-2024/"><u>[Updated] Passport Photos Made Simple 10 Free, High-Quality Images Available for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/elevate-your-viewing-pleasure-on-apple-tv-secrets-to-getting-the-most-out-of-your-device/"><u>Elevate Your Viewing Pleasure on Apple TV: Secrets to Getting the Most Out of Your Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-peace-in-the-online-world-memorializing-vs-deleting/"><u>Ensuring Peace in the Online World - Memorializing Vs. Deleting</u></a></li>
+<li><a href="https://fox-links.techidaily.com/epic-footage-and-photos-mastering-the-hero5-black-experience/"><u>Epic Footage and Photos Mastering the Hero5 Black Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-stumbling-blocks-the-top-5-times-users-were-letdown/"><u>Facebook's Stumbling Blocks: The Top 5 Times Users Were Letdown</u></a></li>
+<li><a href="https://techidaily.com/fix-superfetchs-full-disk-utilization-issue-a-complete-guide/"><u>Fix Superfetch's Full Disk Utilization Issue: A Complete Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-superior-script-architect-space/"><u>In 2024, Superior Script Architect Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-targeted-commercial-content-on-virtual-spaces/"><u>Less Targeted Commercial Content on Virtual Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-optimizing-video-and-image-quality-in-fb-app/"><u>Tips for Optimizing Video and Image Quality in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-of-securityfacebookmailcom-for-authenticity-and-protection/"><u>Validation of @security@facebookmail.com for Authenticity and Protection</u></a></li>
 </ul></div>
 

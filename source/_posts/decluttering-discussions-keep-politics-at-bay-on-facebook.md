@@ -1,7 +1,7 @@
 ---
 title: "Decluttering Discussions: Keep Politics at Bay on Facebook"
-date: 2024-07-29T07:36:40.136Z
-updated: 2024-07-30T07:36:40.136Z
+date: 2025-01-16T16:08:01.933Z
+updated: 2025-01-18T16:02:15.158Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,12 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
  Here's how you can block political and other annoying content on your Facebook account.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Facebook's Timeline Can Get Swamped With Politics
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
@@ -34,22 +35,23 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -63,10 +65,11 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
 ## 2\. Remove Your Political Views From Your Profile
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -77,14 +80,11 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use a Browser Extension
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
  You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
@@ -97,14 +97,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  With these tools at your disposal, there's very little reason to get annoyed at Facebook ever again. Facebook doesn't have to be irritating—it can be a legitimate way to keep up with friends and talk about interesting things, without getting bogged down in toxic rants and attention-seeking behavior.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,4 +110,26 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/as-principais-ferramentas-gratuitas-para-migracao-do-sistema-operacional-com-seguranca-para-ssd/"><u>As Principais Ferramentas Gratuitas Para Migração Do Sistema Operacional Com Segurança Para SSD.</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comparative-review-of-premium-streaming-services-for-2024/"><u>Comparative Review of Premium Streaming Services for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhance-lost-ark-stability-and-performance-fixing-critical-frame-rate-dips/"><u>Enhance Lost Ark Stability & Performance - Fixing Critical Frame Rate Dips</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-to-limit-fb-profile-image-access/"><u>Essential Steps to Limit FB Profile Image Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-buying-a-facebook-portal-model/"><u>Guide to Buying a Facebook Portal Model</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premium-video-boosts-the-9-finest-webcam-effects/"><u>In 2024, Premium Video Boosts The 9 Finest Webcam Effects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-trending-topics-and-themes-to-hook-your-streams-attention/"><u>In 2024, Trending Topics and Themes to Hook Your Stream's Attention</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/innovate-your-cooking-routine-using-these-7-chatgpt-strategies/"><u>Innovate Your Cooking Routine Using These 7 ChatGPT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-stronger-confidentiality-standards-facebooks-new-chat-encryption-features-rollout/"><u>Introducing Stronger Confidentiality Standards: Facebook’s New Chat Encryption Features Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-big-thing-on-facebook-enhanced-story-panel-features/"><u>Next Big Thing on Facebook? Enhanced Story Panel Features</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/prime-live-soundscapes-for-fans-for-2024/"><u>Prime Live Soundscapes for Fans for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-rectify-absence-of-security-code-from-facebook/"><u>Steps to Rectify Absence of Security Code From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-unveiled-entry-into-metas-profile-management-domain/"><u>Strategies Unveiled: Entry Into Meta’s Profile Management Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-reveals-key-players-in-covid-myth-spread/"><u>Study Reveals Key Players in Covid Myth Spread</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-humor-rules-at-facebook/"><u>The Evolution of Humor Rules at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-10-economical-apps-for-social-sway/"><u>The Top 10 Economical Apps for Social Sway</u></a></li>
+<li><a href="https://techidaily.com/vivo-y100i-video-recovery-recover-deleted-videos-from-vivo-y100i-by-fonelab-android-recover-video/"><u>Vivo Y100i Video Recovery - Recover Deleted Videos from Vivo Y100i</u></a></li>
+</ul></div>
 

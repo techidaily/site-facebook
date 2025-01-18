@@ -1,7 +1,7 @@
 ---
 title: Delete Your Facebook Notification Queue Efficiently
-date: 2024-07-29T07:39:21.694Z
-updated: 2024-07-30T07:39:21.694Z
+date: 2025-01-15T16:13:47.399Z
+updated: 2025-01-18T16:10:05.666Z
 tags:
   - facebook
 categories:
@@ -19,14 +19,8 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Delete Facebook Notifications
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
  Let's start with the most important question: How do you delete notifications on Facebook?
@@ -41,9 +35,6 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Clear All Facebook Notifications
 
  When you log into Facebook and see a pile of unread notifications, you'll want to clear them as soon as possible. If you click on the bell icon, the unread notifications red dot disappears.
@@ -52,9 +43,6 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 
  Weirdly, there is no way to clear your unread notifications from the smartphone app without clicking on each one. Instead, you need to perform the process from the web app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
  To mark all of your Facebook notifications as read, follow the guide below:
@@ -64,15 +52,16 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 3. Click on the three horizontal dots.
 4. Select**Mark all as read** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Turn Off Facebook Notifications
 
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Turn Off Facebook Notifications as They Arrive
 
  The process to turn off Facebook notifications as they arrive is similar to the process for deleting Facebook notifications.
@@ -108,17 +97,33 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -131,9 +136,6 @@ Close
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Stop Facebook Notifications on iOS
 
  If you have an iOS device, follow these steps to stop Facebook notifications:
@@ -143,9 +145,6 @@ Close
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 ## More Ways to Make Facebook Work for You
 
  Wrestling back control of your Facebook notifications is just one way to make Facebook work for you. Yes, there's a little bit of micromanagement involved, but it's worth the effort to ensure Facebook is more useful than annoying.
@@ -154,14 +153,11 @@ Close
 
  Image Credit: jhansen2/[Depositphotos](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU37313/https://depositphotos.com/7590222/stock-illustration-seamless-social-networking-background.html)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +166,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-how-to-create-a-lifestyle-video-to-inspire-your-audience/"><u>[New] In 2024, How to Create a Lifestyle Video to Inspire Your Audience</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-instagrams-financial-opportunities-a-comprehensive-guide-for-2024/"><u>[New] Navigating Instagram's Financial Opportunities A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-start-and-participate-in-group-video-chats-zoom-on-androids-way/"><u>[New] Start and Participate in Group Video Chats Zoom on Android's Way</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-personalizing-your-youtube-shorts-templates-for-2024/"><u>[Updated] Strategies for Personalizing Your YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/how-to-overcome-the-error-0x808-in-windows-11-system-restore-top-tips-plus-quick-fixes/"><u>How to Overcome the Error 0X80^8 in Windows 11 System Restore [Top Tips + Quick Fixes]</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-outlook-preview-in-windows-11-pro/"><u>Mastering Outlook Preview in Windows 11 Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ct-your-youtube-clips-essential-editing-techniques-unveiled-for-2024/"><u>Perfect Your YouTube Clips Essential Editing Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/possible-new-identity-for-facebook-uncovered/"><u>Possible New Identity for Facebook Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-cost-to-america-excessive-damage/"><u>Social Media's Cost to America: Excessive Damage</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-for-efficiently-handling-fb-connected-services/"><u>Tactics for Efficiently Handling FB-Connected Services</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/uncovering-the-ultimate-screen-recorder-compare-and-choose-obsfraps-for-2024/"><u>Uncovering the Ultimate Screen Recorder Compare and Choose (OBS/Fraps) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-sudden-shift-to-telegram-after-fbs-hiatus/"><u>Unpacking the Sudden Shift to Telegram After FB's Hiatus</u></a></li>
+<li><a href="https://article-tips.techidaily.com/viewers-guide-app-performance-analysis-for-2024/"><u>Viewer's Guide App Performance Analysis for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-social-sphere-scan-identifying-these-9-cyber-threat-indicators/"><u>Your Social Sphere Scan: Identifying These 9 Cyber Threat Indicators</u></a></li>
+</ul></div>
 

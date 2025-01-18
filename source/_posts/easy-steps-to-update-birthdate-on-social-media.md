@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Update Birthdate on Social Media
-date: 2024-07-29T07:38:12.861Z
-updated: 2024-07-30T07:38:12.861Z
+date: 2025-01-15T16:13:25.426Z
+updated: 2025-01-18T16:00:47.101Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
  If you've ever received greetings from your Facebook friends on a date that wasn't your birthday, this article is for you. We'll show you how to change your Facebook birthday to avoid those wishes coming on the wrong date.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What You Need to Know Before Changing Your Birthday on Facebook
 
  Before we go into the steps to changing your birthday on Facebook, let us cover some preliminary information.
@@ -34,16 +35,25 @@ thumbnail: https://thmb.techidaily.com/d03b713b6f6bb665862fd62a3d2bf27a022b75c76
 
  Also, you can only change your birthday three times. Well, maybe more, but you'll have to send a request for the fourth time, and Facebook staff will make the change for you.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Change Your Birthday on the Facebook App
 
 Follow the steps below to edit your birthday on the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Edit basic info on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Edit-basic-info-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![edit basic info on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-basic-info-on-facebook.jpg)
 
@@ -64,43 +74,28 @@ Here's how:
 
 * Log on to[Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
 * Click on**About** in the menu below your name and profile photo.
 
 ![facebook-profile-page-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Select**Basic and Contact Info** in the menu on the left.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![contact-info-facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-info-facebook-1.JPG)
 
 * Scroll down to where you'll find your birth date and birth year.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change facebook birthday 2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday-2.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## How to Request a Birthday Change to Facebook
 
  If you've changed your birthdate more than three times, you can still do so. But this time, you'll have to send a request to Facebook to change it for you. Here's how to do that:
@@ -109,12 +104,13 @@ No advertising on the website.
 
 ![contact facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-facebook.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Input your desired changes.
 * Select a reason for the change in the dropdown menu and click send.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
 
  Facebook will then correct the error in your birthdate as soon as your request is processed.
@@ -125,14 +121,11 @@ No advertising on the website.
 
  One other importance of having accurate information, like birthdays, on your Facebook account is that they sometimes require government-issued IDs that show your actual birthday when retrieving an account. So if the birthdate on your ID and on the social media platform doesn't match up, you might lose your account permanently.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +134,20 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-direct-route-uploading-from-youtube-to-dailymotion/"><u>[New] 2024 Approved Direct Route Uploading From YouTube to Dailymotion</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-pictomixer-dynamic-media-player-for-macos/"><u>[New] PictoMixer Dynamic Media Player for macOS</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-essential-guidelines-for-choosing-the-right-podcast-name/"><u>[Updated] In 2024, Essential Guidelines for Choosing the Right Podcast Name</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-perfect-planning-how-to-schedule-your-online-teams-virtual-gatherings-google-for-2024/"><u>[Updated] Perfect Planning How to Schedule Your Online Team's Virtual Gatherings (Google) for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/10-fixes-for-when-your-iphone-apps-keep-crashing/"><u>10 Fixes for When Your iPhone Apps Keep Crashing</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-unwanted-footprint-delete-your-facebook-watching-trails/"><u>Eliminate Unwanted Footprint: Delete Your Facebook Watching Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-guide-recovering-and-reinforcing-your-fb-security/"><u>Emergency Guide: Recovering & Reinforcing Your FB Security</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-poco-x6-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Poco X6</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-vivo-v27-devices-by-drfone-android/"><u>How to Reset Gmail Password on Vivo V27 Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-lava-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Lava</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-trick-for-organizing-pc-files-how-to-switch-on-and-operate-sidebar-view-in-explorer/"><u>Ultimate Trick for Organizing PC Files: How to Switch On and Operate Sidebar View in Explorer</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-how-to-recognize-fake-facebook-users/"><u>Virtual Vigilance: How to Recognize Fake Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-scrubbing-your-facebook-view-logs-is-smart/"><u>Why Scrubbing Your Facebook View Logs Is Smart</u></a></li>
+</ul></div>
 

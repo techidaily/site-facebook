@@ -1,7 +1,7 @@
 ---
 title: Post-Block Reconciliation Tactics for FB Friends
-date: 2025-01-07T21:35:55.609Z
-updated: 2025-01-12T16:04:55.379Z
+date: 2025-01-15T16:15:19.850Z
+updated: 2025-01-18T16:22:46.752Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Unblock Someone on Facebook
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 ![Facebook Blocked Users 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Blocked-Users-2021.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Notice that the**Blocking** page has several types of blocking. Anyone in**Block users** cannot see what you post, tag you, chat with you, or send you a friend request. However, you may still see that person if you're both in a group or use the same game.
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Refriend Someone on Facebook After Unblocking Them
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
@@ -101,22 +101,22 @@ thumbnail: https://thmb.techidaily.com/4d7dde3a99efac5f6bdb879d88148e0d5b48fb102
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-best-ten-spotify-equipment-for-high-quality-recording/"><u>[New] The Best Ten Spotify Equipment for High-Quality Recording</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-unleash-creativity-on-snapchat-with-immersive-boomerangs/"><u>[New] Unleash Creativity on Snapchat with Immersive Boomerangs</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-ultimate-movie-watchlists-streamlining-screen-time/"><u>[Updated] 2024 Approved Ultimate Movie Watchlists Streamlining Screen Time</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-liminal-film-narrative-plan-for-2024/"><u>[Updated] Liminal Film Narrative Plan for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/anticipating-the-outcome-when-will-fbs-ruling-on-trump-be-revealed/"><u>Anticipating the Outcome: When Will FB's Ruling on Trump Be Revealed?</u></a></li>
-<li><a href="https://facebook.techidaily.com/apple-decides-its-path-no-mimicking-of-facebooks-metaverse/"><u>Apple Decides Its Path, No Mimicking of Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-virtual-vendetta-precautionary-tips-against-social-media-swindles/"><u>Avoiding Virtual Vendetta: Precautionary Tips Against Social Media Swindles</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-life-and-likes-cutting-down-on-facebook-time/"><u>Balancing Life and Likes: Cutting Down on Facebook Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-random-facebook-lockout/"><u>Breaking Free From Random Facebook Lockout</u></a></li>
-<li><a href="https://facebook.techidaily.com/colliding-realms-diving-into-metaverse-potentialities/"><u>Colliding Realms: Diving Into Metaverse Potentialities</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-tailored-online-avatar-scope/"><u>Crafting a Tailored Online Avatar Scope</u></a></li>
-<li><a href="https://facebook.techidaily.com/customize-facebook-flawlessly-with-these-must-try-app-configs/"><u>Customize Facebook Flawlessly with These Must-Try App Configs</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discovering-what-sets-meta-ai-apart-from-others/"><u>Discovering What Sets Meta AI Apart From Others</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-fast-windows-content-survey-blueprint/"><u>In 2024, Fast Windows Content Survey Blueprint</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-transforming-tweetstream-into-hd-visionary-content/"><u>In 2024, Transforming Tweetstream Into HD Visionary Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/os-10-melhores-convertidores-de-dvd-para-mp4-em-2023-sua-guia-para-windows-e-macos/"><u>Os 10 Melhores Convertidores De DVD Para MP4 Em 2023: Sua Guia Para Windows E macOS</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-next-gen-leap-for-gamers-microsofts-dxr-api-redefining-pc-resolution-and-performance/"><u>The Next-Gen Leap for Gamers: Microsoft's DXR API Redefining PC Resolution and Performance</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-nokia-c02-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Nokia C02? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/becoming-a-visionary-in-depth-guide-to-hdr-photography-for-2024/"><u>Becoming a Visionary In-Depth Guide to HDR Photography for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/comprehensive-steps-clean-driver-installation-for-graphic-hardware/"><u>Comprehensive Steps: Clean Driver Installation for Graphic Hardware</u></a></li>
+<li><a href="https://fox-access.techidaily.com/digital-cinemas-on-iphone-apples-no1-freepluspaid-movie-app-guide/"><u>Digital Cinemas on iPhone Apple's No.1, FREE+PAID Movie App Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/essential-8-platforms-for-private-screenings/"><u>Essential 8 Platforms for Private Screenings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fix-crashing-file-explorer-on-windows-11-now/"><u>Fix Crashing File Explorer on Windows 11 Now</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-oneplus-ace-2-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change OnePlus Ace 2 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-password/"><u>How to Change Your Facebook Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mend-a-social-gap-on-facebook/"><u>How to Mend a Social Gap on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-removing-memories-from-unwanted-contacts/"><u>Mastering FB: Removing Memories From Unwanted Contacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-multilingual-content-creation-on-fb/"><u>Mastering the Art of Multilingual Content Creation on FB</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-top-10-animation-tools-for-engaging-classroom-learning-for-2024/"><u>New Top 10 Animation Tools for Engaging Classroom Learning for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-erased-social-media-posts-on-facebook/"><u>Restoring Erased Social Media Posts on Facebook</u></a></li>
+<li><a href="https://techtrends.techidaily.com/steps-to-correct-missing-jvmdll-file-error-on-your-computer/"><u>Steps to Correct Missing jvm.dll File Error on Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-map-to-your-online-identity-a-detailed-narrative-of-all-fb-exchanges/"><u>The Explorer's Map to Your Online Identity: A Detailed Narrative of All FB Exchanges</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vigilant-eye-seeing-through-fake-profiles-in-networks/"><u>The Vigilant Eye: Seeing Through Fake Profiles in Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-the-power-to-retrieve-fb-images-and-videos/"><u>Unleashing the Power to Retrieve FB Images & Videos</u></a></li>
 </ul></div>
 

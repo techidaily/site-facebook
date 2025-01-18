@@ -1,7 +1,7 @@
 ---
 title: Frequent Digital Breaches on Social Platforms
-date: 2025-01-05T17:21:48.081Z
-updated: 2025-01-12T21:10:32.511Z
+date: 2025-01-13T16:03:06.233Z
+updated: 2025-01-18T16:10:39.962Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Common Are Social Media Hacks?
 
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
 
@@ -45,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 [A December 2020 study](https://www.statista.com/statistics/1228062/opinion-online-security-worldwide/) also examined people’s concerns about suffering account hacks of any sort in 2021\. The worldwide breakdown showed that 34 percent considered it likely, while 45 percent deemed such events improbable.
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Increases the Chances of a Social Media Hack?
 
@@ -65,12 +61,16 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  Several months earlier, information from a massive Facebook data leak in 2019 became public. That incident affected more than 530 million users worldwide, but Facebook representatives opted not to notify them individually.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Are the Risks Associated With a Social Media Hack?
 
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Handle a Social Media Hack
@@ -91,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -121,17 +121,16 @@ thumbnail: https://thmb.techidaily.com/27b127c31cd1d4c4e3c7e2e3da33ec44af88b4b62
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-a-quick-look-at-grading-techniques-in-ps/"><u>[New] In 2024, A Quick Look at Grading Techniques in PS</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-phones-gopro-editing-solutions-revealed/"><u>2024 Approved Leading Phones' GoPro Editing Solutions Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-life-hacks-to-break-your-screen-addiction-habit/"><u>8 Life Hacks to Break Your Screen Addiction Habit</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For OnePlus 12R | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/asset-authorship-who-responsible-for-ais-intellectual-works/"><u>Asset Authorship: Who Responsible For AI's Intellectual Works?</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-how-to-spot-emerging-fb-groups/"><u>Breaking Barriers: How to Spot Emerging FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/craft-your-identity-oculuss-latest-avatar-features/"><u>Craft Your Identity: Oculus’s Latest Avatar Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-clutter-guide-for-tidying-up-your-fb-threads/"><u>Cut the Clutter: Guide for Tidying Up Your Fb Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-defense-strategy-avoid-privacy-threats-here/"><u>Data Defense Strategy: Avoid Privacy Threats Here</u></a></li>
-<li><a href="https://driver-download.techidaily.com/surface-finish-microstructure-and-environmental-conditions-significantly-affect-fatigue-life/"><u>Surface Finish, Microstructure, and Environmental Conditions Significantly Affect Fatigue Life.</u></a></li>
-<li><a href="https://fox-info.techidaily.com/top-picks-for-your-next-shot-in-4k-reflective-tech-for-2024/"><u>Top Picks for Your Next Shot in 4K Reflective Tech for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/transformar-videos-mov-em-mp4-gratuitamente-na-web-converter-online-aberto/"><u>Transformar Vídeos MOV Em MP4 Gratuitamente Na Web - Converter Online Aberto!</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-elevate-your-content-with-effective-video-seo-for-2024/"><u>[Updated] Elevate Your Content with Effective Video SEO for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-how-to-post-a-video-between-twitter-and-tumblr/"><u>[Updated] In 2024, How to Post a Video Between Twitter and Tumblr?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-master-quick-video-cuts-on-windows-11-photos/"><u>[Updated] Master Quick Video Cuts on Windows 11 Photos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-top-10-stock-image-memes-real-life-narratives/"><u>2024 Approved Top 10 Stock Image Memes Real Life Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/hasty-methods-to-remove-content-from-your-fb-profile/"><u>Hasty Methods to Remove Content From Your FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-and-rejoin-your-facebook-after-code-loss/"><u>How To Reset & Rejoin Your Facebook After Code Loss</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/rugged-electric-bike-delivers-unforgettable-off-road-adventure-joyful-ride-with-tech-innovation-zdnet/"><u>Rugged Electric Bike Delivers Unforgettable Off-Road Adventure - Joyful Ride with Tech Innovation | ZDNet</u></a></li>
+<li><a href="https://win11.techidaily.com/specifying-disk-types-effortlessly-via-windows/"><u>Specifying Disk Types Effortlessly via Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-account-protection-with-simple-steps-of-2fa-implementation/"><u>Strengthening Account Protection with Simple Steps of 2FA Implementation</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-realme-gt-3-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Realme GT 3? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-your-facebook-timeline-comprehensive-history-download-guide/"><u>Uncovering Your Facebook Timeline: Comprehensive History Download Guide</u></a></li>
 </ul></div>
 

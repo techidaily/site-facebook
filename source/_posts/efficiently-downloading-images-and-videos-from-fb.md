@@ -1,7 +1,7 @@
 ---
 title: Efficiently Downloading Images and Videos From FB
-date: 2024-07-29T07:38:26.612Z
-updated: 2024-07-30T07:38:26.612Z
+date: 2025-01-14T16:15:40.050Z
+updated: 2025-01-18T16:16:27.528Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f6602
 
 ## How to Download Facebook Photos
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
@@ -35,6 +32,10 @@ thumbnail: https://thmb.techidaily.com/fa651493e7721486825be5cb6becb6ac17b9f6602
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Download Facebook Albums
 
  If you want to download a Facebook album from your own profile, Facebook has a simple method to do that. Again, you don't need any third-party downloader apps for this. However, you'll need to use Facebook on the web since mobile apps don't let you download albums.
@@ -45,10 +46,12 @@ Follow these steps to download your Facebook album:
 2. Go to**Photos > Albums** .  
 ![Facebook's album page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-albums-page-web.jpg)
 3. Open the album that you want to download.
-4. In the top-right corner, click the**three-dot icon** and select**Download album** .  
+
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+4. In the top-right corner, click the**three-dot icon** and select**Download album** .  
 ![Downloading an album on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-facebook-album.jpg)
 5. Next, select**Continue** .
 
@@ -65,14 +68,8 @@ Follow these steps to download your Facebook album:
 1. Head to Facebook settings on your desktop browser or use the link[facebook.com/settings](https://www.facebook.com/settings) .
 2. Click**Your Facebook information** in the sidebar.
 3. Select**Download your information** .  
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
 4. Click**Request a download** from the pop-up.  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Download your information pop-up on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-your-information-facebook.jpg)
 5. Select your Facebook profile from the**Select accounts and profiles** pop-up (if it hasn't been selected already) and click**Next** .
 
@@ -81,6 +78,11 @@ Follow these steps to download your Facebook album:
 2. On the follow-up page, select**Posts** under**Your activity across Facebook** and click**Next** .  
 ![Selecting information to download on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/choosing-information-to-download-facebook.jpg)
 3. To download all your Facebook photos click**Date range** and select**All time** then hit**Save** to persist the changes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. Next, choose the quality of the image files by selecting**Media quality** . We recommend changing**Medium** to**High** if you want full-resolution copies. The setting you choose will determine the size of the file. If you have a lot of pictures, this will increase the file size and the time Facebook takes to get it ready. Once done, select**Save** .  
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
@@ -92,24 +94,22 @@ Follow these steps to download your Facebook album:
  Download and unzip the file to see all of your posts and images, with albums as sub-folders.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Which Is the Best Facebook Photo Downloader App?
 
  As of July 2023, there's no reliable Facebook photo downloader app that we can recommend. Most apps work for videos only, and they are filled with intrusive ads. Towards the end of 2022, Multi Downloader for Facebook was one of the best Facebook picture downloader apps out there. It was free, super easy to use, and it worked for videos, too.
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Save Facebook Videos to Your Computer or Phone
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
@@ -134,14 +134,11 @@ Here's how to use it:
 
  The above methods let you download photos and videos easily, but you might want to consider backing up your Facebook history and learning about other download and data management tools.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +147,23 @@ Here's how to use it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-tier-window-snapper-for-win11-users/"><u>[New] 2024 Approved Top-Tier Window Snapper for Win11 Users</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-enhance-virtual-interaction-top-techniques-with-zoom-video-editor/"><u>[New] In 2024, Enhance Virtual Interaction Top Techniques with Zoom Video Editor</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-steps-to-success-capturing-your-google-meet-sessions-for-2024/"><u>[New] Steps to Success Capturing Your Google Meet Sessions for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/100-discount-discover-the-ultimate-audio-experience-with-top-rated-speakers-available-now-at-best-buy-exclusive-review/"><u>$100 Discount: Discover the Ultimate Audio Experience with Top-Rated Speakers Available Now at Best Buy - Exclusive Review</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>2024 Approved Easy Paths to Profitable YouTube Business Channels, Top 10 List</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-motorola-moto-g73-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Motorola Moto G73 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/financial-behavior-recovering-accounts-with-expensive-tech-purchases/"><u>Financial Behavior: Recovering Accounts with Expensive Tech Purchases</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-personal-info-best-practices-for-fb-users/"><u>Fortifying Personal Info: Best Practices for FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-broadcasting-locations-on-messenger/"><u>Guide to Broadcasting Locations on Messenger</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-update-hp-scanjet-printer-drivers-on-windows-1187-free-download-link/"><u>How to Update HP Scanjet Printer Drivers on Windows 11/8/7 - [Free Download Link]</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-gamers-needs-an-in-depth-review-of-ibuypower-custom-builds-for-enthusiasts/"><u>Mastering Gamers' Needs: An In-Depth Review of iBuypower Custom-Builds for Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-vs-maintaining-facebooks-dilemma/"><u>Maximizing Vs. Maintaining: Facebook's Dilemma</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-fb-experience-friends-only-policy/"><u>Optimize Your Fb Experience: Friends Only Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebooks-first-smartwatch-could-feature-two-detachable-cameras/"><u>Report: Facebook's First Smartwatch Could Feature Two Detachable Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-potential-identifying-best-tools-for-corporate-reach/"><u>Unleash Potential: Identifying Best Tools for Corporate Reach</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-11-addressing-bus-controllers/"><u>Windows 11: Addressing Bus Controllers</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Electric Future: Total Renewable Infrastructure at FB"
-date: 2024-07-29T07:35:15.694Z
-updated: 2024-07-30T07:35:15.694Z
+date: 2025-01-17T16:18:36.734Z
+updated: 2025-01-18T16:14:31.725Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
  Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
 
  Climate change presents risks for everyone and everything—from plant species to human beings. Google, Apple, Amazon, as well as Facebook, understand how serious the issues are and have all created environmental targets to eliminate carbon emissions.
@@ -39,14 +40,16 @@ thumbnail: https://thmb.techidaily.com/831f2f90478586ac086abfd43f6d32639656f49a2
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -58,14 +61,11 @@ So, things may, finally, be moving in the right direction.
 
  Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -74,4 +74,23 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unveil-clearer-visuals-essential-tips-for-zooming-on-snapchat/"><u>[New] In 2024, Unveil Clearer Visuals Essential Tips for Zooming on Snapchat</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-key-strategies-utilizing-hashtags-in-youtube-gaming-content/"><u>[Updated] In 2024, Key Strategies Utilizing Hashtags in YouTube Gaming Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premiere-sneak-peeks-cinema-edition/"><u>[Updated] Premiere Sneak Peeks - Cinema Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-discovering-the-globe-from-home-via-vr-experience/"><u>2024 Approved Discovering the Globe From Home via VR Experience</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-extensive-appraisal-hero4-black-capabilities/"><u>2024 Approved Extensive Appraisal Hero4 Black Capabilities</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-does-youtube-work-after-a-video-is-uploaded/"><u>2024 Approved How Does YouTube Work After a Video Is Uploaded</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-vivo-y78t-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Vivo Y78t Phone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/a-new-era-of-search-comes-with-microsofts-ai-integration-into-bing-key-benefits-explained/"><u>A New Era of Search Comes With Microsoft's AI Integration Into Bing - Key Benefits Explained</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/expert-tips-for-enhancing-frame-rate-and-smoothness-in-pc-racing-game-f1-2021/"><u>Expert Tips for Enhancing Frame Rate and Smoothness in PC Racing Game F1 2021</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-to-fb-no-problem-resetting-passwords-made-simple/"><u>New to FB? No Problem - Resetting Passwords Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-social-media-practice-pros-and-cons-of-fb-event-management/"><u>Optimal Social Media Practice: Pros & Cons of FB Event Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/selective-engagement-balancing-fb-relationships/"><u>Selective Engagement: Balancing Fb Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-photo-uploads-captions-generated-by-ai/"><u>Simplifying Photo Uploads: Captions Generated by AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/symbolic-savvy-on-social-media-a-look-at-facebooks-emoji-ecosystem/"><u>Symbolic Savvy on Social Media - A Look at Facebook’s Emoji Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-unites-facebook-and-rust-in-programming-synergy/"><u>Tech Unites: Facebook and Rust in Programming Synergy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-types-of-content-facebook-hides-from-your-news-feed-and-why/"><u>The Types of Content Facebook Hides From Your News Feed (and Why)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Digital Diaries Deciphered: Are Phones Making Marketing Decisions?"
-date: 2024-07-29T07:39:16.585Z
-updated: 2024-07-30T07:39:16.585Z
+date: 2025-01-13T16:13:08.526Z
+updated: 2025-01-18T16:07:54.093Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 ## Digital Diaries Deciphered: Are Phones Making Marketing Decisions?
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -31,9 +32,9 @@ What is going on?
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -42,9 +43,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Reddit Users Think Their Phones Are Listening
 
  Common search terms for this subject on Google include things like: "does iphone listen to you for ads," "can my phone hear me," and "is google listening to my conversations?"
@@ -62,8 +60,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
@@ -74,9 +73,6 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Google reacted to this by taking action,[stating](https://www.blog.google/products/assistant/more-information-about-our-processes-safeguard-speech-data/) : "Audio snippets are not associated with user accounts." But as VRT pointed out, they don't need to be. More recently, I was brushing my teeth while reading an article about a movie when this advert appeared.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
@@ -84,6 +80,10 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can You Prove If an App Is Listening to You?
 
@@ -100,8 +100,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -138,14 +139,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +152,16 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-1-5-best-url-trimmer-tools-for-youtube-videos/"><u>[New] 2024 Approved 1-5 Best URL Trimmer Tools for YouTube Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-capturing-the-world-from-anywhere-9-must-follow-steps/"><u>[Updated] Capturing the World From Anywhere 9 Must-Follow Steps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-top-15-timeless-classics-in-stop-motion-cinema-history/"><u>[Updated] In 2024, Top 15 Timeless Classics in Stop-Motion Cinema History</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-srt-to-sub-shift-expert-strategies-and-actions/"><u>[Updated] SRT to SUB Shift Expert Strategies & Actions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-list-of-regrets-a-compilation-of-5-major-mishaps-to-its-community/"><u>Facebook’s List of Regrets: A Compilation of 5 Major Mishaps to Its Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-worlds-at-our-fingertips-discovering-the-reality-of-metaverse-on-facebook/"><u>Future Worlds at Our Fingertips: Discovering The Reality of Metaverse on Facebook</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/steer-clear-of-scam-bots-real-vs-shadow-chatgpt/"><u>Steer Clear of Scam Bots - Real Vs. Shadow ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-user-exclusion-for-businesses-on-facebook/"><u>The Essential Guide to User Exclusion for Businesses on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/writers-world-expanded-with-facebooks-5-million-for-new-digital-platform-venture/"><u>Writers' World Expanded with Facebook's $5 Million for New Digital Platform Venture</u></a></li>
+</ul></div>
 

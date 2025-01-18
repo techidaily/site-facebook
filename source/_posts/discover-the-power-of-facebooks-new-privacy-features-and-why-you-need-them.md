@@ -1,7 +1,7 @@
 ---
 title: Discover the Power of Facebook's New Privacy Features and Why You Need Them
-date: 2024-07-29T07:35:46.074Z
-updated: 2024-07-30T07:35:46.074Z
+date: 2025-01-16T16:03:25.571Z
+updated: 2025-01-18T16:11:55.640Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/5f066f9d9f5dd144763c4bbeccea3e56ce5ff6713
 
  To this end, it has launched a Privacy Center, a central location that now houses most of the information you need to know about your privacy and how its parent company Meta stores and uses your personal data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -27,15 +31,9 @@ thumbnail: https://thmb.techidaily.com/5f066f9d9f5dd144763c4bbeccea3e56ce5ff6713
 
 Here's how:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
 
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
 2. Click on**Settings and privacy** then click on**Privacy Center** .  
 ![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
@@ -44,8 +42,9 @@ Here's how:
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's Privacy Center at a Glance
 
  The Facebook Privacy Center provides helpful information on five major categories, each containing specific information about Meta's privacy policy.
@@ -58,13 +57,14 @@ Here's how:
 
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
@@ -72,6 +72,10 @@ Here's how:
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
@@ -82,8 +86,9 @@ Here's how:
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why You Should Use Facebook's Privacy Center
 
  If you have access to the Privacy Center, it may be worth your while to spend some time familiarizing yourself with how Meta handles and processes your data across its family of apps.
@@ -96,28 +101,17 @@ Here's how:
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Protect Your Privacy
 
  Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
 
  Considering Facebook’s privacy history and its recent objections to iOS ad tracking changes, the new Privacy Center appears to be a small step in the right direction. We can only hope that it gets better.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +120,23 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-unleash-potential-ps5-writable-and-readable-extras/"><u>[New] 2024 Approved Unleash Potential PS5' Writable & Readable Extras</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-restore-lost-details-4-premiere-pro-methods-for-iphone-hdr-footage/"><u>2024 Approved Restore Lost Details 4 Premiere Pro Methods for iPhone HDR Footage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-top-5-gif-making-software-with-the-highest-ratings/"><u>2024 Approved Top 5 GIF Making Software with the Highest Ratings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-ten-frame-enhancers-for-visual-artistry/"><u>2024 Approved Top Ten Frame Enhancers for Visual Artistry</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/bridging-games-and-friends-xbox-live-to-facebook-broadcasting-for-2024/"><u>Bridging Games and Friends Xbox Live to Facebook Broadcasting for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/iphone-16-pro-vs-iphone-14-pro-analyzing-the-value-of-your-next-smartphone-upgrade-insights-from-zdnet/"><u>IPhone 16 Pro Vs. IPhone 14 Pro: Analyzing the Value of Your Next Smartphone Upgrade – Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-technology-slip-ups-of-the-2022-era-highlighted/"><u>Key Technology Slip-Ups of the 2022 Era Highlighted</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-unpacked-facebooks-vision-for-virtual-connectivity/"><u>Metaverse Unpacked: Facebook's Vision for Virtual Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/pathway-back-to-facebook-no-original-code-needed/"><u>Pathway Back to Facebook: No Original Code Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-overwhelming-tide-against-ios-tracking/"><u>The Overwhelming Tide Against iOS Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-silencing-fb-notifications/"><u>The Ultimate Guide to Silencing Fb Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeless-tactics-for-keeping-your-social-media-profile-alive/"><u>Timeless Tactics for Keeping Your Social Media Profile Alive</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-heavy-cpu-use-from-ntoskrnlexe/"><u>Troubleshooting Heavy CPU Use From ntoskrnl.exe</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/understanding-what-drives-crypto-prices-a-deep-dive-with-yl-computing-and-yl-software-specialists/"><u>Understanding What Drives Crypto Prices: A Deep Dive with YL Computing & YL Software Specialists</u></a></li>
+<li><a href="https://driver-install.techidaily.com/update-intel-drivers-for-windows-when-and-how/"><u>Update Intel Drivers for Windows (When And How)</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-leads-and-owns-facebook-currently/"><u>Who Leads and Owns Facebook Currently?</u></a></li>
+</ul></div>
 

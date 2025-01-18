@@ -1,7 +1,7 @@
 ---
 title: Delving Into the Digital Dissonance Against Facebook-Like Platforms
-date: 2024-07-29T07:36:00.789Z
-updated: 2024-07-30T07:36:00.789Z
+date: 2025-01-17T16:05:04.048Z
+updated: 2025-01-18T16:20:19.847Z
 tags:
   - facebook
 categories:
@@ -29,10 +29,6 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 
  Its constant feature adoption has made it feel like Facebook is just trying to do too much and, in the process, has lost its focus. What really is Facebook for?
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## 2\. Privacy Concerns
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
@@ -46,13 +42,18 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
  This lack of privacy is a big turnoff for many people and is one of the main reasons they hate Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Data Breaches
 
  In addition to privacy concerns, Facebook has also had to deal with a number of data breaches. These breaches have exposed the personal information of millions of users and have left people feeling like they can't trust Facebook with their data.
 
  The most recent breach happened in 2021 and exposed the personal information of over 500 million users. This breach was especially concerning because it happened despite Facebook's claims that it had fixed the problems that caused the Cambridge Analytica scandal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Its Addictive Potential
 
@@ -71,9 +72,9 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Its Impact on Mental Health
 
  One of the biggest problems with Facebook is its impact on mental health. The platform can be a breeding ground for negativity and comparison. When you're constantly seeing everyone's highlight reel, it's easy to forget that everyone has struggles and difficulties.
@@ -81,13 +82,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Perceived Inaction on Hate Speech
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![man holding hate is a virus sign](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/man-holding-hate-is-a-virus-sign.jpg)
 
  Another reason people hate Facebook is because of the company's perceived inaction on hate speech. The platform has been used to spread hateful and divisive content, with grave consequences.
@@ -97,23 +96,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making Sense of It All
 
  Many of the reasons people hate Facebook are valid. The platform has serious problems with privacy, fake news, and hate speech. It's also addictive and can be detrimental to your mental health.
 
  However, it's important to remember that Facebook is just a tool. It's how we use it that matters.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +118,21 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-amplify-igtv-audiences-5-effective-ways-for-a-larger-following/"><u>[New] 2024 Approved Amplify IGTV Audiences 5 Effective Ways for a Larger Following</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-no-fuss-guide-for-exploring-loved-and-trending-youtube-comments-for-2024/"><u>[New] The No-Fuss Guide for Exploring Loved and Trending YouTube Comments for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-essential-filmmakers-toolkit-a-guide-to-audio-recording/"><u>[Updated] 2024 Approved The Essential Filmmaker's Toolkit A Guide to Audio Recording</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-tunekeeper-trackdown-downloads-and-discussion/"><u>[Updated] 2024 Approved TuneKeeper Trackdown Downloads & Discussion</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/beyond-boundaries-vrs-educational-potential-for-2024/"><u>Beyond Boundaries VR's Educational Potential for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-opinion-the-third-generation-apple-tv-4k-performance-and-features-breakdown/"><u>Expert Opinion: The Third Generation Apple TV 4K - Performance & Features Breakdown</u></a></li>
+<li><a href="https://win-forum.techidaily.com/guide-inserting-new-drivers-into-your-pcs-hardware-list-on-windows-11/"><u>Guide: Inserting New Drivers Into Your PC's Hardware List on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-high-impact-tech-developments-top-4-hidden-gems/"><u>Overlooked High-Impact Tech Developments - Top 4 Hidden Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-watchfulness-master-the-off-facebook-activity-strategy/"><u>Stop FB Watchfulness: Master the Off-Facebook Activity Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-seduction-of-compromising-your-data/"><u>The Subtle Seduction Of Compromising Your Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-tutorial-for-private-photo-sharing-on-fb/"><u>The Ultimate Tutorial for Private Photo Sharing on FB</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-ten-tools-to-transform-your-picture-grids-for-2024/"><u>Top Ten Tools to Transform Your Picture Grids for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-operations-via-transparency-center-launch/"><u>Unmasking Facebook's Operations via Transparency Center Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-announces-cross-device-whatsapp-functionality/"><u>Zuckerberg Announces Cross-Device WhatsApp Functionality</u></a></li>
+</ul></div>
 

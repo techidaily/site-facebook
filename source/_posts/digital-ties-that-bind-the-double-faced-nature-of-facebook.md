@@ -1,7 +1,7 @@
 ---
 title: "Digital Ties that Bind: The Double-Faced Nature of Facebook"
-date: 2024-07-29T07:36:32.394Z
-updated: 2024-07-30T07:36:32.394Z
+date: 2025-01-11T16:14:49.413Z
+updated: 2025-01-18T16:15:09.187Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,6 @@ thumbnail: https://thmb.techidaily.com/e6889a658e4bba9c2827feba4ea063c236adc8db7
 
  While Facebook received a lot of negative press in recent years, it wasn't all negative. After all, Facebook did not get over 2 billion users by being a bad social media platform. So, these are some of the few good things the social media platform brought to humanity.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Facebook Brought People Together
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
@@ -40,44 +37,27 @@ thumbnail: https://thmb.techidaily.com/e6889a658e4bba9c2827feba4ea063c236adc8db7
 
 ### Connecting Our Past and Present
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
@@ -91,9 +71,6 @@ Key features:
 
 So, what are some of the biggest things that affected us negatively?
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
@@ -104,20 +81,18 @@ So, what are some of the biggest things that affected us negatively?
 
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Facebook Increased Polarization
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
@@ -127,22 +102,20 @@ So, what are some of the biggest things that affected us negatively?
  Although some people may say that it only showed the true colors of the people who made the comments, it's unfortunate many have lost their sense of community and their ability to "agree to disagree." All because they no longer see the person behind the post—only their disagreement with their beliefs.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Is a Big Part of Modern Human History
 
  What started as a directory for Harvard students in 2003 became a global phenomenon with over 2 billion users. With over 25% of the living population signed up for the social media platform, Facebook is indeed a significant part of our society.
 
  And although Facebook, now Meta, is hounded by several issues, we still can't deny that it has also brought a positive change to humanity. But no matter how big a company grows, there's still no telling what the future will hold. Only time will tell if Facebook will go on to have an influence on us in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +124,21 @@ So, what are some of the biggest things that affected us negatively?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-from-paid-to-free-embracing-the-world-of-fcp/"><u>[Updated] 2024 Approved From Paid to Free Embracing the World of FCP</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-pinnacle-screenshots-on-mac-a-deep-dive-into-top-apps/"><u>[Updated] In 2024, Pinnacle Screenshots on Mac A Deep Dive Into Top Apps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-reels-slow-motion-techniques-unveiled/"><u>2024 Approved Instagram Reels Slow-Motion Techniques Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-realms-of-digital-connections-on-fb/"><u>Exploring New Realms of Digital Connections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-way-to-indicate-yourself-safe/"><u>Facebook's Way to Indicate Yourself Safe</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-techniques-for-hiding-posts-from-specific-fb-audiences/"><u>Guiding Techniques for Hiding Posts From Specific FB Audiences</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-honor-magic-5-by-drfone-android/"><u>How to Bypass FRP from Honor Magic 5?</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722990615529-how-to-fix-new-world-connection-error/"><u>How to Fix ‘New World Connection Error’</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-se-2022-passcode-not-working-drfone-by-drfone-ios/"><u>How to Fix Apple iPhone SE (2022) Passcode not Working? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-meet-the-new-era-meta-drops-nft-venture/"><u>Social Networks, Meet The New Era: Meta Drop's NFT Venture</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-fixing-the-error-message-cannot-find-msvcr70dll-file/"><u>Step-by-Step Guide: Fixing the Error Message 'Cannot Find MSVCR70.DLL File'</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-eliminating-unflattering-pics-from-facebook/"><u>Swiftly Eliminating Unflattering Pics From Facebook</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211099474-9781615192571-the-foundations-of-mindfulness/"><u>The Foundations of Mindfulness | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-conquers-with-worlds-swiftest-ai-compute/"><u>Why Meta Conquers with World's Swiftest AI Compute</u></a></li>
+</ul></div>
 

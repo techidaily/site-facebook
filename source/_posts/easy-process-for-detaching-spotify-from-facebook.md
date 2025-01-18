@@ -1,7 +1,7 @@
 ---
 title: Easy Process for Detaching Spotify From Facebook
-date: 2024-07-29T07:39:01.640Z
-updated: 2024-07-30T07:39:01.640Z
+date: 2025-01-17T16:01:49.581Z
+updated: 2025-01-18T16:12:15.960Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/a9441716968b4b370228db8f919eac0889d914a97
  However, perhaps you want to unlink your Facebook account from Spotify. In this case, you'll want to set aside ten minutes or so, as unlinking your Facebook account from Spotify is not as simple as it sounds.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What You Should Do Before Unlinking Your Spotify Account From Facebook
 
  You could decide to unlink Facebook from your Spotify account for any number of reasons. Perhaps you're not interested in Spotify's social features and don't wish to be found by others this way. Perhaps you no longer use Facebook and want to make sure you can still access your Spotify account without it. Perhaps you just prefer not to chain platforms together this way.
@@ -41,8 +42,9 @@ Here's what you should do to unlink Facebook from Spotify.
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
 ###
@@ -52,10 +54,11 @@ Here's what you should do to unlink Facebook from Spotify.
 3. On the**Settings** page, click the**Apps & websites** tab from the sidebar.
 4. Next to Spotify, click**Remove** .
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
 
@@ -66,24 +69,23 @@ Here's what you should do to unlink Facebook from Spotify.
 3. Scroll down to the**Permissions** section and tap**Apps and websites** .
 4. On the**Apps and websites** page, tap**Spotify** \>**Remove** .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -91,14 +93,11 @@ Close
 
  For now, focus on finding the best playlists around and enjoying your favorite tracks on Spotify.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,4 +106,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-exclusive-nintendo-switch-fighter-lineups-max-156/"><u>[New] In 2024, Exclusive Nintendo Switch Fighter Lineups (Max 156)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-secure-5-insta-story-watchers-selection/"><u>[New] In 2024, Secure 5 Insta Story-Watchers' Selection</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-virtuality-unveiled-evolution-of-escapism-for-2024/"><u>[Updated] Virtuality Unveiled Evolution of Escapism for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/elevate-your-presence-online-capture-high-definition-webcam-footage-in-vlc-for-2024/"><u>Elevate Your Presence Online Capture High-Definition Webcam Footage in VLC for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-online-audio-archives-an-intuitive-guide-for-2024/"><u>Navigating Online Audio Archives An Intuitive Guide for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-snap-share-repeat-the-ultimate-ps4-screenshot-sharing-guide/"><u>New In 2024, Snap, Share, Repeat The Ultimate PS4 Screenshot Sharing Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-supervision-optimizing-your-engagement-via-new-fb-moderation-techniques/"><u>Social Synergy Supervision: Optimizing Your Engagement via New FB Moderation Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-connections-start-with-facebook-dating/"><u>Unlocking Social Connections: Start with Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-latest-facebook-interface-overhaul/"><u>Unpacking the Latest Facebook Interface Overhaul</u></a></li>
+<li><a href="https://discover-great.techidaily.com/verfahren-zum-entfernen-von-computerviren-uber-cmd-und-wiederherstellung-verlorener-dokumente-auf-windows-systemen/"><u>Verfahren Zum Entfernen Von Computerviren Über CMD Und Wiederherstellung Verlorener Dokumente Auf Windows-Systemen</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-a-fake-fb-presence/"><u>What Lies Behind a Fake FB Presence?</u></a></li>
+</ul></div>
 

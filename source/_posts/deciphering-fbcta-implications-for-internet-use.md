@@ -1,7 +1,7 @@
 ---
 title: "Deciphering FBCTA: Implications for Internet Use"
-date: 2024-07-29T07:39:46.503Z
-updated: 2024-07-30T07:39:46.503Z
+date: 2025-01-17T16:08:03.722Z
+updated: 2025-01-18T16:04:36.873Z
 tags:
   - facebook
 categories:
@@ -22,14 +22,16 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
  This article will outline how Congress wants Facebook and other tech giants to change their algorithms. Keep reading to find out more about how this proposed bill could affect you.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Filter Bubble Transparency Act?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![courtroom gavel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/courtroom-gavel-judge.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
@@ -52,14 +54,16 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How the Filter Bubble Transparency Act Could Affect You
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -68,22 +72,20 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Personalized Algorithms Become a Thing of the Past?
 
  Congress wants big tech companies to stop using unsolicited data from users to inform its algorithms, which is a big ask, considering this is a key part of apps like Facebook and Instagram, and part of what keeps users scrolling and engaging.
 
  Facebook is known to push back against lawmakers and defending its business, so it will be interesting to see how this plays out. For now though, don't hold your breath on Facebook overhauling its algorithm.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,4 +94,20 @@ thumbnail: https://thmb.techidaily.com/eb0b88fc8ea01a6f57ac593062a230bcd4f411a04
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-best-of-breed-capture-card-for-switch/"><u>[New] Best of Breed Capture Card for Switch</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-iphone-hdr-imaging-techniques/"><u>[New] Mastering iPhone HDR Imaging Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-mac-screenshot-and-recorder-showdown-the-best-of-the-best/"><u>[Updated] Mac Screenshot & Recorder Showdown The Best of the Best</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-photo-privacy-settings-everything-you-need-to-know/"><u>Facebook Photo Privacy Settings: Everything You Need to Know</u></a></li>
+<li><a href="https://article-helps.techidaily.com/fast-cash-on-reddit-check-out-these-top-13-skillless-strategies-for-2024/"><u>Fast Cash on Reddit? Check Out These Top 13 Skillless Strategies for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/missing-big-picture-in-tech-spotlight-on-4-unheralded-stories/"><u>Missing Big Picture in Tech: Spotlight on 4 Unheralded Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-shift-in-social-media-power-dynamics-as-fb-could-divest-gifpedia/"><u>Potential Shift in Social Media Power Dynamics as FB Could Divest Gifpedia</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/preserve-the-blue-band-promise-with-these-ideas/"><u>Preserve the Blue Band Promise with These Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-service-selective-lite-android-solutions/"><u>Speedy Service: Selective Lite Android Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-success-tips-for-creating-effective-facebook-reels/"><u>Streamline Social Media Success: Tips for Creating Effective Facebook Reels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/transform-your-igtv-backgrounds-with-style/"><u>Transform Your IGTV Backgrounds with Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-secrets-of-building-bonds-through-facebooks-new-feature/"><u>Uncovering the Secrets of Building Bonds Through Facebook’s New Feature</u></a></li>
+</ul></div>
 

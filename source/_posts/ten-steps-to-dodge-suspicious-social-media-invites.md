@@ -1,7 +1,7 @@
 ---
 title: Ten Steps to Dodge Suspicious Social Media Invites
-date: 2025-01-06T19:30:25.776Z
-updated: 2025-01-12T20:42:19.978Z
+date: 2025-01-13T16:00:38.887Z
+updated: 2025-01-18T16:03:49.555Z
 tags:
   - facebook
 categories:
@@ -25,12 +25,16 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Would Someone Hack Your Facebook?
 
 ![Phishing website with credentials being lifted with fishhook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Phishing-website-with-credentials-being-lifted-with-fishhook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because they want your personal information. They can use that info to access your bank accounts, or even steal your identity. And they have many ways to[steal from you through Facebook](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) .
 
@@ -44,7 +48,15 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![A vulnerable Facebook profile detailing all the user's workplaces](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---work-history-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,15 +72,7 @@ Close
 
 ![A blank Work Education and Places Lived page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-blank-Work-Education-and-Places-Lived-page-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Messenger blocking messages from a stranger on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Messenger-blocking-messages-from-a-stranger-on-Facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -80,6 +84,10 @@ Close
 
 ![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
 
  From the Facebook website or app, go to**Settings & Privacy** \>**Privacy Center** . For recommended settings, you can check out our[guide to Facebook Privacy](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) .
@@ -90,27 +98,15 @@ It’s a good idea to do a privacy check on a regular basis.
 
 ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Don’t Click Strange URLs on Facebook
 
 ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
 
@@ -139,7 +135,7 @@ Close
  Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Don’t Reply to Trivia Facebook Posts
@@ -154,13 +150,13 @@ Close
 
  You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Only Add People You Know to Your Facebook Account
 
 ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Make sure you trust someone before accepting a request. Scammers often go after personal details hidden behind “friends only” privacy settings. To protect yourself, it’s a good idea to limit your Facebook Friends to people you actually know.
 
@@ -169,7 +165,7 @@ Close
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Use a Strong Password for Your Facebook Account
@@ -181,6 +177,10 @@ Close
  Your password should be 14 characters at least. It should also contain a mix of upper and lower-case letters, numbers, and symbols. There are more ways to[make sure your password is secure](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , but these are the basics.
 
  Even though it's convenient, you should avoid using the**Log in with Facebook** option on other websites. The more sites your Facebook account connects to, the greater the loss if you are ever phished. Instead, make a unique login for each account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Stay Safe From Facebook Phishing
 
@@ -201,16 +201,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-horizon-harmony-best-online-spots-for-high-res-sky-views/"><u>[New] Horizon Harmony Best Online Spots for High-Res Sky Views</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-tactical-techniques-for-stunning-instagram-puzzle-displays/"><u>2024 Approved Tactical Techniques for Stunning Instagram Puzzle Displays</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-top-18-high-resolution-cameras-for-professionals/"><u>2024 Approved Top 18 High-Resolution Cameras for Professionals</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1392429-9781448171224-day-by-day/"><u>Day By Day | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-access-rites-to-meta-social-network-governance/"><u>Deciphering Access Rites to Meta Social Network Governance</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-new-antitrust-policies-against-big-tech/"><u>Decoding New Antitrust Policies Against Big Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-digital-picture-proprietorship/"><u>Determining Digital Picture Proprietorship</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-delirium-the-top-20-web-pages-where-people-unite/"><u>Digital Delirium: The Top 20 Web Pages Where People Unite</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-ways-to-disconnect-from-facebook-android-style/"><u>Efficient Ways to Disconnect From Facebook, Android Style</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/skip-the-middleman-directly-record-games-using-steams-built-in-features/"><u>Skip the Middleman – Directly Record Games Using Steam's Built-In Features</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/top-10-gratis-lut-files-comprehensive-analysis-and-downloads/"><u>Top 10 Gratis LUT Files - Comprehensive Analysis & Downloads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-scrutinizing-the-importance-of-honesty-in-online-self-portraits/"><u>[New] In 2024, Scrutinizing the Importance of Honesty in Online Self-Portraits</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigate-easy-customization-for-youtube-channel-urls/"><u>[New] Navigate Easy Customization for YouTube Channel URLs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-chuckle-away-with-premium-complimentary-meme-templates/"><u>[Updated] Chuckle Away with Premium Complimentary Meme Templates</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-mastering-adobe-cloud-essential-storage-insights-and-top-alternatives-for-2024/"><u>[Updated] Mastering Adobe Cloud Essential Storage Insights & Top Alternatives for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-safe-audio-conversion-techniques-turning-youtube-to-mp3-easily-and-securely-for-2024/"><u>[Updated] Safe Audio Conversion Techniques Turning YouTube to MP3 Easily & Securely for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mp4-)-wmv-mp4-to-wmv-movavi/"><u>互動式線上轉格器： MP4 -> WMV，全新無限制的 Mp4 to Wmv 改造工具 - Movavi</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mov-files-on-xiaomi-redmi-13c-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't play .mov files on Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-filter-bubble-transparency-act-details/"><u>Examining Filter Bubble Transparency Act Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-justify-permitting-duplicate-personal-profiles/"><u>How Does Facebook Justify Permitting Duplicate Personal Profiles?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y78-5g-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y78 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://facebook.techidaily.com/large-internet-companies-face-backlash-facebook-most-feared/"><u>Large Internet Companies Face Backlash, Facebook Most Feared</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-delayed-strategy-understanding-the-push-to-2023-for-encryption/"><u>Meta's Delayed Strategy: Understanding the Push to 2023 for Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/modifying-your-social-media-login-info/"><u>Modifying Your Social Media Login Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/outwitting-virtual-vultures-top-schemes-to-dodge/"><u>Outwitting Virtual Vultures: Top Schemes to Dodge</u></a></li>
+<li><a href="https://win-popular.techidaily.com/problemlos-reparieren-die-losung-fur-den-lenovo-fehlercode-0xc000021a/"><u>Problemlos Reparieren: Die Lösung Für Den Lenovo-Fehlercode 0xC000021A</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-beyond-facebook/"><u>Redefining Relationships Beyond Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sensitivity-what-not-to-post-for-your-security/"><u>Social Sensitivity: What Not to Post for Your Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-demands-unbiased-platforms-in-freedom-of-expression-case/"><u>Trump Demands Unbiased Platforms in Freedom of Expression Case</u></a></li>
 </ul></div>
 

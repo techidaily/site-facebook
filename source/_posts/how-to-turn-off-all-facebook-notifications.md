@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2025-01-10T22:23:52.461Z
-updated: 2025-01-12T22:37:47.864Z
+date: 2025-01-14T16:01:37.017Z
+updated: 2025-01-18T16:22:34.110Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete Facebook Notifications
@@ -44,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Clear All Facebook Notifications
 
  When you log into Facebook and see a pile of unread notifications, you'll want to clear them as soon as possible. If you click on the bell icon, the unread notifications red dot disappears.
@@ -55,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To mark all of your Facebook notifications as read, follow the guide below:
@@ -70,6 +74,10 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
 
@@ -86,10 +94,6 @@ Follow the steps below to learn about the process on the web app:
  (**Note:** If you are disabling notifications from a page, you will also see an option to**Turn off all notifications from this page** .)
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
 
@@ -110,15 +114,15 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on Android
 
@@ -136,10 +140,6 @@ Close
 4. Scroll down to**Facebook** and tap on it.
 5. Tap on**Notifications** .
 6. Slide the toggle next to**Show notifications** into the**Off** position.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on iOS
 
@@ -173,22 +173,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elite-setup-gear-for-peak-streaming-performance/"><u>[New] 2024 Approved Elite Setup Gear for Peak Streaming Performance</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-how-to-record-and-incorporate-speech-into-powerpoint-decks/"><u>[New] How to Record & Incorporate Speech Into PowerPoint Decks</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-reliable-strategy-to-infuse-direct-urls-in-tiktok-bio/"><u>[New] Reliable Strategy to Infuse Direct URLs in TikTok Bio</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/he-price-tag-of-a-million-viewed-youtube-video-for-2024/"><u>[New] The Price Tag of a Million-Viewed YouTube Video for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-unveiling-windows-10s-full-potential-with-zoom-services/"><u>[Updated] In 2024, Unveiling Windows 10'S Full Potential with Zoom Services</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-secrets-to-engaging-youtube-live-thumbnails-for-2024/"><u>[Updated] Unveiling the Secrets to Engaging YouTube Live Thumbnails for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/10-purebred-social-media-helpers-free/"><u>10 Purebred Social Media Helpers (FREE)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-high-quality-sound-adjustment-apps-for-content-casters/"><u>2024 Approved High-Quality Sound Adjustment Apps for Content Casters</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-you-apart-from-friends-on-fb-truths-unveiled/"><u>Are You Apart From Friends on FB? Truths Unveiled</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-figures-understanding-facebooks-real-impact/"><u>Beyond Figures: Understanding Facebook’s Real Impact</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-(securityfacebookmailcom)-be-trusted-for-fb-safety/"><u>Can <Security@facebookmail.com> Be Trusted for FB Safety?</u></a></li>
-<li><a href="https://facebook.techidaily.com/ceo-to-reconsider-trump-page-ban-policy/"><u>CEO to Reconsider Trump Page Ban Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-oculus-quest-privacy-in-meta-and-facebook-realms/"><u>Comparing Oculus Quest Privacy in Meta & Facebook Realms</u></a></li>
-<li><a href="https://extra-information.techidaily.com/design-gif-for-sharing/"><u>Design Gif for Sharing</u></a></li>
-<li><a href="https://network-issues.techidaily.com/1719974781896-seamlessly-update-intels-graphic-driver-for-windows-11/"><u>Seamlessly Update Intel's Graphic Driver for Windows 11.</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153977821-secure-communication-grows-facebook-rolls-out-encrypted-chat-for-messenger-and-dms/"><u>Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146826714-the-final-say-awaits-facebooks-oversight-board-reviewing-the-ban/"><u>The Final Say Awaits: Facebook's Oversight Board Reviewing the Ban.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-7-preferred-android-ad-blocking-tools-for-2024/"><u>[New] Ultimate Guide 7 Preferred Android Ad Blocking Tools for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-guide-to-mastering-zoom-in-windows-10/"><u>[Updated] The Ultimate Guide to Mastering Zoom in Windows 10</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722874844182-bring-the-fun-of-tiktok-to-your-living-room-screen/"><u>Bring the Fun of TikTok to Your Living Room Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-features-of-various-facebook-portals/"><u>Exploring Features of Various Facebook Portals</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ultimate-guide-hitting-the-slopes-with-excellent-cams/"><u>In 2024, Ultimate Guide Hitting the Slopes with Excellent Cams</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ize-youtube-video-the-ultimate-guide-to-ad-revenue/"><u>Monetize YouTube Video | The Ultimate Guide to Ad Revenue</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-carefully-top-3-social-schemes-to-sidestep/"><u>Navigate Carefully: Top 3 Social Schemes to Sidestep</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-top-tiktok-watermark-removal-tools-to-use-right-now/"><u>New Top TikTok Watermark Removal Tools to Use Right Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/riding-the-wave-again-instagrams-potential-rebirth/"><u>Riding the Wave Again: Instagram's Potential Rebirth</u></a></li>
+<li><a href="https://facebook.techidaily.com/shrouded-supports-concealing-facebook-endorsements/"><u>Shrouded Supports: Concealing Facebook Endorsements</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/the-ultimate-guide-to-generating-speech-in-different-languages-with-the-best-tools-for-2024/"><u>The Ultimate Guide to Generating Speech in Different Languages With the Best Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-facebook-tools-enhancing-teamwork-and-project-success/"><u>Top 8 Facebook Tools Enhancing Teamwork & Project Success</u></a></li>
 </ul></div>
 

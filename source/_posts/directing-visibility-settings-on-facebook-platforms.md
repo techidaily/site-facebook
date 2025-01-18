@@ -1,7 +1,7 @@
 ---
 title: Directing Visibility Settings on Facebook Platforms
-date: 2024-07-29T07:40:09.809Z
-updated: 2024-07-30T07:40:09.809Z
+date: 2025-01-16T16:12:25.684Z
+updated: 2025-01-18T16:00:30.718Z
 tags:
   - facebook
 categories:
@@ -21,14 +21,8 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 
  Here's how to decide which Facebook friends see you online and which don't...
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## How Do People See Who's Online on Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook online dot active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-online-dot-active-status.jpg)
 
  When it comes to showing your online status on Facebook and Messenger, the company uses something called Active Status.
@@ -51,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -64,13 +55,23 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 2. In the dropdown menu, select**Active Status: ON** .  
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Switch Off Facebook Online Status Completely
 
  So what if you don't want anyone to see you online on Facebook? You can appear offline or invisible on Facebook at all times if you want to.
@@ -85,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/f05049a163390a10effd56fd7872beac0cf978908
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 1. Select the Messenger icon at the top right of your Facebook home screen.
@@ -98,9 +103,6 @@ Close
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -120,32 +122,27 @@ This is different from a full Facebook block.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
 
  Use the settings in this article to regain some privacy when it comes to whether or not your contact list can see if you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +151,26 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-discovering-costless-software-for-streaming-sessions/"><u>[New] In 2024, Discovering Costless Software for Streaming Sessions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-8-top-collaborative-video-collage-tools-on-android-affordable/"><u>[New] The Ultimate 8 Top Collaborative Video Collage Tools on Android (Affordable)</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-yourself-through-language-mastery/"><u>Empower Yourself Through Language Mastery</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-halovision-highlights-critique/"><u>In 2024, HaloVision Highlights Critique</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-samsung-galaxy-a23-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Samsung Galaxy A23 5G</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-prime-picks-best-storytelling-channels-fans/"><u>In 2024, The Prime Picks Best Storytelling Channels Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-virtual-reality-to-messaging-on-fb-platform/"><u>Introducing Virtual Reality to Messaging on FB Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-us-officially-verified-sign-up-now/"><u>Meta US: Officially Verified Sign-Up Now</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/non-athletic-games-the-best-10-front-rows-for-2024/"><u>Non-Athletic Games The Best 10 Front Rows for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-fix-for-lost-login-reclaim-your-facebook-passcode/"><u>Quick Fix for Lost Login: Reclaim Your Facebook Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewable-revolution-complete-energy-for-fb/"><u>Renewable Revolution: Complete Energy for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-storytelling-on-facebook-with-reels-and-rooms/"><u>Revolutionizing Storytelling on Facebook with Reels & Rooms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-sharing-strategy-social-media-tips-for-privacy-protection/"><u>Safe Sharing Strategy: Social Media Tips for Privacy Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/sounds-for-stories-using-facebooks-new-messenger-features/"><u>Sounds for Stories: Using Facebook's New Messenger Features</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-android-slow-motion-video-magic-for-2024/"><u>The Ultimate Guide to Android Slow Motion Video Magic for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unified-media-presence-transferring-instagram-reels-to-facebook-feed/"><u>Unified Media Presence: Transferring Instagram Reels to Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-metaai-and-can-it-compete-with-other-chatbots/"><u>What Is MetaAI? And Can It Compete With Other Chatbots?</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-zte-blade-a73-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My ZTE Blade A73 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+</ul></div>
 

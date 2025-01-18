@@ -1,7 +1,7 @@
 ---
 title: Preventing Personal Photos From Pervading Public Domain at Meta
-date: 2025-01-04T02:46:48.742Z
-updated: 2025-01-06T02:07:59.051Z
+date: 2025-01-11T16:13:36.836Z
+updated: 2025-01-18T16:11:51.877Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta Joins Take It Down To Prevent Sextortion
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 ![a woman with her son at a desktop computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/parenta-control-featured.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta announced in a February 2023 press release that they will be joining an effort to stop and prevent the spread of young people’s intimate images online. Instagram and Facebook will be founding members of Take It Down, the new platform initiative from the National Center for Missing and Exploited Children (NCMEC).
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
  Intimate images, like those including nudity, and content that exploits young people, are already not allowed on Meta’s platforms. Meta’s work with NCMEC will hopefully prevent more content like this from being posted. The enforcement of the guidelines before this was largely retroactive instead of proactive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta Also Announces Safety Update to Instagram
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 ![User using iPhone Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/theives-stealing-iphones-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Instagram also introduced safety updates to make it more difficult for suspicious adults to interact with teens on the app including direct messages and comments. Teen accounts will also receive notifications to update their privacy settings if a suspicious adult tries to interact with their account.
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
  These features are in addition to other safety features on Instagram, including many specifically for teens like[activating parental supervision on teen Instagram accounts](https://www.makeuseof.com/instagram-how-to-activate-parental-supervision/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta Is Working to Prevent Intimate Image Sharing
@@ -85,16 +85,20 @@ thumbnail: https://thmb.techidaily.com/24c0edcba484cab644836ae0bb31bb9d7220262ab
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-innovative-house-blueprints-for-snapshot-players/"><u>[New] Innovative House Blueprints for Snapshot Players</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-pro-tips-navigating-without-watching-edgenuity-content/"><u>[Updated] In 2024, Pro Tips Navigating Without Watching Edgenuity Content</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-ultimate-utilities-free-and-paid-macpc-bd-software-compared/"><u>[Updated] In 2024, Ultimate Utilities Free & Paid Mac/PC BD Software Compared</u></a></li>
-<li><a href="https://win-latest.techidaily.com/choosing-between-disk-backup-and-cloning-a-comprehensive-guide/"><u>Choosing Between Disk Backup & Cloning - A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/encrypting-convo-on-fb-and-ig-delayed-to-next-years-start/"><u>Encrypting Convo on FB & IG Delayed to Next Year's Start</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-new-reality-3-potential-pitfalls/"><u>Exploring Facebook’s New Reality: 3 Potential Pitfalls</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-chats-to-check-ins-downloading-your-entire-facebook-story/"><u>From Chats to Check-Ins: Downloading Your Entire Facebook Story</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-nubia-z50-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Nubia Z50 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-facebook-shortcut-tailoring-made-simple/"><u>Step-by-Step Facebook Shortcut Tailoring Made Simple</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-hidden-content-redoing-deleted-fb-posts/"><u>Unveiling Hidden Content: Redoing Deleted FB Posts</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-iphone-7-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your iPhone 7 has bad ESN or blacklisted IMEI?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-step-up-to-the-challenge-full-screen-mastery-for-fb-vids/"><u>[New] 2024 Approved Step Up to the Challenge Full-Screen Mastery for FB Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-through-youtube-shorts-knowledge/"><u>[New] In 2024, Navigating Through YouTube Shorts Knowledge</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instasnap-optimize-images-and-videos-on-ig-for-2024/"><u>[New] InstaSnap Optimize Images & Videos on IG for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-noble-tunes-archiver-android-edition-for-2024/"><u>[New] Noble Tunes Archiver, Android Edition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-profile-the-journey-into-creating-3d-social-media-content/"><u>Elevating Your Profile: The Journey Into Creating 3D Social Media Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-insights-into-friend-identification-discover-3-fb-tag-methods/"><u>Exclusive Insights Into Friend Identification: Discover 3 FB Tag Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-your-conversation-realm-with-messenger/"><u>Expanding Your Conversation Realm with Messenger</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/expert-tips-on-handling-virus-threats-by-yl-software-the-ultimate-defense-techniques/"><u>Expert Tips on Handling Virus Threats by YL Software - The Ultimate Defense Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-fortunes-dim-as-tiktok-gains-popularity/"><u>Facebook's Fortunes Dim as TikTok Gains Popularity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-silent-issues-troubleshooting-sound-problems-on-your-acer-laptop/"><u>Fixing Silent Issues: Troubleshooting Sound Problems on Your Acer Laptop</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-notified-about-hidden-screenshots-messenger-style/"><u>Get Notified About Hidden Screenshots, Messenger Style</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/grandest-video-humor-studio/"><u>Grandest Video Humor Studio</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-securely-connecting-your-android-to-wi-fi-networks/"><u>Mastering the Art of Securely Connecting Your Android to Wi-Fi Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-sets-boundaries-on-satire/"><u>Social Network Sets Boundaries on Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-cross-service-integration-move-your-fb-stories-swiftly/"><u>Unlock Cross-Service Integration: Move Your FB Stories Swiftly.</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Digital Silence Strikes: WhatsApp & Instagram Downed"
-date: 2024-07-29T07:38:23.160Z
-updated: 2024-07-30T07:38:23.160Z
+date: 2025-01-17T16:04:13.964Z
+updated: 2025-01-18T16:08:29.742Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/f7aa9f91ee25ba92e513ec309ccac0797742d37b7
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/f7aa9f91ee25ba92e513ec309ccac0797742d37b7
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -56,22 +58,20 @@ thumbnail: https://thmb.techidaily.com/f7aa9f91ee25ba92e513ec309ccac0797742d37b7
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +80,21 @@ thumbnail: https://thmb.techidaily.com/f7aa9f91ee25ba92e513ec309ccac0797742d37b7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-masterclass-using-discord-spoilers-wisely/"><u>[New] 2024 Approved Masterclass Using Discord Spoilers Wisely</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-top-10-youtube-makeup-gurus-for-stunning-looks/"><u>[New] In 2024, Top 10 YouTube Makeup Gurus for Stunning Looks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-economical-airborne-experts-incredible-drones-under-500/"><u>[Updated] In 2024, Economical Airborne Experts Incredible Drones Under $500</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-free-premiere-pro-templates-2023/"><u>Best Free Premiere Pro Templates 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrammable-words-the-top-30-smarts-for-engaging-posts/"><u>Instagrammable Words: The Top 30 SMARTs for Engaging Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-invisible-participation-in-fb-groups/"><u>Mastering Invisible Participation in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-remedies-for-popular-facebook-challenges-and-hurdles/"><u>Quick Remedies for Popular Facebook Challenges and Hurdles</u></a></li>
+<li><a href="https://discover-data.techidaily.com/resipi-pemecah-infeksi-usb-langkah-detail-untuk-merehabilitasi-flash-disk-viral/"><u>Resipi Pemecah Infeksi USB: Langkah Detail Untuk Merehabilitasi Flash Disk Viral</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-compatibility-issues-with-undefined-speaker-setup-on-your-windows-pc/"><u>Resolving Compatibility Issues with Undefined Speaker Setup on Your Windows PC</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-hey-siri-a-comprehensive-guide-with-17-essential-fixes-for-ios-users/"><u>Revive Hey Siri: A Comprehensive Guide with 17 Essential Fixes for iOS Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-innovation-undercover-investigating-facebooks-secret-smartwatch/"><u>Social Innovation Undercover: Investigating Facebook's Secret Smartwatch</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ethical-guide-finding-a-persons-email-in-todays-digital-age/"><u>The Ethical Guide: Finding a Person’s Email in Today’s Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-private-network-evolution-insight/"><u>Virtual Private Network Evolution Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-unread-really-mean-on-social-media/"><u>What Does 'Unread' Really Mean on Social Media?</u></a></li>
+</ul></div>
 

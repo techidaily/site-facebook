@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2025-01-01T07:01:18.974Z
-updated: 2025-01-06T03:56:20.172Z
+date: 2025-01-17T16:26:29.258Z
+updated: 2025-01-18T16:20:31.380Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## England Sports' Social Media Blackout Has Begun
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -81,16 +81,24 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-laughlineart-memogallery/"><u>[New] 2024 Approved LaughLineArt MemoGallery</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-how-to-master-pip-in-google-chrome-a-comprehensive-guide/"><u>[Updated] In 2024, How to Master PIP in Google Chrome A Comprehensive Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-parallel-monitoring-system/"><u>[Updated] Parallel Monitoring System</u></a></li>
-<li><a href="https://win11.techidaily.com/decoding-the-code-uncovering-windows-program-hideouts/"><u>Decoding the Code: Uncovering Windows Program Hideouts</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-your-facebook-security-using-2fa-and-mtcg-together/"><u>Enhance Your Facebook Security: Using 2FA and MTCG Together</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-bulletin-boards-to-instagram-the-communication-evolution/"><u>From Bulletin Boards to Instagram: The Communication Evolution</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/gratuiti-online-trasforma-file-aif-in-mp4-con-convertitore-rapido-di-movavi/"><u>Gratuiti Online Trasforma File AIF in MP4 Con Convertitore Rapido Di Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-art-of-leaving-facebook-on-android/"><u>Master the Art of Leaving Facebook on Android</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/revolutionize-your-culinary-skills-with-these-7-handy-chatgpt-tricks-for-home-chefs/"><u>Revolutionize Your Culinary Skills with These 7 Handy ChatGPT Tricks for Home Chefs</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-upsetting-effect-of-ios-145-on-facebook-ads/"><u>The Upsetting Effect of iOS 14.5 on Facebook Ads</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/transformar-tus-mp3-a-mp4-gratuitamente-el-mejor-software-online-para-cambiar-facilmente-el-formato/"><u>Transformar Tus MP3 a MP4 Gratuitamente: El Mejor Software Online Para Cambiar Fácilmente El Formato</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-audioextractorproxs-new-era-insights-from-the-2024-update/"><u>[New] AudioExtractorProX's New Era Insights From the 2024 Update</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-overwatch-gameplay-captured-step-by-step-guide/"><u>[Updated] In 2024, Overwatch Gameplay Captured - Step by Step Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-smart-strategies-for-enriching-tiktok-biographies-with-linktree/"><u>[Updated] In 2024, Smart Strategies for Enriching TikTok Biographies with Linktree</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-visual-posts-made-easy-on-instagram/"><u>[Updated] In 2024, Visual Posts Made Easy on Instagram</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/cutting-costs-without-compromising-quality-my-switch-from-apple-and-metas-headsets-to-budget-xr-glasses-explained-pcmag/"><u>Cutting Costs Without Compromising Quality? My Switch From Apple and Meta's Headsets to Budget XR Glasses Explained | PCMag</u></a></li>
+<li><a href="https://facebook.techidaily.com/embarking-into-new-dimensions-understanding-and-importance-of-facebooks-metaverse/"><u>Embarking Into New Dimensions: Understanding and Importance of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-ray-ban-stories-what-are-they-and-how-much-do-they-cost/"><u>Facebook Launches Ray-Ban Stories: What Are They and How Much Do They Cost?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-safe-secure-and-stress-free-exclusive-list-of-free-video-call-apps-for-iphoneandroid/"><u>In 2024, Safe, Secure & Stress-Free Exclusive List of Free Video Call Apps for iPhone/Android</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-guide-to-polaroid-camplus-for-action-enthusiasts/"><u>In 2024, The Ultimate Guide to Polaroid Cam+ for Action Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/reveal-the-best-7-video-streaming-apps-to-go-live-on-youtube-iphoneandroid-for-2024/"><u>Reveal the Best 7 Video Streaming Apps to Go Live on YouTube (iPhone/Android) for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/ssdwindows-10/"><u>SSDへの効率的なWindows 10移行 - クローニング不要</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-paradox-why-do-people-reject-online-communities/"><u>The Facebook Paradox: Why Do People Reject Online Communities?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-filter-bubble-bill-a-closer-look/"><u>The Filter Bubble Bill: A Closer Look</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-most-heated-technological-minds-in-action/"><u>The Most Heated Technological Minds in Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-smart-way-to-benefit-from-facebooks-725m-class-action/"><u>The Smart Way to Benefit From Facebook's 725M Class Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/twinning-trends-exploring-the-affinity-between-fb-and-insta/"><u>Twinning Trends: Exploring the Affinity Between FB & Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-to-ignore-member-names-on-fb-groups/"><u>Unveiling the Process to Ignore Member Names on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-top-social-app/"><u>Unveiling the Top Social App</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Quick Remedies for Top 11 Social Media Headaches on FB
-date: 2025-01-03T23:32:36.900Z
-updated: 2025-01-06T04:16:23.543Z
+date: 2025-01-11T16:24:22.971Z
+updated: 2025-01-18T16:14:22.837Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/5102f68d4f6f5865eb613c39e1e5be805ea96bcf0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Require Reviews for Tags
 
 [Facebook tagging is a fun feature](http://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) on the surface, but it's also a privacy risk. If someone takes an embarrassing picture of you and tags you in it, all your friends will be able to see that picture. There's also a risk that someone could use a tagged post to obtain too much personal information about you.
@@ -41,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/5102f68d4f6f5865eb613c39e1e5be805ea96bcf0
 ![Facebook Profile and Tagging settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-profile-and-tagging-2023.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### If Facebook Tagging Isn't Working
@@ -63,10 +59,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Now, you won't have to suffer from that person's posts anymore. You'll still be friends, so you can visit their timeline when you want to check out what they're up to. And if you change your mind, just click the**Follow** button to start seeing their posts in your feed again.
 
  For a short-term solution, you can also click the three-dot**Menu** button on any post, then choose**Snooze \[Name\] for 30 days** . This will hide their posts for a month, so you can take a break from that person.
@@ -85,10 +77,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Manage Favorites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Manage-Favorites.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Opt Out of Targeted Ads on Facebook
 
  Facebook makes most of its money from advertising. Thus, the platform spends a lot of time trying to serve you the most relevant ads in the hopes you'll interact with them. By default,[Facebook tracks you everywhere you go](https://www.makeuseof.com/tag/facebook-tracking-stop/) and uses your browsing habits to influence what ads you see. You can opt out of these personalized ads and see more general ones based on your public characteristics.
@@ -98,7 +86,7 @@ We all know someone who posts all the time on Facebook:
 ![Meta Account Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/meta-account-ad-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Here, you'll see a few categories. Choose**No** under**Activity information from ad partners** and Facebook won't use your activity on other sites to show ads on Facebook.
@@ -109,9 +97,17 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Advertising List Info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Advertising-List-Info.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Setting**Social interactions** to**Only Me** prevents Facebook from using pages that you like to show ads to your friends.
 
  Finally, if you disable the slider in**Ads shown off of Meta** , websites that use Meta's ad services can't use your profile to affect the ads you see outside of Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Stop Sharing Posts With Everyone
 
@@ -131,10 +127,6 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Restricted List Friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Restricted-List-Friends.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Block Annoying Auto-Playing Videos
 
  Very few people like videos that play as soon as you scroll past them. They're loud and can catch you off-guard if you thought your volume was muted. Plus, if you're on a metered connection, they're a waste of data.
@@ -142,6 +134,10 @@ We all know someone who posts all the time on Facebook:
  To turn off auto-play for videos on Facebook, click your profile picture again and choose**Settings & privacy > Settings** . Click the**Videos** tab on the left, then set the**Auto-Play Videos** option to**Off** .
 
 ![Facebook Disable Video Autoplay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Disable-Video-Autoplay.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Block Annoying App Invites
 
@@ -152,6 +148,10 @@ We all know someone who posts all the time on Facebook:
  If you'd like, you can also enter an app's name in the**Block apps** field. This will prevent it from contacting you and using your non-public Facebook information. If desired, use the other fields here to granularly[block people on Facebook](https://www.makeuseof.com/how-to-block-facebook/) through various channels.
 
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Change the Facebook Interface to Your Liking
 
@@ -174,6 +174,10 @@ We all know someone who posts all the time on Facebook:
 
  Dig into the Social Fixer options and you'll find many more ways to change the most annoying parts of Facebook.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Solutions for Common Facebook Errors
 
  To wrap up, let's go over some tips for common Facebook errors you might run into.
@@ -181,10 +185,6 @@ We all know someone who posts all the time on Facebook:
 ### 9\. You Forgot Your Facebook Password
 
  Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on[recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And[if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. You Can't Connect to Facebook
 
@@ -207,7 +207,7 @@ We all know someone who posts all the time on Facebook:
  When you get messages like this, make sure you've done basic Facebook troubleshooting too. Refresh the page, try logging out and back in, and make sure you don't have a network issue, as described above. If you're comfortable with it, try asking a mutual friend if they have the same problem. This can confirm your suspicions that you've been blocked or otherwise restricted.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Fix Facebook Problems Easily
@@ -231,18 +231,24 @@ We all know someone who posts all the time on Facebook:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-art-of-youtube-channels-crafting-brands-that-attract-viewers-for-2024/"><u>[New] The Art of YouTube Channels Crafting Brands That Attract Viewers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-growth-essential-meta-concepts-and-strategies/"><u>Elevate Growth: Essential Meta Concepts & Strategies</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-lexar-portable-usb-driver-instantly-free-downloads-here/"><u>Get Your Lexar Portable USB Driver Instantly - Free Downloads Here</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-realme-12-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Realme 12 5G Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-facebook-is-changing-the-game-for-musicians-and-earnings/"><u>How Facebook Is Changing the Game for Musicians and Earnings</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-look-the-workplace-dynamics-on-facebook-groups/"><u>Inside Look: The Workplace Dynamics on Facebook Groups</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ipad-pro-vs-macbook-air-a-comprehensive-review-of-their-unique-features/"><u>IPad Pro vs MacBook Air - A Comprehensive Review of Their Unique Features</u></a></li>
-<li><a href="https://win-blog.techidaily.com/lag-free-gaming-with-rainbow-six-siege-essential-troubleshooting-guide/"><u>Lag-Free Gaming with Rainbow Six Siege - Essential Troubleshooting Guide</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-electronics-a-detailed-toms-perspective/"><u>Navigating the World of Electronics: A Detailed Tom's Perspective</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-overview-of-best-luts-for-vlog/"><u>New 2024 Approved Overview of Best LUTs for Vlog</u></a></li>
-<li><a href="https://facebook.techidaily.com/reality-vs-perception-how-we-view-facebooks-userbase/"><u>Reality Vs. Perception: How We View Facebook's Userbase</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-300-investment-oculus-quest-trend-post-account-breaches/"><u>The $300 Investment: Oculus Quest Trend Post-Account Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/just-chill-decoding-instagrams-encouragement-to-reduce-tech-time/"><u>'Just Chill': Decoding Instagram’s Encouragement to Reduce Tech Time</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-finalizing-your-video-with-a-bold-statement/"><u>[New] 2024 Approved Finalizing Your Video with a Bold Statement</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-sony-bdp-s6500-review/"><u>[New] 2024 Approved Sony BDP-S6500 Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-capture-kings-warzone-for-2024/"><u>[New] Capture Kings Warzone for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-meme-madness-twitters-funniest-video-threads/"><u>[Updated] Meme Madness Twitter's Funniest Video Threads</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/my-passport-wd/"><u>西部My Passport WD數據盒容量分配與管理：解決方法</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/eyegigglesengine-jestimageforge-for-2024/"><u>EyeGigglesEngine JestImageForge for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-familiarity-or-isolation-the-impact-of-joining-a-fb-expat-group/"><u>Finding Familiarity or Isolation? The Impact of Joining a FB Expat Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-pages-adopting-additional-admins/"><u>Fortify Your Pages: Adopting Additional Admins</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-vivo-v27e-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Vivo V27e Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-restrictions-under-consideration-facebooks-upcoming-youth-initiative/"><u>Instagram Restrictions Under Consideration: Facebook's Upcoming Youth Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networkings-new-favorite-crypto-advertising-increases/"><u>Social Networking's New Favorite: Crypto Advertising Increases</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/turning-onoff-your-android-devices-bluetooth-connection/"><u>Turning On/Off Your Android Device's Bluetooth Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-iconography-in-digital-communication-fb-messenger/"><u>Understanding Iconography in Digital Communication: FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-remote-relationships-through-facebook-portals-video-chats/"><u>Unlocking Remote Relationships Through Facebook Portals' Video Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-auditory-expressions-for-sms/"><u>Unraveling Facebook’s Auditory Expressions for SMS</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-clearly-the-efectum-app-download-without-a-watermark-option-is-on-android-phones-thus-read-this-review-on-the-efectum-app-and-find-replaceme/"><u>Updated In 2024, Clearly, the Efectum App Download without a Watermark Option Is on Android Phones. Thus, Read This Review on the Efectum App and Find Replacements for Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-online-dialogue-is-now-in-the-hands-of-social-giants/"><u>Why Online Dialogue Is Now in the Hands of Social Giants</u></a></li>
 </ul></div>
 

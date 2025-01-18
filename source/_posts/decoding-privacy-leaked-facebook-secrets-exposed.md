@@ -1,7 +1,7 @@
 ---
 title: "Decoding Privacy: Leaked Facebook Secrets Exposed"
-date: 2024-07-29T07:35:11.469Z
-updated: 2024-07-30T07:35:11.469Z
+date: 2025-01-14T16:21:55.651Z
+updated: 2025-01-18T16:09:59.662Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
@@ -31,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7 Key Revelations From the Facebook Papers
 
  Given the number of documents turned over to the media, it took a coordinated effort between multiple organizations to comb through and deliver detailed analysis. But, now, there are several major revelations into practices at Facebook regarding human rights, political violence, hate speech, harmful content, and other damning portrayals writ large.
@@ -49,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -65,4 +64,21 @@ thumbnail: https://thmb.techidaily.com/c773b247e1e0895c35ac3965c0957524900af663f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/updated-boosting-video-playback-rate-on-tiktok-for-2024/"><u>[Updated] Boosting Video Playback Rate on TikTok for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-breakdown-of-ad-revenue-average-income-for-youtube-vids-in-2024/"><u>[Updated] Breakdown of Ad Revenue Average Income for YouTube Vids, In 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-revolutionize-visual-content-leading-montage-tools-for-phones/"><u>[Updated] In 2024, Revolutionize Visual Content Leading Montage Tools for Phones</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-accuracy-at-hand-editing-tiktoks-personal-info/"><u>2024 Approved Accuracy at Hand Editing TikTok's Personal Info</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-ordinary-to-outstanding-transforming-your-meetings-with-zoom-filters/"><u>2024 Approved From Ordinary to Outstanding Transforming Your Meetings with Zoom Filters</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/best-mp3-to-mpg-video-converters-available-at-no-cost-easy-step-by-step-guide/"><u>Best MP3-to-MPG Video Converters Available at No Cost – Easy Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-actions-restoring-your-inaccessible-social-network-id/"><u>Immediate Actions: Restoring Your Inaccessible Social Network ID</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-poco-m6-pro-4g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Poco M6 Pro 4G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-x-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone X Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/portraits-to-prowess-6-steps-to-boost-likes-and-followers/"><u>Portraits to Prowess: 6 Steps to Boost Likes and Followers</u></a></li>
+<li><a href="https://solve-info.techidaily.com/reviving-a-sluggish-printer-restart-techniques-detailed-by-yl-software-experts/"><u>Reviving a Sluggish Printer: Restart Techniques Detailed by YL Software Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-identity-on-facebook-7-key-tips/"><u>Shielding Identity on Facebook: 7 Key Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-haven-for-anti-immunization-groups-lives-on/"><u>Social Media's Haven for Anti-Immunization Groups Lives On</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-duplicate-who-are-you-really/"><u>Twitter Duplicate: Who Are You Really?</u></a></li>
+</ul></div>
 

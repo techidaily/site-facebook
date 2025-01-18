@@ -1,7 +1,7 @@
 ---
 title: "Spotify Miniplayer: A Compact Music Haven Within FB App"
-date: 2025-01-05T20:41:11.945Z
-updated: 2025-01-12T16:13:34.908Z
+date: 2025-01-14T16:19:11.171Z
+updated: 2025-01-18T16:10:29.015Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Enjoy Your Favorite Spotify Content on the Facebook App
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
@@ -52,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
 
  To launch the new Facebook player, simply tap the**Play** button on the Spotify song shared on the News Feed.
@@ -65,13 +61,13 @@ thumbnail: https://thmb.techidaily.com/4af354c0c4f31e85da7815990d834961f2e7342ec
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -79,6 +75,10 @@ Close
  The chosen song should start playing right away. You can continue to scroll through your News Feed, and the song will keep playing.
 
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## More Audio Features Are Coming Soon
 
@@ -101,14 +101,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-from-playtime-to-prestige-capturing-sims-mastery/"><u>[New] In 2024, From Playtime to Prestige Capturing Sims Mastery</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-insiders-guide-overcome-iphone-video-dullness-using-4-adobe-solutions/"><u>2024 Approved [Insider's Guide] Overcome iPhone Video Dullness Using 4 Adobe Solutions</u></a></li>
-<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>3 Things You Must Know about Fake Snapchat Location On Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-your-personal-data-like-phone-no-at-risk-from-facebook/"><u>Are Your Personal Data, Like Phone No., At Risk From Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-digital-dustbin-efficiently-erase-facebook-comments/"><u>Avoid Digital Dustbin: Efficiently Erase Facebook Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/chamber-conquest-strategies-for-communication-newbies/"><u>Chamber Conquest Strategies for Communication Newbies</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-social-ties-facebook-memory-blocking-guide/"><u>Cut Social Ties: Facebook Memory Blocking Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-vivo-x100-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Vivo X100 Phones</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-y200-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Vivo Y200</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-top-8-screen-capture-programs-for-linux-experts/"><u>[New] 2024 Approved Top 8 Screen Capture Programs for Linux Experts</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-expert-guide-to-converting-xmlssattml-into-srt/"><u>[Updated] 2024 Approved Expert Guide to Converting XML/SSA/TTML Into SRT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-exclusive-leaderboard-luminary-youtube-videographers-guide/"><u>[Updated] In 2024, Exclusive Leaderboard Luminary YouTube Videographer's Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/10-superior-video-capture-software-in-windows-10/"><u>10 Superior Video Capture Software in Windows 10</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-streamed-audiovideo-crafts-meetup/"><u>2024 Approved Streamed Audio/Video Crafts Meetup</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-independent-messaging-services-not-fb/"><u>Exploring Independent Messaging Services, Not FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-do-social-networks-make-money-explained/"><u>How Do Social Networks Make Money? Explained</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Vivo V29 Pro? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/issues-playing-h265-hevc-video-on-huawei-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Huawei</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/overcoming-video-send-failures-in-facebook-chat-iphoneandroid-guide/"><u>Overcoming Video Send Failures in Facebook Chat IPhone/Android Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-the-payout-of-facebooks-class-action-lawsuit/"><u>Tapping Into the Payout of Facebook's Class Action Lawsuit</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-dislikes-on-digital-platforms/"><u>The Case for Dislikes on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-easy-path-to-backing-up-fb-photos-and-vids/"><u>The Easy Path to Backing Up FB Photos & Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-security-features-on-facebook-with-2fa-and-mcg/"><u>Unlocking Security Features on Facebook with 2FA and MCG</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-am-i-viewed-with-these-certain-facebook-promotions/"><u>Why Am I Viewed with These Certain Facebook Promotions?</u></a></li>
 </ul></div>
 

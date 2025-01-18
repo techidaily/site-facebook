@@ -1,7 +1,7 @@
 ---
 title: "Invisible Influence: 7 Hidden Harmfulness of Networking Sites"
-date: 2025-01-05T06:14:20.381Z
-updated: 2025-01-05T19:17:36.227Z
+date: 2025-01-13T16:17:52.599Z
+updated: 2025-01-18T16:17:36.068Z
 tags:
   - facebook
 categories:
@@ -30,10 +30,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Depression and Anxiety
 
  Do you spend several hours per day browsing through social media? Spending too long on social networking sites could adversely affect your mood. In fact, chronic social users are more likely to report poor mental health, including symptoms of anxiety and depression.
@@ -48,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows[what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -62,10 +54,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -74,9 +62,17 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -91,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Negative Body Image
@@ -106,6 +102,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
  Surround yourself with people who love you for who you are, and you won't have to stress about fake Instagram beauty.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Unhealthy Sleep Patterns
 
  On top of increasing the cases of anxiety and depression, another bad thing about social media is that spending too much time on it can lead to poor sleep. Numerous studies have shown that increased use of social media has a negative effect on your sleep quality.
@@ -115,10 +115,6 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  This is especially the case when using your phone in bed at night. It's all too easy to tell yourself that you'll spend five minutes checking your Facebook notifications, only to realize an hour later that you've been mindlessly scrolling through some nonsense on Twitter you don't even care about.
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. General Addiction
 
@@ -131,6 +127,10 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -153,16 +153,22 @@ thumbnail: https://thmb.techidaily.com/805432a26a63c24a3ad7f94c306f1a1291a2364be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-stepwise-guide-to-convert-vimeo-media-to-mp3-for-2024/"><u>[Updated] Stepwise Guide to Convert Vimeo Media to MP3 for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-journey-through-time-a-comprehensive-guide-on-scanning-and-storing-old-prints/"><u>2024 Approved Journey Through Time A Comprehensive Guide on Scanning and Storing Old Prints</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-schedule-strategic-planning-of-limited-facebook-time/"><u>Creating a Schedule: Strategic Planning of Limited Facebook Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-social-medias-curated-advice-on-facebook/"><u>Dissecting Social Media’s Curated Advice on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-metaai-poised-to-become-a-conversational-technology-leader/"><u>Is MetaAI Poised to Become a Conversational Technology Leader?</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138592254-9781463313678-quisqueya-un-pais-en-el-mundo/"><u>Quisqueya: Un País En El Mundo | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-transformation-navigating-the-meta-ai-terrain/"><u>Social Media Transformation: Navigating the Meta AI Terrain</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-gaining-access-through-trustedinstaller-on-windows-10/"><u>Step-by-Step Guide: Gaining Access Through TrustedInstaller on Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-navigation-of-facebooks-transparency-for-users/"><u>Step-by-Step Navigation of Facebook's Transparency for Users</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/winning-strategies-to-fix-discords-setup-errors/"><u>Winning Strategies to Fix Discord's Setup Errors</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-bridging-story-and-sound-scriptwriting-for-visual-media/"><u>[Updated] In 2024, Bridging Story and Sound Scriptwriting for Visual Media</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unlocking-the-potential-ps4-recording-techniques-in-obs-for-2024/"><u>[Updated] Unlocking the Potential PS4 Recording Techniques in OBS for 2024</u></a></li>
+<li><a href="https://win-premium.techidaily.com/1726226560649-3gpmov-movavi/"><u>網路上無障礙地自由轉換3GP成MOV - Movavi格式切換工具</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-top-9-steps-for-safe-marketplace-interactions/"><u>Expert Advice: Top 9 Steps for Safe Marketplace Interactions</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 6 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-facebooks-power-for-group-specific-inquiries/"><u>Harness Facebook's Power for Group-Specific Inquiries</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-hide-location-on-apple-iphone-12-mini-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Hide location on Apple iPhone 12 mini and Android without others knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-optimizing-youtube-banners-with-best-practices-in-mind/"><u>In 2024, Optimizing YouTube Banners with Best Practices in Mind</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-takes-its-time-no-third-oculus-quest-announcement-max-74-characters/"><u>Innovation Takes Its Time: No Third Oculus Quest Announcement (Max 74 Characters)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/mastering-live-broadcasts-obs-tips-for-youtube-and-twitch-for-2024/"><u>Mastering Live Broadcasts OBS Tips for YouTube & Twitch for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/movavis-on-the-go-video-transcoding-change-your-m1v-files-into-avi-for-zero-cost/"><u>Movavi's On-The-Go Video Transcoding: Change Your M1V Files Into AVI for Zero Cost!</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-profile-picture-revamp-on-facebook/"><u>Navigating the Profile Picture Revamp on Facebook</u></a></li>
+<li><a href="https://win-answers.techidaily.com/outriders-performance-tuned-how-to-eliminate-unwanted-delays/"><u>Outriders Performance Tuned: How to Eliminate Unwanted Delays</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-vax-initiative-featured-in-biden-strategy/"><u>Social Media Vax Initiative Featured in Biden Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-instantly-tips-and-tricks/"><u>Stop FB Alerts & Messages Instantly: Tips and Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-network-enlist-new-folks-to-facebook-messenger/"><u>Streamline Your Network: Enlist New Folks to Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-transformation-in-online-privacy-policy/"><u>Understanding Meta’s Transformation in Online Privacy Policy</u></a></li>
 </ul></div>
 

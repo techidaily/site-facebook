@@ -1,7 +1,7 @@
 ---
 title: Deletion or Memories - Managing Late Loved Ones' Virtual Footprints
-date: 2024-07-29T07:37:52.564Z
-updated: 2024-07-30T07:37:52.564Z
+date: 2025-01-17T16:04:18.388Z
+updated: 2025-01-18T16:03:22.797Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/c23fd39a2d5eab7804c8c0b256c287da5a7d97c2d
 
  Anyone can take advantage of the content and account no longer in use. But what can be done to avoid it? Facebook allows its users to memorialize or remove a deceased person's Facebook account. You just need to follow a few simple steps.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## How to Get a Facebook Account Memorialized
 
  A memorialized Facebook profile becomes a platform for people to remember their loved ones. You can share their memories and talk about them. Once an account is memorialized, it gets “Remembering” in front of the name.
@@ -33,12 +30,19 @@ To get a Facebook account memorialized, follow these steps:
 1. Open the[Facebook Account Memorialization Form](https://www.facebook.com/help/contact/234739086860192) from your mobile or desktop. You need to be logged in to Facebook to access it.  
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
-3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
+
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
 6. Tap**Send** .
 
@@ -47,13 +51,11 @@ To get a Facebook account memorialized, follow these steps:
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Get a Facebook Account Removed After the Person Dies
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
@@ -67,16 +69,23 @@ To get a Facebook account memorialized, follow these steps:
 1. Open the[Special Request For Medically Incapacitated or Deceased Person's Account Form](https://www.facebook.com/help/contact/228813257197480) .  
 ![Special request form for deceased persons account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Special-request-form-for-deceased-persons-account.jpg)
 2. In the**Full Name** section, enter your official credentials.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
 4. After that, enter the deceased person’s name as written on their Facebook profile. It can differ from the name mentioned on their death certificate. This is why Facebook recommends using your actual name when creating a profile.
 5. Copy the URL from their Facebook profile and paste it under the**Link (URL) to the Person's Profile** section. To copy a URL on mobile, go to the deceased person's**Profile** , tap the three dots, and under**Profile Link** , select**Copy Profile Link** .
 
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
 5. Under**When Did They Pass Away** , select the date of death.
@@ -86,9 +95,6 @@ To get a Facebook account memorialized, follow these steps:
 
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
 
  When people pass away, their Facebook account is still left running. Users must appoint a legacy contact in their life. This contact has access to their content and posts.
@@ -97,14 +103,11 @@ To get a Facebook account memorialized, follow these steps:
 
  However, if the deceased wished not to remain on Facebook after death, their legacy contact can get the account removed. We discussed both methods to help you make a sound decision for the one who is no longer in your life.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,4 +116,22 @@ To get a Facebook account memorialized, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-analyzing-peak-engagement-for-podcast-drops/"><u>[New] Analyzing Peak Engagement for Podcast Drops</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters-for-2024/"><u>[Updated] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters) for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-radeon-hd-graphics-driver-download-compatible-with-windows-pcs/"><u>AMD Radeon HD Graphics Driver Download - Compatible with Windows PCs</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/comprehensive-bluehost-analysis-testing-cloud-vps-and-shared-solutions/"><u>Comprehensive Bluehost Analysis: Testing Cloud, VPS & Shared Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-spotify-account-from-facebook/"><u>How to Disconnect Your Spotify Account From Facebook</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-samsung-galaxy-s24-ultra-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Samsung Galaxy S24 Ultra FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-conversation-feature-to-shut-down-in-december/"><u>Instagram’s Conversation Feature to Shut Down in December</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-markets-unveiling-best-biz-platforms/"><u>Mastering the Markets: Unveiling Best Biz Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalized-business-endorsements-on-the-horizon-with-facebook/"><u>Personalized Business Endorsements on the Horizon with Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-the-utility-of-meta-ai-in-social-platforms/"><u>Pondering the Utility of Meta AI in Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-your-facebook-profiles-privacy-settings/"><u>Sculpting Your Facebook Profile's Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-imagery-assembly-personalized-posts-with-pictures/"><u>Seamless Imagery Assembly: Personalized Posts with Pictures</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/transforming-desktop-organization-changing-folder-hues-in-macos/"><u>Transforming Desktop Organization: Changing Folder Hues in macOS</u></a></li>
+<li><a href="https://win11.techidaily.com/win11-quick-solutions-for-failed-item-drops/"><u>Win11: Quick Solutions for Failed Item Drops</u></a></li>
+</ul></div>
 

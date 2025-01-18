@@ -1,7 +1,7 @@
 ---
 title: Donald Trump's Legal Standoff with G-F-T Over Free Speech
-date: 2024-07-29T07:38:14.610Z
-updated: 2024-07-30T07:38:14.610Z
+date: 2025-01-12T16:04:04.100Z
+updated: 2025-01-18T16:06:31.272Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
  Former President Donald Trump is taking legal action against Twitter, Facebook, and YouTube after he was banned from each platform following the January 6 Capitol riots. Trump announced that he's filing class-action lawsuits against each platform and their respective CEOs, arguing that he was wrongfully censored on these social networks.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Trump Is Suing Big Tech for Alleged Censorship
 
  At a press conference in New Jersey, Trump told his audience that he's suing Facebook, Twitter, and YouTube for allegedly infringing on his right to free speech. Trump's filing seeks punitive damages, as well as the reinstatement of his accounts on each social network.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
  YouTube also suspended Trump in January, and only[plans to lift the ban once "the risk of violence has decreased](https://www.makeuseof.com/youtube-on-trump-suspension/) ."
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What About Trump's New Social Network?
 
  To counteract his bans from the most popular social platforms, Trump has created his own: GETTR. GETTR prides itself on "rejecting political censorship and 'cancel culture,'" which is a policy that Twitter, Facebook, and YouTube allegedly don't have.
@@ -47,14 +49,11 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
 
  Image Credit: Chairman of the Joint Chiefs of Staff/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Trump,%5FPentagon%5Fleaders%5Fhonor%5F9-11%5Fvictims%5F%2836979645216%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,4 +62,22 @@ thumbnail: https://thmb.techidaily.com/75e496d7d03af882c809a7273c9e1eb1d9baeae9a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-pinnacle-of-amusement-select-15-laughing-out-loud-channels/"><u>[New] 2024 Approved The Pinnacle of Amusement Select 15 Laughing-Out-Loud Channels</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-insiders-guide-to-creating-viral-memes-on-9gag/"><u>[Updated] In 2024, The Insider's Guide to Creating Viral Memes on 9GAG</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209974015-9781633411760-earth-energy-meditations/"><u>Earth Energy Meditations | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-flips-the-script-with-weekend-live-selling/"><u>Facebook Flips the Script with Weekend Live-Selling</u></a></li>
+<li><a href="https://facebook.techidaily.com/governance-guild-prepares-to-dictate-trumps-status-on-fb/"><u>Governance Guild Prepares to Dictate Trump's Status on FB.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-your-banking-information-safe-the-possibility-of-chatgpt-enabled-cyber-attacks-explored/"><u>Is Your Banking Information Safe? The Possibility of ChatGPT-Enabled Cyber Attacks Explored.</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-muting-fb-reels/"><u>Mastery Over Muting FB Reels</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximize-domestic-productivity-with-these-6-chatgpt-hacks/"><u>Maximize Domestic Productivity with These 6 ChatGPT Hacks</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/menemukan-partisi-lengkap-di-perangkat-usb-hidden/"><u>Menemukan Partisi Lengkap Di Perangkat USB Hidden</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/realme-gt-neo-5-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme GT Neo 5 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-tecno-phantom-v-fold-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Tecno Phantom V Fold</u></a></li>
+<li><a href="https://driver-install.techidaily.com/system-conflict-diagnostics/"><u>System Conflict Diagnostics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-allure-of-ambiguity-examining-vague-online-conversations/"><u>The Allure of Ambiguity: Examining Vague Online Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-interaction-unveiling-six-transformative-facts-about-fbs-metaverse/"><u>The Future of Social Interaction: Unveiling Six Transformative Facts About FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-manual-merging-social-media-on-xbox-console/"><u>The Ultimate Manual: Merging Social Media on Xbox Console</u></a></li>
+</ul></div>
 

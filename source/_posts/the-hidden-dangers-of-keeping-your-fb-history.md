@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers of Keeping Your FB History
-date: 2025-01-10T16:27:04.726Z
-updated: 2025-01-12T20:08:07.739Z
+date: 2025-01-11T16:02:09.554Z
+updated: 2025-01-18T16:23:30.848Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How to Delete Your Facebook Watch History](#how-to-delete-your-facebook-watch-history)
@@ -33,11 +37,19 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
  Managing your Facebook watched videos history is an integral part of staying in control of your digital footprint. Because no one needs to know what videos you watch on Facebook. And if you want to protect your privacy, you can delete your Facebook watch history completely.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete Your Facebook Watch History
 
  You can delete your Facebook video history on whatever device you use to access Facebook. You just need to access your Activity log.
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Delete Your Facebook Watch History on Android
 
@@ -46,14 +58,10 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 ![screenshot showing facebook profile page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
@@ -75,20 +83,16 @@ Close
 1. ![clear video watch history on the facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/clear-video-watch-history-pc-screenshot.jpg)  
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
 
@@ -100,14 +104,10 @@ Close
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
@@ -135,16 +135,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-unlocking-potential-with-apples-m1-max-clip-for-2024/"><u>[New] Unlocking Potential with Apple's M1 Max Clip for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-small-shop-success-through-social-video-content/"><u>2024 Approved Small Shop Success Through Social Video Content</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unveiling-windows-10s-full-potential-with-zoom-services/"><u>2024 Approved Unveiling Windows 10'S Full Potential with Zoom Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-disruption-all-key-social-networks-downed/"><u>Digital Disruption: All Key Social Networks Downed</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-frontier-contributes-to-health-crisis-alleviation/"><u>Digital Frontier Contributes to Health Crisis Alleviation</u></a></li>
-<li><a href="https://facebook.techidaily.com/digitally-dividable-social-sites-revenue-rules/"><u>Digitally Dividable: Social Sites' Revenue Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-facebooks-updated-policy-framework-with-hub-debut/"><u>Dive Into Facebook’s Updated Policy Framework with Hub Debut</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/profitable-pixels-monetizing-content-across-platforms/"><u>Profitable Pixels Monetizing Content Across Platforms</u></a></li>
-<li><a href="https://fox-links.techidaily.com/proven-ways-to-enhance-your-home-nba-streams/"><u>Proven Ways to Enhance Your Home NBA Streams</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/superior-online-multimedia-collaboration-tools-for-2024/"><u>Superior Online Multimedia Collaboration Tools for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-best-mics-on-the-market-for-podcasts/"><u>The Best Mics on the Market, For Podcasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-achieving-flawless-aerial-shots-the-best-gimbals-for-drones/"><u>[New] 2024 Approved Achieving Flawless Aerial Shots The Best Gimbals for Drones</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-turning-social-media-sounds-into-functional-phone-alarms-for-2024/"><u>[New] Turning Social Media Sounds Into Functional Phone Alarms for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-future-of-social-sharing-youtube-to-fb-techniques/"><u>[Updated] In 2024, The Future of Social Sharing YouTube to FB Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-clarity-counts-how-to-zoom-into-every-aspect-of-google-meet-calls/"><u>2024 Approved Clarity Counts How to Zoom Into Every Aspect of Google Meet Calls</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-ultimate-deals-for-acer-laptops-and-tablets-during-amazon-prime-day-202n4/"><u>Discover the Ultimate Deals for Acer Laptops and Tablets During Amazon Prime Day 202N4</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-hd-media-posting-mastery-on-social/"><u>Elevating Your HD Media: Posting Mastery on Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pledges-5m-for-covd-19-global-response/"><u>Facebook Pledges $5M for COVD-19 Global Response</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-hands-on-the-official-logitech-k400-plus-keyboard-drivers-download-now/"><u>Get Your Hands on the Official Logitech K400 Plus Keyboard Drivers - Download Now!</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/hurdles-in-the-horizon-facebooks-predictions/"><u>Hurdles in the Horizon: Facebook's Predictions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-tips-escaping-the-stuck-on-configuring-windows-phase/"><u>Troubleshooting Tips: Escaping the 'Stuck on Configuring Windows' Phase</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-best-facebook-home-assistants/"><u>Unveiling the Best Facebook Home Assistants</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-whatsapp-and-instagram-went-offline-for-six-hours/"><u>Why Facebook, WhatsApp, and Instagram Went Offline for Six Hours</u></a></li>
 </ul></div>
 

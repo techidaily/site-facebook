@@ -1,7 +1,7 @@
 ---
 title: Quick Fixes for Regaining Access After FB Intrusion
-date: 2025-01-01T20:33:11.085Z
-updated: 2025-01-06T07:14:48.743Z
+date: 2025-01-16T16:22:19.723Z
+updated: 2025-01-18T16:10:50.510Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 
  These are the most obvious signs something's wrong, but there are more subtle ones. If a Facebook hacker gets into your account, they will leave a trace.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Check Your Login Sessions
 
  Did someone log in from a location or device you're not familiar with?
@@ -53,17 +57,9 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1a. Change Your Facebook Password
 
@@ -73,10 +69,6 @@ Other signs that your account may have been hacked include:
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
 Do this only if you're sure you can log back in.
@@ -85,15 +77,27 @@ Do this only if you're sure you can log back in.
 
  If you still think your account has been compromised, proceed to Step 3.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1b. Reset Your Facebook Password
 
  If the hacker did change your password, and you need to[recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will let you retrieve your password in several ways. First, you'll have to**Find Your Account** . You can either enter the email address you used to register with Facebook or any other secondary email address you added, as well as your phone number.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
@@ -115,11 +119,11 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Remove Suspicious Applications
 
@@ -132,7 +136,7 @@ Do this only if you're sure you can log back in.
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We also recommend removing all**Expired** apps and websites.
@@ -140,10 +144,6 @@ Do this only if you're sure you can log back in.
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Do Damage Control
 
@@ -180,16 +180,17 @@ Do this only if you're sure you can log back in.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-boost-views-with-your-own-youtube-thumbnail-design-for-2024/"><u>[New] Boost Views with Your Own YouTube Thumbnail Design for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-great-streamer-challenge-obs-vs-twitch/"><u>[New] In 2024, The Great Streamer Challenge OBS vs Twitch</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-master-strategies-for-skyrocketing-youtube-follows/"><u>[New] Master Strategies for Skyrocketing YouTube Follows</u></a></li>
-<li><a href="https://win11.techidaily.com/6-tips-to-improve-your-wsl-2-docker-experience-on-windows/"><u>6 Tips to Improve Your WSL 2 Docker Experience on Windows</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-comprehensive-list-of-top-senior-mobile-plans-dominating-2024-market/"><u>A Comprehensive List of Top Senior Mobile Plans Dominating 2024 Market</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-news-feed-a-new-era-simplified/"><u>Facebook's News Feed: A New Era Simplified</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-zte-axon-40-lite-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked ZTE Axon 40 Lite Phone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-x-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone X Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/imminent-facebook-upgrade-introducing-reels-and-rooms-to-stories/"><u>Imminent Facebook Upgrade: Introducing Reels and Rooms to Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-a-quick-guide-to-chroma-key-background/"><u>2024 Approved A Quick Guide to Chroma Key Background</u></a></li>
+<li><a href="https://win-unique.techidaily.com/achetez-aomei-technician-plus-and-cloud-solutions-ingrandisseables-de-sauvegarde-pour-ordinateurs-et-servers/"><u>Achetez AOMEI Technician Plus & Cloud : Solutions Ingrandisseables De Sauvegarde Pour Ordinateurs Et Servers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/are-auditory-hallucinations-a-sign-of-mental-illness/"><u>Are Auditory Hallucinations a Sign of Mental Illness?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-tecno-pova-5-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Tecno Pova 5</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-unlocking-oculus-go-root-access-what-this-means-for-owners/"><u>Facebook Is Unlocking Oculus Go Root Access: What This Means for Owners</u></a></li>
+<li><a href="https://facebook.techidaily.com/focusing-your-online-narrative-for-success-on-professional-networks-like-fb/"><u>Focusing Your Online Narrative for Success on Professional Networks Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-analysis-of-all-your-social-interactions-on-facebook/"><u>Insightful Analysis of All Your Social Interactions on Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastery-of-mesh-wi-fi-with-tp-link-deco-p9-an-in-depth-analysis-and-review/"><u>Mastery of Mesh Wi-Fi with TP-Link Deco P9: An In-Depth Analysis and Review</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-detection-errors-ensuring-your-astro-a50-works-with-command-station/"><u>Overcoming Detection Errors: Ensuring Your Astro A50 Works with Command Station</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-your-facebook-password-on-lockout/"><u>Resetting Your Facebook Password on Lockout</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-visual-impact-crafting-fb-backgrounds/"><u>Social Media Visual Impact: Crafting Fb Backgrounds</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-solution-resolving-battlefield-5-not-starting-problem/"><u>Ultimate Solution: Resolving 'Battlefield 5 Not Starting' Problem</u></a></li>
 </ul></div>
 

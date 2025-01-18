@@ -1,7 +1,7 @@
 ---
 title: "Decoding the Disruption: Why Big Tech Faces Government Scrutiny"
-date: 2024-07-29T07:39:03.303Z
-updated: 2024-07-30T07:39:03.303Z
+date: 2025-01-13T16:05:27.247Z
+updated: 2025-01-18T16:05:17.908Z
 tags:
   - facebook
 categories:
@@ -17,9 +17,6 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -27,8 +24,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -41,28 +39,8 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## Big Tech Companies Use Data for Profit
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -73,15 +51,27 @@ Key features:
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
  A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Big Tech Limits the Market Access of Smaller Companies
 
@@ -95,9 +85,6 @@ Key features:
 
  Another recent case occurred when the[European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
@@ -108,9 +95,6 @@ Key features:
 
 ## Big Tech Can Impact Government Decisions and Operations
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -123,10 +107,6 @@ Key features:
 
 ## Big Tech Companies Have Incredible Influence
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
@@ -138,6 +118,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  However, that’s not a universally held opinion. Many governmental bodies invite these companies to meetings that entities with less influence cannot attend.
 
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
 
@@ -153,14 +137,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +150,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/mplify-your-content-increase-your-subs-quickly-for-2024/"><u>[New] Amplify Your Content, Increase Your Subs Quickly for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-professional-8-stream-enhancers-for-video-sharpening/"><u>[New] In 2024, Professional 8 Stream Enhancers for Video Sharpening</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-optimize-youtube-for-superior-image-quality-using-av1/"><u>2024 Approved Optimize YouTube for Superior Image Quality Using AV1</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-resolved-managing-delayed-service-response-overcoming-error-1053/"><u>Error Resolved: Managing Delayed Service Response, Overcoming Error 1053</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-poco-c51-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Poco C51 Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-facebook-tracking-with-the-off-facebook-activity-tool/"><u>How to Stop Facebook Tracking With the Off-Facebook Activity Tool</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-google-pixel-fold-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Google Pixel Fold to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-6-plus-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 6 Plus with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-success-the-4-must-have-metadata-tools/"><u>Mastering Success: The 4 Must-Have Metadata Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-adaptive-oculus-personas-arrives/"><u>New Era of Adaptive Oculus Personas Arrives</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-love-the-evolution-of-dating-on-social-media-platforms/"><u>Rethinking Love: The Evolution of Dating on Social Media Platforms</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-myth-of-vanished-iphone-pictures-learn-these-8-recovery-tactics/"><u>The Myth of Vanished iPhone Pictures - Learn These 8 Recovery Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovered-no-more-erasing-your-facebook-trail/"><u>Uncovered No More: Erasing Your Facebook Trail</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-delete-tiktok-watermarks-with-the-best-online-tools/"><u>Updated Delete TikTok Watermarks with the Best Online Tools</u></a></li>
+</ul></div>
 

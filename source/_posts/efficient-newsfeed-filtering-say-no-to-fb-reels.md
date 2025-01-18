@@ -1,7 +1,7 @@
 ---
 title: Efficient Newsfeed Filtering - Say No to FB Reels
-date: 2024-07-29T07:36:33.232Z
-updated: 2024-07-30T07:36:33.232Z
+date: 2025-01-12T16:13:34.490Z
+updated: 2025-01-18T16:00:47.524Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,6 @@ thumbnail: https://thmb.techidaily.com/c6a00ed9bc739f2f19c543f786366f0b15e1dcc95
 
 ### 1\. Use Facebook Web
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
@@ -35,13 +32,11 @@ thumbnail: https://thmb.techidaily.com/c6a00ed9bc739f2f19c543f786366f0b15e1dcc95
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
@@ -58,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/c6a00ed9bc739f2f19c543f786366f0b15e1dcc95
 
 Close
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Use an Older Version of Facebook
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
@@ -68,15 +67,13 @@ Close
 
 ###
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Hide Content You Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -92,44 +89,41 @@ Close
 
  To do this, open the Facebook app and tap on the menu option. Tap the**gear icon** , then scroll down and tap on**Media** . Here you can then choose to never autoplay videos or have them only autoplay when you're on Wi-Fi.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## These Are Your Only Good Options
 
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Working Around Facebook Reels
 
  Facebook Reels are here to stay, whether or not we like them. However, we do have some control over how they auto-play and when they show up in our News Feeds. If you’re not a fan of the feature, hopefully, one of these workarounds will help make things more bearable for you until Facebook decides to give us a “hide reel” button.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +132,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-high-performance-desktop-pcs/"><u>[New] Ultimate High-Performance Desktop PCs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-compreenas-guide-to-the-best-6-helmet-attachments-for-gopros/"><u>2024 Approved A Compreenas Guide to The Best 6 Helmet Attachments for GOPROs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cure-for-windows-steam-clients-dll-error/"><u>Cure for Windows Steam Client's Dll Error</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-imagination-ai-assistance-in-your-dungeon-and-dragons-sessions/"><u>Enhancing Imagination: AI Assistance in Your Dungeon & Dragons Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-maximum-engagement-reached/"><u>Facebook: Maximum Engagement Reached?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-elements-revolution-or-evolution/"><u>Facebook’s Interactive Elements: Revolution or Evolution?</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-to-avoid-facebook-tagged-photos/"><u>Freedom to Avoid Facebook Tagged Photos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-y100i-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Y100i Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-essential-choices-for-premium-video-calls-on-smartphones/"><u>In 2024, Essential Choices for Premium Video Calls on Smartphones</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/overcoming-os-drivers-blues-stop-winblue-screen/"><u>Overcoming OS Drivers Blues: Stop WinBlue Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/resurrecting-a-political-figure-on-meta/"><u>Resurrecting a Political Figure on Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-social-media-sites-have-dislike-buttons/"><u>Should Social Media Sites Have Dislike Buttons?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-stature-showdown-verified-supremacy-or-blue-elevation/"><u>Social Stature Showdown: Verified Supremacy or Blue Elevation?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-pros-guide-to-iphone-voice-memos-and-more-for-2024/"><u>The Pro's Guide to iPhone Voice Memos and More for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ultimate-affordable-asmr-recording-setup-excellence-for-2024/"><u>Ultimate Affordable ASMR Recording Setup Excellence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-fabric-of-friendships-in-social-media/"><u>Unraveling the Fabric of Friendships in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-facebook-protect-system-and-how-do-you-activate-it/"><u>What Is the Facebook Protect System and How Do You Activate It?</u></a></li>
+</ul></div>
 

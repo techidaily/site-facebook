@@ -1,7 +1,7 @@
 ---
 title: Discussing the Case for Allowing Users to Have Separate Identities Within a Singular Facebook Identity
-date: 2024-07-29T07:39:07.712Z
-updated: 2024-07-30T07:39:07.712Z
+date: 2025-01-13T16:11:01.259Z
+updated: 2025-01-18T16:00:09.159Z
 tags:
   - facebook
 categories:
@@ -20,14 +20,16 @@ thumbnail: https://thmb.techidaily.com/c4f624b3f2bccad5b6da118fee2e7df55a3a17201
  Yet social media allows everyone to see what you are saying or doing with your friends, unless you take steps to restrict your account. In order to address this, Meta is testing a feature that will allow users to maintain up to five separate profiles under the same Facebook account.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Coming Soon: One Facebook Account, 5 Profiles
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta prohibits users from having more than one Facebook account. However, the company is testing a way for users to have more than one profile connected to their account, as first reported by[Bloomberg](https://www.bloomberg.com/news/articles/2022-07-14/meta-to-start-letting-facebook-users-have-up-to-five-profiles) .
 
@@ -42,8 +44,9 @@ thumbnail: https://thmb.techidaily.com/c4f624b3f2bccad5b6da118fee2e7df55a3a17201
  Your overall account will also remain subject to Facebook's disciplinary procedures should any of the profiles violate Facebook's rules.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Now Allowing Multiple Profiles?
 
  According to Lam, the feature will "help people tailor their experience based on interests and relationships."
@@ -57,22 +60,20 @@ thumbnail: https://thmb.techidaily.com/c4f624b3f2bccad5b6da118fee2e7df55a3a17201
  Multiple profiles may help Facebook to stop[bleeding young users](https://www.makeuseof.com/why-facebook-is-losing-users/) to rivals like TikTok, who don't necessarily want their parents, relatives, strangers, or co-workers to see everything they are doing online with their friends.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A Boost to Privacy
 
  This new feature, when fully rolled out, should help users experience Facebook more discreetly, which should be a boost to online privacy.
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,4 +82,22 @@ thumbnail: https://thmb.techidaily.com/c4f624b3f2bccad5b6da118fee2e7df55a3a17201
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-cutting-edge-ergonomic-innovations-transforming-workspaces-today/"><u>[New] Cutting-Edge Ergonomic Innovations Transforming Workspaces Today</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/outube-hub-for-newbies-in-cinematic-craftsmanship-for-2024/"><u>[New] YouTube Hub for Newbies in Cinematic Craftsmanship for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-best-smartphone-video-recording-assistants/"><u>[Updated] Best Smartphone Video Recording Assistants</u></a></li>
+<li><a href="https://facebook.techidaily.com/equestrian-societies-shun-internet-sessions/"><u>Equestrian Societies Shun Internet Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-identity-online-changing-your-facebook-username/"><u>Evolving Identity Online: Changing Your Facebook Username</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-home-and-feeds-tabs-what-you-need-to-know/"><u>Facebook's New Home and Feeds Tabs: What You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-list-facebook-blockers-effectively/"><u>How to List Facebook Blockers Effectively</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-poco-m6-pro-4g-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Poco M6 Pro 4G</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-mp4-editor-for-mavericks-edit-mp4-in-os-x-mavericks/"><u>In 2024, MP4 Editor for Mavericks Edit MP4 in OS X Mavericks</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-friends-out-of-your-facebook-replay-time/"><u>Keep Friends Out of Your Facebook Replay Time</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mqamqaflac/"><u>MQAコンバーターウェア｜高品質なMQAオーディオを一般的なFLACフォーマットに簡単に変換する手法</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-accessibility-of-your-deactivated-facebook-account/"><u>Restoring Accessibility of Your Deactivated Facebook Account</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revive-windows-11-sounds-with-drivers-reload/"><u>Revive Windows 11 Sounds with Drivers Reload</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-guide-personalizing-your-fb-browsing-journey/"><u>Simplified Guide: Personalizing Your Fb Browsing Journey</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y78t-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y78t Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+</ul></div>
 

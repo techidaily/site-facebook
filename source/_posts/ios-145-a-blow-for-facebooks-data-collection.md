@@ -1,7 +1,7 @@
 ---
 title: "IOS 14.5: A Blow for Facebook's Data Collection?"
-date: 2025-01-11T16:47:49.570Z
-updated: 2025-01-12T17:10:24.042Z
+date: 2025-01-15T16:03:14.031Z
+updated: 2025-01-18T16:26:49.392Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 ![iphone hello screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hello.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  App Tracking Transparency is a feature that allows users to decide if they want their activity tracked across different apps on their iOS device.
 
  Every iOS device is assigned a unique identifier, called an Identifier for Advertisers (IDFA), that can track the user. The purpose of the IDFA is for advertisers to personalize and target ads more effectively.
@@ -39,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  As a user, the only thing you have to do when asked if you want your activity to be tracked is select**Ask App Not to Track** to stop them when prompted via notification. Or tap**Allow** if you're happy to share your data.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Facebook Make Money?
@@ -47,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ![social networks on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-networks.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Creating an account on Facebook is free—no revenue is directly generated from Facebook's user base. Because of this, Facebook depends on other methods to generate revenue.
@@ -60,10 +64,6 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
@@ -73,16 +73,12 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
@@ -91,6 +87,10 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -127,19 +127,22 @@ thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-t5-eyes-complete-review-action-footage-reimagined-for-2024/"><u>[Updated] T5 Eye's Complete Review Action Footage Reimagined for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-cut-the-stream-of-automatically-played-podcasts-in-spotify/"><u>2024 Approved Cut the Stream of Automatically Played Podcasts in Spotify</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/assessing-the-performance-and-cost-of-the-winegard-fl5500-aflatwayenn-antenna-satisfactory-but-overpriced/"><u>Assessing the Performance and Cost of the Winegard FL5500# AFLATWAYENN Antenna: Satisfactory but Overpriced</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-filter-bubble-acts-technicalities/"><u>Deciphering Filter Bubble Act's Technicalities</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-photographers-domain-posting/"><u>Deciphering Photographer's Domain Posting</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-judgment-for-trumponomy-suspension-enacted/"><u>Delay in Judgment for Trumponomy Suspension Enacted</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-mosaic-magic-assembling-photos-for-social-media-spotlight/"><u>Digital Mosaic Magic: Assembling Photos for Social Media Spotlight</u></a></li>
-<li><a href="https://facebook.techidaily.com/diving-into-the-essence-of-fbctas-purpose/"><u>Diving Into the Essence of FBCTA's Purpose</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficiently-downloading-images-and-videos-from-fb/"><u>Efficiently Downloading Images and Videos From FB</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/explore-the-power-of-text-in-visuals-uncovering-top-5-caption-strategies-for-tiktok/"><u>Explore the Power of Text in Visuals Uncovering Top 5 Caption Strategies for TikTok</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/identified-non-printer-owners-computer-mischief/"><u>Identified Non-Printer Owner's Computer Mischief</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/save-battery-life-and-enhance-efficiency-with-macos-montereys-power-saving-mode-tips-by-zdnet/"><u>Save Battery Life and Enhance Efficiency with MacOS Monterey's Power Saving Mode - Tips by ZDNET</u></a></li>
-<li><a href="https://driver-install.techidaily.com/seamless-integration-upgrade-thinkpad-with-win11-drivers/"><u>Seamless Integration - Upgrade Thinkpad with Win11 Drivers</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-resolving-audio-problems-in-windows-7/"><u>Troubleshooting Guide: Resolving Audio Problems in Windows 7</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-top-10-creative-overlays-for-video-content-for-2024/"><u>[New] Top 10 Creative Overlays for Video Content for 2024</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/como-crear-una-imagen-de-arranque-completa-para-windows-11-10-8-y-7/"><u>Cómo Crear Una Imagen De Arranque Completa Para Windows 11, 10, 8 Y 7</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/comprehensive-guide-to-controlling-windows-login-credentials-by-yl-software-experts/"><u>Comprehensive Guide to Controlling Windows Login Credentials by YL Software Experts</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-canon-pixma-mg3420-printer-driver-for-win11-8-and-7-free/"><u>Download Canon PIXMA MG3420 Printer Driver for Win11, 8 & 7 - Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-digital-literacy-with-facebooks-transparency-resources/"><u>Enhancing Digital Literacy with Facebook’s Transparency Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-bold-step-toward-total-ownership-for-oculus-go/"><u>Exploring Facebook's Bold Step Toward Total Ownership for Oculus Go</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/extended-review-uncomplicated-hdr-approach-for-2024/"><u>Extended Review Uncomplicated HDR Approach for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-to-funding-social-networks-financials/"><u>Friendship to Funding: Social Networks' Financials</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-razr-40-bootloader-easily-by-drfone-android/"><u>How to Unlock Motorola Razr 40 Bootloader Easily</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-for-initiating-interactive-online-gatherings-fb/"><u>Instructions for Initiating Interactive Online Gatherings (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-age-facebooks-transition-to-meta/"><u>Navigating the New Age: Facebook's Transition to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-needs-a-pause-facebook-urges-teens-on-insta-hiatus/"><u>Networking Needs a Pause: Facebook Urges Teens on Insta Hiatus</u></a></li>
+<li><a href="https://facebook.techidaily.com/reveal-your-location-a-step-by-step-guide-for-fb-users/"><u>Reveal Your Location: A Step by Step Guide for FB Users</u></a></li>
+<li><a href="https://some-tips.techidaily.com/tech-innovation-the-key-for-smbs-ascent-to-market-leadership-discover-strategies-on-zdnet/"><u>Tech Innovation: The Key for SMBs' Ascent to Market Leadership – Discover Strategies on ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-meta-verification-value-for-investment/"><u>Understanding Meta Verification: Value for Investment?</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-infinix-hot-40-pro-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Infinix Hot 40 Pro Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

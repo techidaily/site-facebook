@@ -1,7 +1,7 @@
 ---
 title: Direct Access Strategy for Managing FB/Insta User Hub
-date: 2024-07-29T07:35:37.169Z
-updated: 2024-07-30T07:35:37.169Z
+date: 2025-01-14T16:10:08.850Z
+updated: 2025-01-18T16:18:58.830Z
 tags:
   - facebook
 categories:
@@ -20,22 +20,11 @@ thumbnail: https://thmb.techidaily.com/14ec252872982da41ad9f63f459b4e43e487f6392
  The Accounts Center is easy to access and use. If you're interested in learning more about how to access the Accounts Center, read ahead.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook and Instagram: Navigating to the Accounts Center
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
 
  It's easy to confuse the Accounts Center in the Facebook and Instagram apps with other settings, like**Account** ,**Security** ,**Notifications** , and**Privacy** . These options are specific for each app and the account you're using. The Accounts Center, however, is a central hub under Meta, the parent company of both platforms. Among the many features it offers, you can use it to[create and link Facebook and Instagram](http://www.makeuseof.com/facebook-instagram-account-center-linked-accounts/) accounts.
@@ -43,18 +32,17 @@ thumbnail: https://thmb.techidaily.com/14ec252872982da41ad9f63f459b4e43e487f6392
  Here's a brief look at how to access the Accounts Center on Instagram and Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Finding the Accounts Center on Instagram
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
 ![Settings menu for Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151644.jpg)
@@ -68,14 +56,15 @@ Here's how you can access the Accounts Center on Instagram:
 3. Tap**Settings** .
 4. At the bottom of the**Settings** page tap**Accounts Center** .
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Finding the Accounts Center on Facebook
 
 ![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
 
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Meta Accounts Center hub with options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112.jpg)
 
@@ -89,20 +78,21 @@ Here's how to access the Accounts Center on Facebook:
 
  Opening the Accounts Center on both apps is relatively straightforward. After following these steps, you're ready to start testing its features.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Accounts Center Is Optional For Now
 
  The Accounts Center, at least for Facebook and Instagram, is primarily aimed at making it easier to create and manage multiple accounts or profiles on both platforms.
 
  While convenient, there are concerns about privacy and security regarding the Accounts Center. No need to fret, though. There are a few ways you can disconnect your Instagram account from your Facebook account, if you share those concerns.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,4 +101,23 @@ Here's how to access the Accounts Center on Facebook:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-secrets-unveiled-attending-friends-tiktok-lives/"><u>[New] 2024 Approved Secrets Unveiled Attending Friends’ TikTok Lives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-keep-it-flowing-repasting-content-on-ig/"><u>[New] In 2024, Keep It Flowing Repasting Content on IG</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-your-ultimate-selfie-validation-handbook/"><u>[Updated] In 2024, Your Ultimate Selfie Validation Handbook</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-practical-steps-for-farewell-in-a-discord-environment/"><u>2024 Approved Practical Steps for Farewell in a Discord Environment</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/essential-ipad-tricks-and-configuration-advice-for-both-beginners-and-experts-a-comprehensive-guide/"><u>Essential iPad Tricks & Configuration Advice for Both Beginners & Experts: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-content-push-understanding-its-staying-power/"><u>Facebook’s Content Push: Understanding Its Staying Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-obscurity-to-opportunity-instagrams-remake/"><u>From Obscurity to Opportunity: Instagram's Remake</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-11-pro-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From iPhone 11 Pro?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-from-chat-room-to-screen-step-by-step-google-meet-youtube-streams/"><u>In 2024, From Chat Room to Screen Step-by-Step Google Meet YouTube Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-insight-hub-for-enhanced-network-comprehension/"><u>Mastering Facebook's Insight Hub for Enhanced Network Comprehension</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-you-rely-on-social-networks-for-your-digital-security-footprint-across-multiple-apps/"><u>Should You Rely on Social Networks for Your Digital Security Footprint Across Multiple Apps?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/subtlety-in-audio-mixdown-with-alive-for-2024/"><u>Subtlety in Audio Mixdown with Alive for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/the-ultimate-guide-to-personalizing-iphone-message-how-do-you-calculate-the-area-of-a-circle-given-only-its-circumference/"><u>The Ultimate Guide to Personalizing iPhone # Message: How Do You Calculate the Area of a Circle Given only Its Circumference?</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-utilities-for-marketing-professionals/"><u>Top 8 CrowdFlower Utilities for Marketing Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-my-virtual-scoreboard-stay-unchanged/"><u>Will My Virtual Scoreboard Stay Unchanged?</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-confirms-enhanced-whatsapp-on-multiple-devices/"><u>Zuckerberg Confirms Enhanced WhatsApp on Multiple Devices</u></a></li>
+</ul></div>
 

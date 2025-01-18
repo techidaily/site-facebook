@@ -1,7 +1,7 @@
 ---
 title: Decoding Facebook's Disguised User Figures
-date: 2024-07-29T07:36:03.408Z
-updated: 2024-07-30T07:36:03.408Z
+date: 2025-01-12T16:08:57.484Z
+updated: 2025-01-18T16:19:10.624Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
  For a company that has grown so rapidly since its inception, this might come as a shock. But, what's more important is the number of users that Facebook has actually lost and if this is something they should worry about.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -36,15 +37,13 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Mark Zuckerberg's Statement on Losing Users
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -55,14 +54,16 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Facebook’s End Near?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
@@ -75,8 +76,9 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's User Loss Is Not as Big as It Seems
 
  Losing half a million daily users, and that too for the first time in 18 years, is surely not a good sign for Facebook. But, thanks to its giant user base, this decline is only a drop in the ocean.
@@ -85,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
  But only time will tell if Facebook succeeds in regaining its lost users and the interest among the younger generation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +100,24 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-unforgettable-visuals-key-elements-in-podcast-logo-creation/"><u>[New] 2024 Approved Unforgettable Visuals Key Elements in Podcast Logo Creation</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-global-youtube-rich-list-pinnacle/"><u>[Updated] 2024 Approved Global YouTube Rich List Pinnacle</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-top-picks-the-most-advanced-online-mic-recorders-of-23/"><u>[Updated] 2024 Approved Top Picks The Most Advanced Online Mic Recorders of '23</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unleash-full-potential-in-yi-4k-recording/"><u>[Updated] 2024 Approved Unleash Full Potential in YI 4K Recording</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-moto-g-5g-2023-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Moto G 5G (2023) Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-footprints-in-digital-gatherings/"><u>Invisible Footprints in Digital Gatherings</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-framework-to-foil-foul-play-with-personal-images/"><u>Meta’s Framework to Foil Foul-Play with Personal Images</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-your-laptops-sound-issues-with-these-proven-strategies/"><u>Resolve Your Laptop's Sound Issues with These Proven Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-social-browsing-mastering-shortcut-adjustment-on-fb/"><u>Revolutionizing Social Browsing: Mastering Shortcut Adjustment on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-purchases-on-popular-platforms-nine-steps-to-follow/"><u>Safe Purchases on Popular Platforms: Nine Steps to Follow</u></a></li>
+<li><a href="https://facebook.techidaily.com/standing-out-from-the-crowd-with-an-exceptional-facebook-persona/"><u>Standing Out From the Crowd with an Exceptional Facebook Persona</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-effortless-alteration-for-your-social-media-image/"><u>Swift, Effortless Alteration for Your Social Media Image</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-visionarys-handbook-for-twit-reaction-videos-for-2024/"><u>The Visionary's Handbook for Twit-Reaction Videos for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-boomboxes-a-comprehensive-list/"><u>Top-Rated Boomboxes : A Comprehensive List</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-7-amazing-strategies-how-chatgpt-supercharges-your-daily-productivity/"><u>Unveiling 7 Amazing Strategies: How ChatGPT Supercharges Your Daily Productivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vagueblogging-an-overview-and-instances/"><u>Unveiling Vagueblogging: An Overview & Instances</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-drops-its-may-15-deadline-for-accepting-new-privacy-policy/"><u>WhatsApp Drops Its May 15 Deadline for Accepting New Privacy Policy</u></a></li>
+</ul></div>
 

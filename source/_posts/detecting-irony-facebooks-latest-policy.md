@@ -1,7 +1,7 @@
 ---
 title: "Detecting Irony: Facebook's Latest Policy"
-date: 2024-07-29T07:40:14.863Z
-updated: 2024-07-30T07:40:14.863Z
+date: 2025-01-15T16:01:15.074Z
+updated: 2025-01-18T16:07:52.836Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
  Satire is social commentary. It's the use of humor, ridicule, and wit to point out the vices, follies, and shortcomings of people and society. But how does Facebook define the genre, and does it have a place on the platform?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Will Soon Update Its Community Standards
 
  In response to a recommendation from its Oversight Board, Facebook is updating its Community Standards to better explain what the it considers to be satirical content in the first place.
@@ -30,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
 
 > Given the context-specific nature of satire, we are not immediately able to scale this kind of assessment or additional consultation to our content moderators. We need time to assess the potential tradeoffs (...), and \[there will be\] potentially slower review times among our content moderators.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![off-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/09/off-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This update comes after the Oversight Board challenged Facebook's decision to remove a user comment that referred to the Turkish government with the["Daily Struggle" meme](https://knowyourmeme.com/memes/daily-struggle) . Here is the board's description of the comment in question:
 
@@ -44,8 +46,9 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
  Related: [What Is Facebook's Oversight Board and What Does It Do?](https://www.makeuseof.com/what-is-facebook-oversight-board/)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Satire a Dying Art?
 
  As the current generation of young people works to become more inclusive of and privy to the many cultures of the world, there is much discussion of whether political correctness is "killing" satire, and even comedy in general.
@@ -56,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
 
  You can read Facebook's full post on the upcoming changes on the [Transparency Center](https://transparency.fb.com/oversight/oversight-board-cases/comment-related-to-armenian-people-and-the-armenian-genocide/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,4 +72,22 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-pro-stream-wars-choosing-between-vmix-and-wirecast/"><u>[New] In 2024, Pro-Stream Wars Choosing Between VMix and Wirecast</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-innovating-conference-calls-with-google-meet-backdrop-shuffling/"><u>[Updated] 2024 Approved Innovating Conference Calls with Google Meet Backdrop Shuffling</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-cerseis-calls-top-15-sites-for-hearing-heroes-tts-files/"><u>2024 Approved Cersei's Calls Top 15 Sites for Hearing Heroes' TTS Files</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-vivo-v27-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/expand-your-chat-circle-with-ease-via-messenger/"><u>Expand Your Chat Circle with Ease via Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-escapes-from-advanced-phishing-tactics/"><u>Expert Escapes From Advanced Phishing Tactics</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-the-dojs-lawsuit-on-apple-affects-your-iphone-experience-and-mobile-software-developers-innovatetech/"><u>How the DOJ's Lawsuit on Apple Affects Your iPhone Experience & Mobile Software Developers | InnovateTech</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-motorola-moto-e13-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Motorola Moto E13 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneously-transforming-your-virtual-visage-facebook-update/"><u>Instantaneously Transforming Your Virtual Visage: Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-social-detox-a-list-of-7-advantages/"><u>The Case for Social Detox: A List of 7 Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-dictionary-of-facebook-symbolism/"><u>The Essential Dictionary of Facebook Symbolism</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-facebook-marketing-potential-the-case-of-business-pages-over-individuals/"><u>Unlock Facebook Marketing Potential: The Case of Business Pages Over Individuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-social-media-is-outpacing-online-forum-trends/"><u>Why Social Media Is Outpacing Online Forum Trends</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Decoding the Complexities of FB Picture Permissions
-date: 2024-07-29T07:40:06.379Z
-updated: 2024-07-30T07:40:06.379Z
+date: 2025-01-12T16:07:11.958Z
+updated: 2025-01-18T16:07:17.481Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 
  Keep reading to learn everything you need to know about Facebook photo privacy settings...
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -35,18 +32,12 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
 ### 1\. Inline Privacy Controls
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
@@ -73,10 +64,11 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 
  You can edit photos on a case-by-case basis in the**Profile Pictures** album, the**Cover Photos** album, the**Mobile Uploads** album, and the**Timeline Photos** album. However, other albums apply the same setting to all the photos within them.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
@@ -85,18 +77,20 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -114,22 +108,27 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +137,22 @@ thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f211597
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-beyond-marketing-honest-review-of-recordcast/"><u>[Updated] 2024 Approved Beyond Marketing Honest Review of RecordCast</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How To Simulate GPS Movement With Location Spoofer On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nubia-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Nubia Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-up-to-date-hp-laserjet-1320-drivers-on-your-windows-device-free-download/"><u>Install Up-to-Date HP LaserJet 1320 Drivers on Your Windows Device - FREE Download!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-control-over-offensive-facebook-promotions/"><u>Mastering Control Over Offensive Facebook Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-begins-fbs-ad-chief-quits/"><u>New Era Begins: FB's Ad Chief Quits</u></a></li>
+<li><a href="https://facebook.techidaily.com/propel-your-career-with-smart-business-relationships-on-facebook/"><u>Propel Your Career with Smart Business Relationships on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagine-your-digital-life-4-key-strategies-to-refine-your-facebook-viewing/"><u>Reimagine Your Digital Life: 4 Key Strategies to Refine Your Facebook Viewing</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-responsibility-in-digital-marketing-tactics/"><u>Social Responsibility in Digital Marketing Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-away-from-the-world-ungrouping-on-social-media/"><u>Stepping Away From the World: Ungrouping on Social Media</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/visualrecorder-your-yearly-guide-to-screen-captures-for-2024/"><u>VisualRecorder Your Yearly Guide to Screen Captures for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-path-to-a-neat-social-media-universe/"><u>Your Path to a Neat Social Media Universe</u></a></li>
+</ul></div>
 

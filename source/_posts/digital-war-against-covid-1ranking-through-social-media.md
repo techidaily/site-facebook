@@ -1,7 +1,7 @@
 ---
 title: Digital War Against COVID-1ranking Through Social Media
-date: 2024-07-29T07:38:52.808Z
-updated: 2024-07-30T07:38:52.808Z
+date: 2025-01-16T16:12:18.796Z
+updated: 2025-01-18T16:08:56.697Z
 tags:
   - facebook
 categories:
@@ -20,16 +20,18 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
  To do this, his administration is making use of just about every form of digital communication to encourage people to get vaccinated.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The White House Will Use Social Media to Push Vaccine Eligibility
 
  According to an[Axios](https://www.axios.com/biden-vaccine-eligibility-push-e438587b-9b34-4b75-9132-7395c2768ed7.html) report, the White House is launching a "targeted media blitz" to promote the Biden administration's promotional campaign for vaccine eligibility. Facebook, Twitter, and Snapchat are some of the companies that'll help spread the word.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/biden-and-us-flag.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: The White House/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:President%5Fof%5Fthe%5FUnited%5FStates%5FJoe%5FBiden%5F%282021%29.jpg)
 
@@ -44,16 +46,18 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform[launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even[froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -61,14 +65,11 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
 
  Admittedly, it did take some time for major platforms to step up like this. When the pandemic first began, COVID-19 misinformation was spreading like wildfire. But now, some of the social media giants are now trying to turn things around for the sake of everyone's safety, which is wonderful to see.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +78,21 @@ thumbnail: https://thmb.techidaily.com/e3cf30b4720656ba32f87d0a36d739d3e594003c9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/updated-capturing-clarity-strategic-angles-for-excellent-iphone-photos/"><u>[Updated] Capturing Clarity Strategic Angles for Excellent iPhone Photos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-enablingdisabling-picture-in-picture-a-step-by-step-guide-for-iphones/"><u>[Updated] In 2024, Enabling/Disabling Picture-in-Picture A Step-by-Step Guide for iPhones</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-oppo-a2-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Oppo A2? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bridging-human-machine-bonds-with-sentiment-analysis/"><u>Bridging Human-Machine Bonds with Sentiment Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-still-photography-to-style-varied-writing-facebooks-new-ai/"><u>From Still Photography to Style-Varied Writing - Facebook's New AI</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-canon-mx340-software-official-drivers-for-windows-operating-systems/"><u>Get Your Canon MX340 Software: Official Drivers for Windows Operating Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-assertively-claim-a-purchase-correction-via-facebook/"><u>How to Assertively Claim a Purchase Correction via Facebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-realme-gt-5-pro-to-mac-drfone-by-drfone-android/"><u>How to Mirror Realme GT 5 Pro to Mac? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-nokia-c210-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Nokia C210 to Another | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/itunes-masterclass-maximizing-video-outputs/"><u>ITunes Masterclass Maximizing Video Outputs</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-eloquence-unlocked-top-30-smart-words-and-phrases/"><u>Online Eloquence Unlocked: Top 30 SMART Words and Phrases</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-billions-for-virus-eradication-effort/"><u>Social Media's Billions for Virus Eradication Effort</u></a></li>
+<li><a href="https://facebook.techidaily.com/traverse-through-virtual-relationships-in-fb-timeline/"><u>Traverse Through Virtual Relationships in FB Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-title-to-your-web-based-selfies/"><u>Who Holds Title to Your Web-Based Selfies?</u></a></li>
+</ul></div>
 

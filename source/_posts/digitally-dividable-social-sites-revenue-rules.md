@@ -1,7 +1,7 @@
 ---
 title: "Digitally Dividable: Social Sites' Revenue Rules"
-date: 2024-07-29T07:39:28.539Z
-updated: 2024-07-30T07:39:28.539Z
+date: 2025-01-16T16:13:50.898Z
+updated: 2025-01-18T16:05:31.880Z
 tags:
   - facebook
 categories:
@@ -21,10 +21,11 @@ thumbnail: https://thmb.techidaily.com/0444eec17d8a448239a97f10d9e4452f293a188f5
 
 ## 1\. Venture Capital
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Venture capital is a form of private financing and it's how a lot of social media companies get their start.
 
@@ -34,10 +35,11 @@ thumbnail: https://thmb.techidaily.com/0444eec17d8a448239a97f10d9e4452f293a188f5
 
 ## 2\. Advertising
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
@@ -51,10 +53,11 @@ thumbnail: https://thmb.techidaily.com/0444eec17d8a448239a97f10d9e4452f293a188f5
 
 ## 3\. User Data
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -68,18 +71,6 @@ thumbnail: https://thmb.techidaily.com/0444eec17d8a448239a97f10d9e4452f293a188f5
 
 ## 4\. Premium Memberships
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
@@ -89,6 +80,10 @@ thumbnail: https://thmb.techidaily.com/0444eec17d8a448239a97f10d9e4452f293a188f5
  Another example is LinkedIn Premium. This gives access to LinkedIn learning courses, greater insight into who is viewing your profile, the ability to send InMail to recruiters, and more.
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Transaction Fees and Virtual Products
 
@@ -100,10 +95,6 @@ thumbnail: https://thmb.techidaily.com/0444eec17d8a448239a97f10d9e4452f293a188f5
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## 6\. Diversifying
 
  Once a social network grows large enough, it looks to diversify. For those with enough capital, buying other companies is a quick way to do this.
@@ -113,23 +104,20 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## You Can Make Money on Social Media
 
  There's a saying that "if something is free, you are the product." That's especially true in the case of social media. It's not necessarily a bad thing, but it's good to be aware.
 
  If you're looking to make some money of your own with social media, there are plenty of services like TikTok, YouTube, and Snapchat that pay out if you meet certain requirements.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +126,18 @@ The ultimate burning program for all your needs!</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-premier-manual-leveraging-mobizens-full-potential-for-mobile-capture/"><u>[New] In 2024, Premier Manual Leveraging Mobizen's Full Potential for Mobile Capture</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-download-youtube-tunes-with-these-10plus-no-cost-audio-crackers/"><u>[Updated] 2024 Approved Download YouTube Tunes with These 10+ No-Cost Audio Crackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-accurate-info-on-your-childs-messenger-profile/"><u>Ensuring Accurate Info on Your Child’s Messenger Profile</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-oneplus-12-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It OnePlus 12 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-premier-webinar-creation-kit/"><u>In 2024, Premier Webinar Creation Kit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-tailored-guide-to-following-and-watching-facebook-broadcasts/"><u>In 2024, Tailored Guide to Following and Watching Facebook Broadcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mentoring-minds-sheryls-impact-at-facebook/"><u>Mentoring Minds: Sheryl's Impact at Facebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/matters-top-educational-youtube-picks-for-2024/"><u>Mind Matters Top Educational YouTube Picks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-cleanup-delete-story-on-facebook-with-confidence/"><u>Swift Cleanup: Delete Story on Facebook with Confidence</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-5-tech-blunders-in-the-pandemic-year/"><u>The Top 5 Tech Blunders in the Pandemic Year</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-illusion-ai-driven-journeys-from-mundane-to-marvelous/"><u>Unveiling the Illusion: AI-Driven Journeys From Mundane to Marvelous</u></a></li>
+</ul></div>
 

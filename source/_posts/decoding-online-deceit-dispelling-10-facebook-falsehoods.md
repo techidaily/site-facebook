@@ -1,7 +1,7 @@
 ---
 title: "Decoding Online Deceit: Dispelling 10 Facebook Falsehoods"
-date: 2024-07-29T07:37:28.583Z
-updated: 2024-07-30T07:37:28.583Z
+date: 2025-01-14T16:18:14.134Z
+updated: 2025-01-18T16:07:23.251Z
 tags:
   - facebook
 categories:
@@ -20,13 +20,11 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
 Let's bust some common Facebook myths that are floating around.
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. People Can See Who Viewed Their Profile
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![A phone with Facebook logo laying next to scrabble letters spelling out social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/social-media-for-socialization.jpg)
 
 Pixabay free image
@@ -44,27 +42,27 @@ Pixabay free image
 ![woman in a christmas sweater holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-christmas-sweater.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Your friends would never want to harm you, and you're right about that. Unfortunately, online miscreants try to take advantage of this trust. Sometimes, you'll get a weird message from your friend asking you to click a link. Don't do it![Facebook scams are becoming all too common](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , so you need to exercise the same precautions here as you would elsewhere on the internet. If you have received a message from a friend with a link, before you click it, ask them whether they intended to send that to you. If it's a public post, go through the comments and see if anyone has warned that this is a hoax or a virus.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-## 3\. Facebook Is Going to Charge You Money
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## 3\. Facebook Is Going to Charge You Money
+
 ![Cybersecurity measures of sites with payment methods](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Cybersecurity-measures-of-sites-with-payment-methods.jpg)
 
  Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
 
 ## 4\. Facebook Owns My Photos and Sells Them for Ads
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Young woman using her smartphone and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(7).jpg)
 
  Another rumor claimed that Facebook is selling your photos to advertisers. But Facebook explicitly states: "No, we don't sell your information. Instead, based on the information we have, advertisers and other partners pay us to show you personalized ads on the Facebook family of apps and technologies."
@@ -83,9 +81,6 @@ Pixabay free image
 
  In other words, don't share content you don't own or have a right to share. You can use a[Rights Manager](https://www.facebook.com/formedia/tools/rights-manager) to protect your own intellectual property if you are a content creator.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## 6\. It's Easy to Quit Facebook
 
 ![Person holding phone with social media apps as icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(53).jpg)
@@ -97,11 +92,16 @@ Pixabay free image
  You'll also need to manually disconnect any app you have connected to Facebook, uninstall the Facebook app from your phone and tablet, as well as clear out your browser history.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7\. If I Don't Use Facebook, It Doesn't Know Anything About Me
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook is a social network, and if you know a lot of people who use it, chances are that the social network has information about you. It's called a "[shadow profile](https://www.makeuseof.com/tag/facebook-shadow-profiles/) ". When your friends use Facebook, they give it access to their contact book and personal information. Now let's say one of your friends has you and your phone number in their contact book. Facebook stores this. Now let's say another friend has you, your phone number, and your email address in their contact book. Facebook will also store that and match it to the existing information.
 
@@ -109,11 +109,12 @@ Pixabay free image
 
  In today's connected world, unfortunately, there is almost nothing you can do to stop this other than to go completely off the grid and make sure no-one takes any photos of you. But that's easier said than done these days.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. Facebook Is Getting a Dislike Button
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook-myths-dislike-button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/10/Facebook-myths-dislike-button.jpg)
 
  For a long time now, people have been hoping for a "Dislike" button much like the "Like" button. But while Facebook wants you to get more Likes, a "Dislike" button would go against the fabric of the positive experience Facebook wants to push, according to founder Mark Zuckerberg.
@@ -122,9 +123,6 @@ Pixabay free image
 
  If you see a Facebook app that adds a Dislike button or even a third-party browser extension, don't install it. It's not made by Facebook and there is a chance some of these have malware.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Facebook Is Overcrowded and Needs to Delete Inactive Accounts
 
 ![A group of people engaged on their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-8088495.jpg)
@@ -136,6 +134,10 @@ Pixabay free image
  Facebook was only removing those Likes because some businesses artificially boost their Likes through fake accounts. By removing Likes from these accounts, which are usually inactive, Facebook hopes to reflect a more accurate representation of a business' fans.
 
  The bottom line is that if you ever see something on your timeline asking you to download or copy-paste something to keep your account active, don't do it. If it looks really serious, report spam and malicious content directly to Facebook.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Facebook Requires ID Proof
 
@@ -154,14 +156,11 @@ Pixabay free image
 
  You can protect yourself from a lot of Facebook myths if you understand how they work. For anything else, check if it has been mentioned on some sites where people report scams and malicious internet activities.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +169,26 @@ Pixabay free image
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-ultimate-guide-10-prime-video-communication-apps-on-smartphones/"><u>[New] 2024 Approved Ultimate Guide 10 Prime Video Communication Apps on Smartphones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-tune-and-trends-a-guide-to-sound-in-social-media-snapshots/"><u>[Updated] 2024 Approved Tune & Trends A Guide to Sound in Social Media Snapshots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-experts-selection-ideal-sierra-dvd-creators/"><u>[Updated] In 2024, Expert’s Selection Ideal Sierra DVD Creators</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-your-guide-to-favorite-tiktok-backgrounds/"><u>[Updated] In 2024, Your Guide to Favorite TikTok Backgrounds</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-swiftly-adapt-video-formats-for-mac-pixels-for-2024/"><u>[Updated] Swiftly Adapt Video Formats for MAC Pixels for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-digiarty-software-return-policy-full-refund-process-explained/"><u>1. Digiarty Software Return Policy – Full Refund Process Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-development-standards-facebook-partners-with-rust/"><u>Elevating Development Standards: Facebook Partners with Rust</u></a></li>
+<li><a href="https://win-bits.techidaily.com/enhance-your-pc-with-windows-pro-a-guide-for-home-edition-users-zdnet/"><u>Enhance Your PC with Windows Pro: A Guide for Home Edition Users - ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/expatry-at-a-crossroads-the-good-and-the-bad-of-online-networks/"><u>Expatry at a Crossroads – The Good and The Bad of Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-exit-strategy-for-unforeseen-account-termination/"><u>Facebook Exit Strategy for Unforeseen Account Termination</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-effortless-deletion-of-social-media-updates/"><u>Guide to Effortless Deletion of Social Media Updates</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-fb-photo-description-tips/"><u>Instructional Guide: FB Photo Description Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-sight-concealing-posts-with-archive-function/"><u>Privacy in Sight: Concealing Posts with Archive Function</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-rules-understanding-the-intricacies-of-fb-acquaintanceship/"><u>Secret Rules: Understanding the Intricacies of FB Acquaintanceship</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcasts-compendium-reviews-and-insights/"><u>The Ultimate 2022 Podcasts Compendium: Reviews & Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-investors-in-the-social-platform/"><u>Today's Investors in the Social Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/forming-cityscapes-into-sustainable-havens-of-life/"><u>Transforming Cityscapes Into Sustainable Havens of Life</u></a></li>
+</ul></div>
 

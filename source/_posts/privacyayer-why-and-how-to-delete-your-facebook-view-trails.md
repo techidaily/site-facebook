@@ -1,7 +1,7 @@
 ---
 title: "Privacy'ayer: Why and How to Delete Your Facebook View Trails"
-date: 2025-01-05T20:47:43.213Z
-updated: 2025-01-12T20:32:57.412Z
+date: 2025-01-16T16:00:20.720Z
+updated: 2025-01-18T16:00:27.281Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Delete Your Facebook Watch History on Android
 
  To delete your Facebook watch history on the Android app, follow these steps:
@@ -53,11 +49,11 @@ thumbnail: https://thmb.techidaily.com/97d650cd0f6e07d2facd0c86f96f609a10afc326c
 
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
-![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
 
 Close
 
@@ -76,22 +72,22 @@ Close
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
@@ -104,10 +100,14 @@ Close
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
@@ -135,20 +135,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-perfect-panning-crossfading-in-logic-pro-x/"><u>[Updated] 2024 Approved Perfect Panning Crossfading in Logic Pro X</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-15-advanced-tips-for-sports-broadcasting-nba/"><u>2024 Approved 15 Advanced Tips for Sports Broadcasting (NBA)</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-oral-notes-in-the-digital-era-an-indispentiary-guide/"><u>2024 Approved Oral Notes in the Digital Era An Indispentiary Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-fix-the-flickering-mouse-pointer-on-windows/"><u>How to Fix the Flickering Mouse Pointer on Windows</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-resurrect-old-facebook-ties-post-block/"><u>How to Resurrect Old Facebook Ties Post-Block</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolving-no-permission-to-access-fortnite-gameplay-issue/"><u>Resolving 'No Permission to Access Fortnite Gameplay' Issue</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethink-rebrand-update-page-name-and-url/"><u>Rethink, Rebrand: Update Page Name & URL</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/seamless-conversion-of-mobile-to-desktop-android-webcams-in-windows-11/"><u>Seamless Conversion of Mobile to Desktop: Android Webcams in Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-virtual-world-meta-or-facebook-for-quest-2/"><u>Secure Your Virtual World: Meta or Facebook for Quest 2?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-sentinel-identifying-9-unexplained-changes-to-your-account/"><u>Social Media Sentinel: Identifying 9 Unexplained Changes to Your Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-duty-to-combat-pandemic-rumors-and-lies/"><u>Social Media's Duty to Combat Pandemic Rumors and Lies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/step-by-step-approach-for-stellar-gopro-videos-for-2024/"><u>Step-By-Step Approach for Stellar GoPro Videos for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ise-strategies-to-perfect-youtube-trailers-by-filmora-for-2024/"><u>Stepwise Strategies to Perfect YouTube Trailers by Filmora for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-line-between-satire-and-misinformation/"><u>The Line Between Satire & Misinformation</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-why-social-networking-sites-like-facebook-permit-more-than-one-profile-per-account/"><u>Unveiling Why Social Networking Sites Like Facebook Permit More Than One Profile per Account</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-vegaspro-the-19-edition/"><u>[New] Unveiling VegasPro The '19 Edition</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-access-yt-comments-desktopiosandroid-edition-explained-for-2024/"><u>[Updated] Access YT Comments Desktop/iOS/Android Edition Explained for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-correct-yt-monetization-checklist-maximize-your-earnings-for-2024/"><u>[Updated] Correct YT Monetization Checklist – Maximize Your Earnings for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-green-walls-in-grey-buildings-a-step-towards-eco-cities/"><u>[Updated] Green Walls in Grey Buildings A Step Towards Eco-Cities</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-vsr-video-vaulter-reviews-comprehensive-guide-for-2024/"><u>[Updated] VSR Video Vaulter Reviews Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-realme-11-proplus-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/identifying-prevalent-factors-behind-poor-pc-speed-a-guide-by-yl-software/"><u>Identifying Prevalent Factors Behind Poor PC Speed: A Guide by YL Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-and-fb-stickers-a-test-of-brand-engagement/"><u>Instagram and FB Stickers: A Test of Brand Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-as-a-tool-facebook-users-spend-300-on-recovery/"><u>Oculus as a Tool: Facebook Users Spend $300 on Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-quest-update-rescheduled-for-next-fiscal-year/"><u>Oculus Quest Update: Rescheduled for Next Fiscal Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-connected-tools-a-compreayers-guide-to-fb-integration/"><u>Organizing Connected Tools: A Compreayer's Guide to Fb Integration</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ditch the Bickering: Enhance Social Media Serenity"
-date: 2024-07-29T07:38:45.976Z
-updated: 2024-07-30T07:38:45.976Z
+date: 2025-01-13T16:11:02.504Z
+updated: 2025-01-18T16:12:30.995Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
  Here's how you can block political and other annoying content on your Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Facebook's Timeline Can Get Swamped With Politics
 
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
@@ -35,17 +32,26 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
  We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
 
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -57,14 +63,8 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## 2\. Remove Your Political Views From Your Profile
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
@@ -76,9 +76,9 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use a Browser Extension
 
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
@@ -90,20 +90,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Creating a Facebook Feed You Enjoy
 
  With these tools at your disposal, there's very little reason to get annoyed at Facebook ever again. Facebook doesn't have to be irritating—it can be a legitimate way to keep up with friends and talk about interesting things, without getting bogged down in toxic rants and attention-seeking behavior.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,4 +110,23 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-streamlining-social-sharing-coordinating-vids-on-tweets-plus-tumbles/"><u>[New] In 2024, Streamlining Social Sharing Coordinating Vids on Tweets + Tumbles</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-through-gopro-models-and-specifications/"><u>[Updated] In 2024, Navigating Through GoPro Models & Specifications</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-dive-deep-into-the-world-of-timelapses-with-your-ipad/"><u>2024 Approved Dive Deep Into the World of Timelapses with Your iPad</u></a></li>
+<li><a href="https://some-tips.techidaily.com/ai-revolution-understanding-and-leveraging-next-gen-agent-ecosystems-for-tomorrows-market-dominance-zdnet-insights/"><u>AI Revolution: Understanding and Leveraging Next-Gen 'Agent Ecosystems' For Tomorrow's Market Dominance | ZDNET Insights</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-new-dimensions-a-look-at-mixed-reality-for-2024/"><u>Crafting New Dimensions A Look at Mixed Reality for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-subdued-visuals-for-facebook/"><u>How to Activate Subdued Visuals for Facebook</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-tecno-spark-20c-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Tecno Spark 20C?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-innovative-approaches-for-cross-social-media-broadcasting-fbwhatsapp/"><u>In 2024, Innovative Approaches for Cross-Social Media Broadcasting (FB/WhatsApp)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-reap-endless-visual-resources-via-four-prime-youtube-sites/"><u>In 2024, Reap Endless Visual Resources via Four Prime YouTube Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-key-meta-tools-to-succeed-in-your-business/"><u>Leverage Key META Tools to Succeed in Your Business</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/rekindle-the-roaring-gunfire-resolving-borderlands-3s-sound-issues-on-windows/"><u>Rekindle the Roaring Gunfire – Resolving Borderlands 3'S Sound Issues on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/retracing-steps-my-initial-leap-into-social-media/"><u>Retracing Steps: My Initial Leap Into Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-facebooks-new-approach-to-business-marketing/"><u>Social Media Evolution: Facebook's New Approach to Business Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unveiling-of-metaverse-risks-and-realities/"><u>The Unveiling of Metaverse - Risks and Realities</u></a></li>
+<li><a href="https://facebook.techidaily.com/update-alert-simplify-how-you-engage-on-facebook-feed/"><u>Update Alert! Simplify How You Engage on Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-moving-away-from-biometrics-in-fb/"><u>Why Is Meta Moving Away From Biometrics in FB?</u></a></li>
+</ul></div>
 

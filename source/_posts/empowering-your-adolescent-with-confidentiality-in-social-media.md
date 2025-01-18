@@ -1,7 +1,7 @@
 ---
 title: Empowering Your Adolescent with Confidentiality in Social Media
-date: 2025-01-03T02:31:38.637Z
-updated: 2025-01-05T22:01:06.703Z
+date: 2025-01-14T16:16:26.468Z
+updated: 2025-01-18T16:00:15.568Z
 tags:
   - facebook
 categories:
@@ -25,12 +25,16 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
@@ -43,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -53,7 +57,7 @@ Close
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Privacy Setting Basics
@@ -83,16 +87,12 @@ Close
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Check Ad Settings
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -125,21 +125,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://network-issues.techidaily.com/fixed-missing-network-interface-on-windows-10-notebook/"><u>[FIXED] Missing Network Interface on Windows 10 Notebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-and-expert-use-of-obs-studio-with-android-devices-for-2024/"><u>[Updated] Effortless and Expert Use of OBS Studio with Android Devices for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-get-premium-minecraft-channel-graphics-for-2024/"><u>[Updated] Get Premium Minecraft Channel Graphics for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-skyline-artistry-review-studio-25-in-focus-2023-for-2024/"><u>[Updated] Skyline Artistry Review Studio 25 in Focus, 2023 for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-dominating-the-digital-space-5-tips-for-video-visibility-victory/"><u>2024 Approved Dominating the Digital Space 5 Tips for Video Visibility Victory</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/30plus-ways-to-convert-instagram-videos-onto-your-computer-iphone-or-android/"><u>30+ Ways To Convert Instagram Videos Onto Your Computer, iPhone or Android</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-in-designing-facebook-background-artwork/"><u>Best Practices in Designing Facebook Background Artwork</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-content-allowed-on-facebook/"><u>Deciphering Content Allowed on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/donald-trump-claims-infringement-on-speech-by-tech-giants/"><u>Donald Trump Claims Infringement on Speech by Tech Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-of-year-update-instagrams-chat-curtain-call/"><u>End-of-Year Update: Instagram's Chat Curtain Call</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-interactive-features-are-they-game-changers/"><u>Facebook’s Interactive Features: Are They Game Changers?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/game-file-recovery-techniques-fixing-broken-games-on-a-desktop-system-2024-edition/"><u>Game File Recovery Techniques: Fixing Broken Games on a Desktop System - 2024 Edition</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Itel S23+? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/rapid-transition-techniques-for-different-facebook-accounts/"><u>Rapid Transition Techniques for Different Facebook Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-standoff-what-you-should-know/"><u>Social Network Standoff: What You Should Know</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722976053494-streamlined-process-secure-your-microsoft-wireless-mouse-5000-driver-download-now/"><u>Streamlined Process: Secure Your Microsoft Wireless Mouse 5000 Driver Download Now!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-clearer-view-deeper-insight-zoom-techniques-in-videoleap/"><u>[Updated] Clearer View, Deeper Insight Zoom Techniques in Videoleap</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-leading-9-movie-extractors-for-fb-for-2024/"><u>[Updated] Leading 9 Movie Extractors for FB for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-heard-words-spoken-ideas-no-price/"><u>2024 Approved Heard Words, Spoken Ideas – No Price</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/all-about-the-next-gen-playstation-portal-availability-dates-cost-estimates-and-hardware-details/"><u>All About the Next-Gen PlayStation Portal: Availability Dates, Cost Estimates & Hardware Details</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discover-5-proven-ways-to-improve-windows-11-search-success/"><u>Discover 5 Proven Ways to Improve Windows 11 Search Success</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/effortless-conversion-techniques-for-dall-e-3-webp-to-jpegpng-formats/"><u>Effortless Conversion Techniques for DALL-E 3 WebP to JPEG/PNG Formats</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-life-offline-end-your-facebook-addiction/"><u>Embrace Life Offline: End Your Facebook Addiction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-friends-forever-growing-your-online-band/"><u>Facebook Friends Forever: Growing Your Online Band</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-spot-a-shadowy-facebook-profile-creator/"><u>How to Spot a Shadowy Facebook Profile Creator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/identifying-key-differences-between-amazons-echo-pop-and-echo-dot/"><u>Identifying Key Differences Between Amazon's Echo Pop and Echo Dot</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-misleading-online-experiences/"><u>Navigating the Maze of Misleading Online Experiences</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-digital-workspace-the-ultimate-ar-laptop-arrives-with-an-astounding-100-inch-display-say-goodbye-to-external-monitors/"><u>Revolutionize Your Digital Workspace - The Ultimate AR Laptop Arrives With an Astounding 100-Inch Display, Say Goodbye to External Monitors!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-best-content-scheduling-aids-for-frequent-updates/"><u>The 7 Best Content Scheduling Aids for Frequent Updates</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unleashing-the-power-of-time-lapse-photography-using-gopro/"><u>Unleashing the Power of Time-Lapse Photography Using GoPro</u></a></li>
 </ul></div>
 

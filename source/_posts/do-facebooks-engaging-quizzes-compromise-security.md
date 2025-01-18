@@ -1,7 +1,7 @@
 ---
 title: Do Facebook's Engaging Quizzes Compromise Security?
-date: 2024-07-29T07:37:22.556Z
-updated: 2024-07-30T07:37:22.556Z
+date: 2025-01-11T16:14:37.882Z
+updated: 2025-01-18T16:07:27.372Z
 tags:
   - facebook
 categories:
@@ -17,9 +17,6 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
  That fun “all about you” quiz on Facebook might seem harmless, but it could actually be a serious cybersecurity risk. Quizzes, challenges, and questionnaires on Facebook (and indeed other social media sites) can trick you into giving away valuable personal information. Some are straight-up scams. How can you spot scam quizzes, and what should you do if you fill one out?
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What Are Facebook Quizzes?
 
  We’ve all been there: you’re scrolling through Facebook and run into a quiz promising to match you with a fictional character. It might ask you to fill out a long list of favorites to share with friends or advertise “accurate results” for your Hogwarts house, for instance.
@@ -28,14 +25,8 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Cybersecurity Risks of Facebook Quizzes
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
@@ -46,16 +37,14 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What to Do if You’ve Taken Facebook Quizzes
 
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Analyze the Quiz
 
  First, find the quiz or challenge you responded to. What format was the quiz in—a link or a post? Did you fill out multiple choice questions on another website or type in custom answers on a post?
@@ -65,15 +54,24 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -93,18 +91,19 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
 
  Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Staying Safe on Facebook
 
  Facebook quizzes can be a serious cybersecurity risk, but you can take steps to protect your information. Before taking any quizzes on Facebook, take a close look at the questions. Stay away from quizzes that give you a bad feeling—always trust your gut.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,4 +112,22 @@ thumbnail: https://thmb.techidaily.com/8b3d2d47a5002bc66759eafaa4c246c7aaef6efd4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-boosting-detail-with-videoleaps-in-camera-zooming/"><u>[New] Boosting Detail with VideoLeap's In-Camera Zooming</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-elevating-your-professional-image-with-high-quality-ppt-recordings/"><u>[New] Elevating Your Professional Image with High-Quality PPT Recordings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-dissecting-tseries-profit-generation-through-youtube-videos/"><u>2024 Approved Dissecting TSeries' Profit Generation Through YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-prior-bondings-on-the-social-network/"><u>Examining Prior Bondings on the Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-most-trending-videos-in-your-feed/"><u>Explore Most Trending Videos in Your Feed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-tapestry-translator-looms-screen-recording-guide/"><u>In 2024, The Tapestry Translator Loom’s Screen Recording Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-trade-key-business-meta-tools/"><u>Master Your Trade: Key Business Meta Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-locations-to-scout-for-freelancer-roles/"><u>Premier Locations to Scout for Freelancer Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/remove-spotifys-social-linkage-with-facebook-here/"><u>Remove Spotify's Social Linkage with Facebook Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-powerhouse-of-marketing-top-8-benefits-for-business-pages-vs-individuals/"><u>The Powerhouse of Marketing: Top 8 Benefits for Business Pages vs Individuals</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/transforming-viewers-experience-obs-strategies-on-youtube-and-twitch-for-2024/"><u>Transforming Viewers' Experience OBS Strategies on YouTube & Twitch for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/vllo-feedback-compilation/"><u>VLLO Feedback Compilation</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-might-not-see-whats-popular-on-facebook/"><u>Why You Might Not See What's Popular on Facebook</u></a></li>
+<li><a href="https://program-issues.techidaily.com/world-of-warcraft-halted-by-error-132-heres-how-to-get-you-back-in-game/"><u>World of Warcraft Halted by Error 132? Here's How to Get You Back In-Game</u></a></li>
+</ul></div>
 

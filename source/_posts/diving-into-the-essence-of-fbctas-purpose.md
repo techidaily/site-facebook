@@ -1,7 +1,7 @@
 ---
 title: Diving Into the Essence of FBCTA's Purpose
-date: 2024-07-29T07:38:27.456Z
-updated: 2024-07-30T07:38:27.456Z
+date: 2025-01-11T16:15:15.393Z
+updated: 2025-01-18T16:15:27.821Z
 tags:
   - facebook
 categories:
@@ -22,14 +22,16 @@ thumbnail: https://thmb.techidaily.com/2cd3ca0cbeb8c4e3cd0fc34413344036f23c5912a
  This article will outline how Congress wants Facebook and other tech giants to change their algorithms. Keep reading to find out more about how this proposed bill could affect you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Filter Bubble Transparency Act?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![courtroom gavel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/courtroom-gavel-judge.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
@@ -52,16 +54,16 @@ thumbnail: https://thmb.techidaily.com/2cd3ca0cbeb8c4e3cd0fc34413344036f23c5912a
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How the Filter Bubble Transparency Act Could Affect You
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -70,22 +72,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Personalized Algorithms Become a Thing of the Past?
 
  Congress wants big tech companies to stop using unsolicited data from users to inform its algorithms, which is a big ask, considering this is a key part of apps like Facebook and Instagram, and part of what keeps users scrolling and engaging.
 
  Facebook is known to push back against lawmakers and defending its business, so it will be interesting to see how this plays out. For now though, don't hold your breath on Facebook overhauling its algorithm.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,4 +94,23 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-bundle-of-nine-premium-holiday-treasures-watch-for-free-on-youtube/"><u>[Updated] A Bundle of Nine Premium Holiday Treasures Watch for Free on YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-exploring-the-best-audio-capture-technology-for-apple-devices-for-2024/"><u>[Updated] Exploring the Best Audio Capture Technology for Apple Devices for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/comprehensive-review-battery-powered-google-wireless-nest-doorbell/"><u>Comprehensive Review: Battery-Powered Google Wireless Nest Doorbell</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-engagement-best-post-time/"><u>Facebook Engagement: Best Post Time</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-can-you-access-archived-notifications-on-an-iphone/"><u>How Can You Access Archived Notifications on an iPhone?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/hunters-top-5-video-recording-recommendations/"><u>Hunters' Top 5 Video Recording Recommendations</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-xiaomi-redmi-note-12-4g-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Xiaomi Redmi Note 12 4G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-crafting-an-exceptional-experience-in-stardew-valley-top-7-mods/"><u>In 2024, Crafting an Exceptional Experience in Stardew Valley (Top 7 Mods)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/inside-look-tunefabs-best-screen-recorder/"><u>Inside Look Tunefab's Best Screen Recorder</u></a></li>
+<li><a href="https://facebook.techidaily.com/invasion-of-privacy-detecting-unauthorized-fb-access/"><u>Invasion of Privacy? Detecting Unauthorized FB Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-not-social-media-presence-post-death-options/"><u>Keeping Memories Alive, Not Social Media Presence - Post-Death Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-engagement-for-discreet-facebook-groups/"><u>Masked Engagement for Discreet Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-is-bringing-back-trumps-facebook-and-instagram-accounts/"><u>Meta Is Bringing Back Trump's Facebook and Instagram Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-info-paradox-how-much-can-you-really-share/"><u>Personal Info Paradox: How Much Can You Really Share?</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-strict-rules-to-govern-online-communities/"><u>Setting Strict Rules to Govern Online Communities</u></a></li>
+<li><a href="https://games-able.techidaily.com/solve-the-sleuths-case-in-smart-ai-mysteries/"><u>Solve the Sleuth's Case in Smart AI Mysteries</u></a></li>
+</ul></div>
 

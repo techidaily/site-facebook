@@ -1,7 +1,7 @@
 ---
 title: How Will U.S. Legislation Challenge the Titans?
-date: 2025-01-08T18:16:06.477Z
-updated: 2025-01-12T23:46:35.998Z
+date: 2025-01-17T16:08:15.795Z
+updated: 2025-01-18T16:17:22.815Z
 tags:
   - facebook
 categories:
@@ -34,21 +34,21 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -62,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -74,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -83,10 +91,6 @@ thumbnail: https://thmb.techidaily.com/44b8e2a77a17fe4113b1c8cef6e112b2db098718a
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -98,13 +102,13 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -117,10 +121,6 @@ Finally, we come to the economic backing to make it all happen.
  The Consumer Price Index is a concept in economics that shows how expensive it is to live during a given point in time—it objectively scores the average consumer's "market basket" of necessities, such as household goods, food, healthcare, transportation, and other living expenses in terms of "affordability." The higher this index is, the more expensive it is to live; inflation will usually be seen as the culprit when a country's CPI is rising.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Future Is a Really Big Place
 
@@ -143,19 +143,24 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-acknowledgement-pack-free-and-paid-otus-ready/"><u>[New] 2024 Approved Acknowledgement Pack Free & Paid OTUs Ready</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-choosing-the-right-lights-and-cameras-for-youtube-videos/"><u>[Updated] In 2024, Choosing the Right Lights & Cameras for YouTube Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-master-the-switch-linking-instagram-with-facebook-for-2024/"><u>[Updated] Master the Switch Linking Instagram with Facebook for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/a-visual-treat-discover-these-14-text-animation-delights/"><u>A Visual Treat Discover These 14 Text Animation Delights</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-steps-for-designing-events-on-facebook/"><u>Essential Steps for Designing Events on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-essential-elements-in-metas-new-privacy-rules/"><u>Exploring Essential Elements in Meta’s New Privacy Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-harvard-to-facebook-sheryls-journey/"><u>From Harvard to Facebook: Sheryl's Journey</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-honor-magic-5-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Honor Magic 5 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Honor Magic 6 Lite | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-digital-reality-understanding-facebooks-vr-future/"><u>Navigating The Digital Reality: Understanding Facebook's VR Future</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solution-guide-repairing-your-corsair-hs60-when-the-mic-wont-work/"><u>Solution Guide: Repairing Your Corsair HS60 When the Mic Won't Work</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-emergence-of-meta-charting-a-new-course-for-social-networking/"><u>The Emergence of Meta: Charting a New Course for Social Networking</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/538928-9780307757654-the-other-side-of-death/"><u>The Other Side of Death | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-updating-your-privacy-habits-is-crucial-insights-from-facebooks-latest-changes/"><u>Why Updating Your Privacy Habits Is Crucial: Insights From Facebook's Latest Changes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unlocking-financial-flows-youtube-affiliates-for-modest-channels/"><u>[Updated] Unlocking Financial Flows YouTube Affiliates for Modest Channels</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/analyzing-apples-cutting-edge-ipad-pro-a-new-era-beyond-the-macbook-alternative/"><u>Analyzing Apple's Cutting-Edge iPad Pro: A New Era Beyond the MacBook Alternative</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/explora-las-vias-de-clonacion-digital-elegir-el-mejor-metodo-de-repeticion-electronica/"><u>Explora Las Vías De Clonación Digital: Elegir El Mejor Método De Repetición Electrónica</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/fifth-round-of-top-time-lapse-capture-apps-for-2024/"><u>Fifth Round of Top Time-Lapse Capture Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-social-media-platforms-can-stop-the-spread-of-covid-19-misinformation/"><u>How Social Media Platforms Can Stop the Spread of COVID-19 Misinformation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-infinix-smart-8-plus-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Infinix Smart 8 Plus Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-live-silent-mode-unlocked/"><u>Instagram Live Silent Mode Unlocked</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-2fa-for-safer-email-security-in-gmail-and-outlook/"><u>Mastering 2FA for Safer Email Security in Gmail & Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-reach-with-timely-posts/"><u>Maximizing Facebook's Reach with Timely Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-music-playback-on-facebook-with-spotify/"><u>Navigating Music Playback on Facebook with Spotify</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/smart-screen-capture-on-mac-understanding-the-best-5-methods-for-2024/"><u>Smart Screen Capture on Mac Understanding the Best 5 Methods for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-oppo-a38-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-managing-your-facebook-friends-list/"><u>The Do's and Don'ts of Managing Your Facebook Friends List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-formula-for-financial-success-video-content-and-the-role-of-metric-mastery/"><u>The Formula for Financial Success: Video Content & The Role of Metric Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-increase-in-crypto-advertising-on-facebook-and-instagram/"><u>The Increase in Crypto Advertising on Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-scale-analyzing-facebooks-influence-on-expat-groups/"><u>The Social Scale: Analyzing Facebook's Influence on Expat Groups</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/when-will-my-mailcom-account-expire/"><u>When Will My Mail.com Account Expire?</u></a></li>
 </ul></div>
 

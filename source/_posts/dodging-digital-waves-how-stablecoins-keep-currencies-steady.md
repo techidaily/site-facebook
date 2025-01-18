@@ -1,7 +1,7 @@
 ---
 title: "Dodging Digital Waves: How Stablecoins Keep Currencies Steady"
-date: 2024-07-29T07:40:08.042Z
-updated: 2024-07-30T07:40:08.042Z
+date: 2025-01-11T16:08:03.939Z
+updated: 2025-01-18T16:01:06.880Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/3fd32f657ca906fd6ed8ec321bcb0a471e050e9fd
 
  Where's the fun in that? What's the point? Where's the profit? Read on to find out what a stablecoin is and why you might want to use one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Are Stablecoins?
 
  This may surprise you, but cryptocurrencies were conceived to be used as currencies. Right now, people speculate on their notoriously volatile prices more than they use these digital assets to buy and sell goods and services, but it's not supposed to be that way.
@@ -33,9 +37,6 @@ That's where stablecoins come in.
 
  Stablecoins are blockchain-based digital currencies just like Bitcoin or Ethereum, but they are designed to maintain a consistent price over time, usually by being pegged to the value of another currency or being backed by a trusted agency.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do Stablecoins Work?
 
  Volatility aside, there are a number of great use cases for cryptocurrencies. These include greater transaction transparency, security, and the potential privacy of users.
@@ -44,9 +45,6 @@ That's where stablecoins come in.
 
  Stablecoins try to maintain these benefits and bring benefits of their own, which we'll get into in a moment. However, stablecoins do this without bringing along all of the price volatility that makes other cryptocurrencies difficult and intimidating to use in regular transactions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Tether logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/Tether_full_logo_dm.png)
 
 Image Credit: Tether
@@ -60,17 +58,15 @@ Image Credit: Tether
  Facebook's proposed Diem stablecoin (formerly Libra) would get around this issue in part by being backed by a basket of reserve currencies from around the world. If one or even a few of these assets experienced price instability, it would be checked by the stability of the other assets. That would allow Diem to maintain a more stable price than any individual asset backing the coin.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### CBDCs Are a Subset of Stablecoins
 
  When a government launches its own stablecoin, this class of stablecoin is called a "central bank digital currency" or "CBDC" for short. Right now, China is the only country with a CBDC, though India, the United Kingdom, the United States, and other countries have publicly considered the idea.
 
  While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## More Stablecoin Examples and Use Cases
 
  The benefits of using a stable coin often depend on the coin as well as who issues it. There are several stablecoins already out there, including those that have already been discussed in this article. However, some proposed stablecoins could offer even more utility in the future.
@@ -81,16 +77,21 @@ Image Credit: Tether
 
  While China uses its CBDC as a surveillance tool, U.S. Fed Chair Jerome Powell has said that the private nature of cryptocurrencies is a reason for the U.S. not to build a CBDC.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### Stablecoins Could Provide Financial Infrastructure to the Unbanked
 
 ![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
 
  People without easy access to physical banks or who don't trust banking institutions could access secure financial services through stablecoins. Stablecoins other than CBDCs can be used by individuals as a store of value when their own local currency was in flux, as discussed above, or by people who live in areas where multiple currencies are used.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Stablecoins Improve Online Transactions
 
@@ -101,20 +102,18 @@ Image Credit: Tether
  Stablecoins can allow vendors to accept payments in cryptocurrency for international online transactions without the need to account for price volatility or the hassle of transferring funds from one currency to another.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is a Stablecoin the Coin for You?
 
  If you like the sound of digital currencies but don't like the sound of the price volatility of coins like Bitcoin and Ethereum, stablecoins might be right for you. While solutions like Facebook's Diem and CBDCs still exist on paper for most readers, coins like USDC and Tether are available and traded on most exchanges.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +122,21 @@ Image Credit: Tether
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-captureelite-pro-windows-enhanced/"><u>[New] In 2024, CaptureElite Pro Windows Enhanced</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-10-innovative-podcast-microphone-picks/"><u>[Updated] In 2024, Top 10 Innovative Podcast Microphone Picks</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-mastering-the-craft-of-background-image-acquisition/"><u>[Updated] Mastering the Craft of Background Image Acquisition</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-boosting-your-gameplay-tips-for-increased-zoom-range/"><u>2024 Approved Boosting Your Gameplay Tips for Increased Zoom Range</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/content-climbing-from-zero-to-million-in-a-matter-of-seconds-for-2024/"><u>Content Climbing From Zero to Million in a Matter of Seconds for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-brings-in-ray-bans-stories-exploring-the-features-and-cost/"><u>Facebook Brings In Ray-Bans Stories: Exploring the Features & Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-secure-are-your-virtual-trails-on-meta-or-fb/"><u>How Secure Are Your Virtual Trails on Meta or FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-altered-by-like-culture-on-facebook/"><u>Life Altered by 'Like' Culture on Facebook</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-nokia-g42-5g-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Nokia G42 5G? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-away-from-sensational-selfies-sharing-at-meta/"><u>Steering Away From Sensational Selfies Sharing at Meta</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-instructions-on-how-to-binge-watch-the-indiana-jones-franchise-properly/"><u>Step-by-Step Instructions on How to Binge Watch the Indiana Jones Franchise Properly</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-is-now-facebookshift-into-meta-redefining-social-interaction/"><u>The Future Is Now: Facebook’shift Into 'Meta', Redefining Social Interaction</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-how-to-activate-wi-fi-on-any-gadget/"><u>Troubleshooting Guide: How to Activate Wi-Fi on Any Gadget</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-venues-identifying-the-top-20-social-sites-and-apps/"><u>Virtual Venues: Identifying the Top 20 Social Sites and Apps</u></a></li>
+</ul></div>
 

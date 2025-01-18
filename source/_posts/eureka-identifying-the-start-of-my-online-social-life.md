@@ -1,7 +1,7 @@
 ---
 title: Eureka! Identifying the Start of My Online Social Life
-date: 2025-01-07T19:30:52.825Z
-updated: 2025-01-12T19:28:37.501Z
+date: 2025-01-16T16:04:41.316Z
+updated: 2025-01-18T16:06:27.454Z
 tags:
   - facebook
 categories:
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/6283ff7f0ec530727c4f03db2aa9125ca35be5851
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Find the Exact Date That You Joined Facebook
 
  If you can log in to your Facebook account, there’s a section on the site that tells you when you made your account. This is the best way to find your Facebook join date, as this provides the most accurate answer.
@@ -39,13 +43,13 @@ Follow these steps to find your Facebook account creation date:
 ![your facebook information page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/your-facebook-information-page.jpg)
 5. Several new options appear on the right pane. Next to**Access profile information** , select**View** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. On the next screen, under the**Access your information** menu on the left, scroll down and select**Personal information** .  
 ![facebook profile information menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-profile-information-menu.jpg)
 7. On the right pane, look toward the**Your account creation date** section. This section displays the exact date you created your Facebook account.  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![account creation date on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/account-creation-date-on-facebook.jpg)
 
@@ -55,11 +59,11 @@ Follow these steps to find your Facebook account creation date:
 
 ![facebook main menu on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-main-menu-on-mobile.jpg)
 
-![facebook app access your information option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-access-your-information-option.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![facebook app access your information option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-access-your-information-option.jpg)
 
 ![personal information option on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/personal-information-option-on-facebook-app.jpg)
 
@@ -74,10 +78,6 @@ Close
 
  Doing this on the Facebook website or app is the best way to find out your account creation date. But what if you don't have access to your account?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Using Facebook's Welcome Email to Find Your Join Date
 
  Another way to check how many years you've had Facebook is by using your welcome email.
@@ -87,6 +87,10 @@ Close
  To use this method, open your email account’s inbox. Put your cursor in the search box and search for keywords like**"** **Welcome to Facebook"** , "**Facebook Registration Confirmation"** , and so on.
 
 ![Use the welcome email to find your join date on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-welcome-email.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you find the Facebook email that either asks you to confirm your email address or offers instructions on getting started with Facebook, that email’s date should be your Facebook account creation date.
 
@@ -113,6 +117,10 @@ Close
 
  That date should be the day you made your Facebook profile or very close to that date.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
  Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
@@ -121,17 +129,9 @@ Close
 
 ![facebook activity log menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-activity-log-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Then select**Your posts, check-ins, photos and videos** .
 
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
@@ -142,7 +142,7 @@ Close
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Find Out When You Joined Facebook
@@ -166,19 +166,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-harnessing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker-for-2024/"><u>[Updated] Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-ten-recommendations-for-dynamic-instagram-grid-crafting/"><u>2024 Approved Top Ten Recommendations for Dynamic Instagram Grid Crafting</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-on-facebook-events-perks-and-issues/"><u>Deciding On Facebook Events - Perks and Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/decision-making-for-your-ideal-social-media-hub/"><u>Decision-Making for Your Ideal Social Media Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-securityfbcom/"><u>Determining the Credibility of Facebook's Safety Email: security@fb.com</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-age-advantages-the-positive-seven-for-society/"><u>Digital Age Advantages: The Positive Seven for Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/discussion-dive-which-social-platform-excels-in-community-building/"><u>Discussion Dive: Which Social Platform Excels in Community Building</u></a></li>
-<li><a href="https://games-able.techidaily.com/ea-play-hikes-and-i-wont-be-a-member-again/"><u>EA Play Hikes, and I Won't Be a Member Again</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/efficient-screenshot-with-audio-layered-for-2024/"><u>Efficient Screenshot With Audio Layered for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/how-to-search-comments-on-youtube-quickly-for-2024/"><u>How to Search Comments on YouTube Quickly for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-on-screen-capture-aid/"><u>In 2024, On-Screen Capture Aid</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-strategies-for-downloading-twitter-video-content-to-mp3/"><u>In 2024, Strategies for Downloading Twitter Video Content to MP3</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/revisit-and-refine-6-unnecessary-gpt-3-applications/"><u>Revisit and Refine: 6 Unnecessary GPT-3 Applications</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-power-of-words-in-marketing-top-20-essentials-for-2024/"><u>The Power of Words in Marketing - Top 20 Essentials for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-high-definition-ready-enabling-av1-on-youtube/"><u>[New] High Definition Ready Enabling AV1 on YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unseen-battles-umbraheroes-black-versus-luminaryheroes-silver/"><u>[New] In 2024, Unseen Battles Umbraheroes (Black) Versus Luminaryheroes (Silver)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/9-effective-solutions-for-when-your-iphone-refuses-to-sync-with-icloud/"><u>9 Effective Solutions for When Your iPhone Refuses to Sync with iCloud</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-visibility-on-social-platforms/"><u>Enhancing Visibility on Social Platforms</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-nubia-red-magic-8s-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Nubia Red Magic 8S Pro</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-modern-gamers-guide-understanding-the-latest-on-bandicam/"><u>In 2024, The Modern Gamer's Guide Understanding the Latest on Bandicam</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/portable-powerhouse-or-overpriced-gadget-meet-the-steam-deck/"><u>Portable Powerhouse or Overpriced Gadget? Meet the Steam Deck</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inizing-the-economics-behind-short-video-earnings-for-2024/"><u>Scrutinizing the Economics Behind Short Video Earnings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-success-a-step-by-step-guide/"><u>Social Sphere Success: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-12-promoters-of-covid-19-untruths/"><u>Top 12 Promoters of Covid-19 Untruths</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-ideal-images-for-facebook-profiles/"><u>Unveiling Ideal Images for Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/wearable-tech-update-facebooks-watch-might-double-up-on-cams/"><u>Wearable Tech Update: Facebook's Watch Might Double Up on Cams</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/wsappx-explained-effectively-addressing-high-disk-space-and-cpu-demands/"><u>WSAPPX Explained: Effectively Addressing High Disk Space and CPU Demands</u></a></li>
 </ul></div>
 

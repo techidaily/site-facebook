@@ -1,7 +1,7 @@
 ---
 title: "Effortless Access to Past Experiences: Facebook On This Day"
-date: 2024-07-29T07:35:47.779Z
-updated: 2024-07-30T07:35:47.779Z
+date: 2025-01-14T16:05:27.422Z
+updated: 2025-01-18T16:18:11.316Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/c08cfb9fc52b90a12972e5ec144ec0c7f63bc215d
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Share Memories
 
  The first thing that most users discover is the option to share their memories with others. You can post it on your timeline, send them in messages, and even tag specific people.
@@ -50,18 +54,15 @@ To share a memory from the On This Day feature:
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### 2\. Save and Delete Memories
 
  Another great thing about the On This Day feature is the ability to save memories. This takes the memories to a separate**Save** section, intended for content you wish to view later.
@@ -72,11 +73,11 @@ You can save your On This Day posts with the following steps:
 2. Tap the**three dots** to open a new menu.
 3. Select**Save Post** , and it will be stored in the**Saved items** section on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
@@ -90,9 +91,6 @@ To access your saved memories:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
 Close
@@ -102,8 +100,9 @@ Close
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. See What Your Friends Shared on Your Wall
 
  With a thriving social circle, your friends might tag you in posts and share them on your profile. Remember a birthday or a special occasion on which your friends tagged you in their posts?
@@ -118,14 +117,15 @@ Close
 2. Tap the**Settings** icon that looks like a gear in the top-right corner of the screen.
 3. Next, change your settings under the**Memories Settings** section.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
 
@@ -137,10 +137,6 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
@@ -148,22 +144,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
  The On This Day feature of Facebook is a great way to stay in touch with your past and recall memories that have been a part of your life over the years.
 
  Users can effectively use the feature to share and save media. You can customize Facebook’s On This Day feature and only access memories of choice. We hope you will be able to manage your On This Day memories in a much better and more convenient way.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,4 +166,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-comprehensive-step-by-step-on-zooms-video-broadcasting/"><u>[New] In 2024, Comprehensive Step-by-Step on Zoom's Video Broadcasting</u></a></li>
+<li><a href="https://driver-error.techidaily.com/closed-issue-non-supported-intelamd-graphics-driver-compatibility-with-premier-pro/"><u>Closed Issue: Non-Supported Intel/AMD Graphics Driver Compatibility with Premier Pro</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diy-troubleshooting-techniques-for-correcting-oculus-gear-issues-in-the-new-year/"><u>DIY Troubleshooting Techniques for Correcting Oculus Gear Issues in the New Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonious-humor-engaging-with-friends-smartly/"><u>Harmonious Humor: Engaging with Friends Smartly</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-pro-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 Pro To Others ios devices? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-oneplus-12-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On OnePlus 12 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-friendly-feedback-with-poll-innovation/"><u>Leveraging Friendly Feedback with Poll Innovation</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-movie-maker-for-kids-teach-kids-to-make-a-movie/"><u>New In 2024, Movie Maker for Kids Teach Kids to Make a Movie</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-into-weekend-shopping-bliss-via-facebook-shops/"><u>Reel Into Weekend Shopping Bliss via Facebook Shops</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ify-your-youtube-presence-with-flawless-shorts-thumbnails/"><u>Simplify Your YouTube Presence with Flawless Shorts Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-the-masses-a-step-by-step-for-full-group-features-on-fb/"><u>Uniting the Masses: A Step-by-Step for Full Group Features on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-secret-mastering-the-art-of-social-network-returns/"><u>Unlock the Secret: Mastering the Art of Social Network Returns</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-challenges-india-over-privacy-threatening-tech-regulations/"><u>WhatsApp Challenges India Over Privacy-Threatening Tech Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-digital-footprints-ever-fade-away/"><u>Will Digital Footprints Ever Fade Away?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-tecno-camon-20-premier-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Tecno Camon 20 Premier 5G? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>
 

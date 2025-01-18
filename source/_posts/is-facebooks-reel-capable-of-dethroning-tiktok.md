@@ -1,7 +1,7 @@
 ---
 title: Is Facebook's Reel Capable of Dethroning TikTok?
-date: 2024-12-30T16:26:51.357Z
-updated: 2025-01-06T00:13:31.516Z
+date: 2025-01-14T16:09:46.183Z
+updated: 2025-01-18T16:16:07.903Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How TikTok Is Hurting Facebook
 
 ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
@@ -44,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
  Facebook is losing a specific segment of consumers, namely Gen Z, to its rival TikTok.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Depleting Engagement Levels
 
  Along with the decline in daily active users, Facebook is also suffering from depleting user engagement levels.
@@ -55,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  The average session length on the video-sharing app is 10.85 minutes, according to[Statista](https://www.statista.com/statistics/579411/top-us-social-networking-apps-ranked-by-session-length/) . Meanwhile, other social media apps lag far behind in terms of engagement. This is a key metric for a platform like Facebook because the longer users stay on a platform, the more appealing it appears to advertisers.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Stagnating Ad Revenues
@@ -65,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  As engagement levels plummet, Facebook is bringing less money from ads because advertisers aren’t getting satisfactory returns from the ad spend. Apple’s App Tracker Transparency feature is also reported to be depleting ad revenue. The feature was introduced last year with the[14.5 iOS version to limit iPhone apps from tracking user data](http://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/) .
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Facebook Plans to Regain Momentum
 
@@ -85,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
@@ -98,6 +90,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
  For Facebook to rival TikTok, it has to reinvent itself as a brand new, highly sticky, and innovative app, far different from what it is today.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Facebook Is Late to the Game
 
 [Facebook has been losing popularity](https://www.makeuseof.com/facebook-popularity-peak/) , especially among the younger generation, for a few years now. However, it was still attracting more users overall and earning tons of money—which is perhaps why the company hasn't reacted as quickly.
@@ -107,6 +103,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Whether that happens or not remains to be seen; Zuckerberg has seemingly pinned much of the company’s future on creating a fully-realized digital world called the Metaverse. Zuckerberg has already dedicated over $10 billion on the project.
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Monetization Issues
 
@@ -137,18 +137,18 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-classic-film-aesthetics-masterclass-in-video-production/"><u>[New] In 2024, Classic Film Aesthetics Masterclass in Video Production</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-the-future-of-storytelling-full-rotational-videography/"><u>[New] In 2024, The Future of Storytelling Full Rotational Videography</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-10-photography-composition-rules-for-iphone/"><u>[Updated] 2024 Approved 10 Photography Composition Rules for iPhone</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-flatness-in-your-online-life-with-3d-photos/"><u>Avoiding Flatness in Your Online Life with 3D Photos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-seamless-transitions-the-art-of-canon-time-lapses/"><u>Crafting Seamless Transitions The Art of Canon Time-Lapses</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-intern-to-innovator-the-metamate-movement/"><u>From Intern to Innovator: The Metamate Movement</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-snapshot-speaks-the-leading-captioning-apps-iosandroid/"><u>In 2024, Snapshot Speaks The Leading Captioning Apps (iOS/Android)</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ely-growing-your-channels-popularity-a-one-million-goal-guide-for-2024/"><u>Securely Growing Your Channel's Popularity A One-Million Goal Guide for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-branded-content-instagrams-and-facebooks-new-focus/"><u>The Rise of Branded Content: Instagram's & Facebook's New Focus</u></a></li>
-<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
-<li><a href="https://techidaily.com/top-tips-for-optimizing-menu-functionality-on-leading-networks-learn-to-efficiently-scroll-and-manage-content-on-facebook-linkedin-and-youtube/"><u>Top Tips for Optimizing Menu Functionality on Leading Networks – Learn to Efficiently Scroll & Manage Content on Facebook, LinkedIn, and YouTube!</u></a></li>
-<li><a href="https://facebook.techidaily.com/untangling-instagram-from-facebook-services/"><u>Untangling Instagram From Facebook Services</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-chrome-os-4-screenshots-tricks/"><u>[New] 2024 Approved Mastering Chrome OS 4 Screenshots Tricks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-navigating-instagrams-reel-downloads-with-ease-and-versatility-for-2024/"><u>[New] Navigating Instagram's Reel Downloads with Ease and Versatility for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-art-of-fbx-filming-preserving-your-playthroughs-for-2024/"><u>[New] The Art of FBX Filming Preserving Your Playthroughs for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-cutting-edge-content-creation-mastering-live-recording-tools/"><u>[Updated] 2024 Approved Cutting-Edge Content Creation Mastering Live Recording Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-real-life-quantum-mechanics-on-the-silver-screen/"><u>2024 Approved Real-Life Quantum Mechanics on the Silver Screen</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/canon-dr-c225-driver-download-for-windows-operating-systems-windows-11-10-and-8/"><u>Canon DR-C225 Driver Download for Windows Operating Systems - Windows 11, 10 & 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-the-power-of-technology-save-fb-imagesvideos/"><u>Harness the Power of Technology: Save Fb Images/Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-real-is-the-security-email-at-facebookmailcom-for-fb-account-safety/"><u>How Real Is the Security Email at facebookmail.com? For FB Account Safety</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximizing-restful-nights-the-ultimate-guide-to-apple-watch-sleep-analytics/"><u>Maximizing Restful Nights: The Ultimate Guide to Apple Watch Sleep Analytics</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/microsoft-jests-at-their-own-product-unwittingly-exposing-team-apps-challenges-tech-analysis-by-zdnet/"><u>Microsoft Jests at Their Own Product, Unwittingly Exposing Team App's Challenges | Tech Analysis by ZDNET</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-methods-for-downloading-your-private-fb-content/"><u>Secure Methods for Downloading Your Private FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-update-twitter-like-initiative-by-facebook/"><u>Social Network Update: Twitter-Like Initiative by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-heats-up-5-million-from-social-network-counteracts-substacks-appeal/"><u>The Battle Heats Up: $5 Million From Social Network Counteracts Substack's Appeal</u></a></li>
 </ul></div>
 

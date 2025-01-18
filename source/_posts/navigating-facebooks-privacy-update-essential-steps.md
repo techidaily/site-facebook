@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook’s Privacy Update: Essential Steps"
-date: 2025-01-11T18:42:53.196Z
-updated: 2025-01-12T19:01:56.310Z
+date: 2025-01-15T16:20:56.319Z
+updated: 2025-01-18T16:19:40.103Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/ffb0273089dad909d1970227a2adf2a6505fbce5d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -46,10 +42,14 @@ Here's how:
  This will take you to the Privacy Center home where you can further explore this new feature.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook's Privacy Center at a Glance
 
@@ -63,10 +63,6 @@ Here's how:
 
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
@@ -74,7 +70,7 @@ Here's how:
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
@@ -83,6 +79,10 @@ Here's how:
 
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
  You can also learn more about how to clean up your profile, and how to respond to unknown friend requests and followers by clicking on the appropriate option.
@@ -90,6 +90,10 @@ Here's how:
  To return to the main menu and explore other privacy settings, simply click on**Privacy Center home** , go to your preferred category and click**Read more** .
 
  Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why You Should Use Facebook's Privacy Center
 
@@ -102,10 +106,6 @@ Here's how:
  Ads is another important category to watch if you're concerned about ad targeting. Together, they form three of the most important privacy concerns that users have always had with Meta apps, especially Facebook.
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Protect Your Privacy
 
@@ -128,22 +128,15 @@ Here's how:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-exclusive-list-11-pioneering-cost-free-online-title-makers-for-yt/"><u>[New] In 2024, Exclusive List 11 Pioneering, Cost-Free Online Title Makers for YT</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-perfect-playlist-placement-techniques-for-youtube/"><u>[Updated] 2024 Approved Perfect Playlist Placement Techniques for YouTube</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-hands-free-tricks-capturing-gotomeetings-on-the-fly/"><u>[Updated] Hands-Free Tricks Capturing GoToMeetings on the Fly</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-merge-soundtracks-and-cinematography-in-premiere-pro/"><u>[Updated] Merge Soundtracks and Cinematography in Premiere Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-steps-to-reduce-friend-requests-on-social-media/"><u>5 Steps to Reduce Friend Requests on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-compreayers-blueprint-to-fb-image-security/"><u>A Compreayer's Blueprint to Fb Image Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-different-day-without-daily-updates-on-fb/"><u>A Different Day Without Daily Updates on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-erasing-your-history-on-facebook-watch/"><u>A Guide to Erasing Your History on Facebook Watch</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-world-within-deciphering-the-metaverse-concept/"><u>A New World Within: Deciphering the Metaverse Concept</u></a></li>
-<li><a href="https://facebook.techidaily.com/cementing-value-in-the-flux-the-role-of-stablecoins-in-crypto/"><u>Cementing Value in the Flux: The Role of Stablecoins in Crypto</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-change-up-how-social-media-redefined-interactions-fourfold/"><u>Connectivity Change-Up: How Social Media Redefined Interactions Fourfold</u></a></li>
-<li><a href="https://facebook.techidaily.com/convergent-cultures-the-alliance-of-fb-and-insta/"><u>Convergent Cultures: The Alliance of FB and Insta</u></a></li>
-<li><a href="https://techtrends.techidaily.com/enhancing-gameplay-fluidity-in-diablo-ii-reborn-a-comprehensive-guide-to-increasing-fps-performance/"><u>Enhancing Gameplay Fluidity in Diablo II Reborn: A Comprehensive Guide to Increasing FPS Performance</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-install-the-latest-geforce-210-graphics-driver-update-on-your-windows-10-device/"><u>How to Install the Latest GeForce 210 Graphics Driver Update on Your Windows 10 Device</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-update-your-logitech-c92e-webcam-driver-for-windows-versions-11-10-and-8/"><u>How to Update Your Logitech C92e Webcam Driver for Windows Versions: 11, 10 and 8</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-veiled-viewer-in-the-social-sphere/"><u>[New] 2024 Approved Veiled Viewer in the Social Sphere</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-selecting-the-best-free-melodies-for-your-youtube-video/"><u>[Updated] In 2024, Selecting the Best Free Melodies for Your YouTube Video</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-live-stream-your-google-meet-on-youtube-for-2024/"><u>[Updated] Step-By-Step Guide to Live Stream Your Google Meet on YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-chat-on-the-horizon-for-facebook-users/"><u>Enhanced Chat on the Horizon for Facebook Users</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/extensive-breakdown-what-the-google-podcast-app-means-for-you-for-2024/"><u>Extensive Breakdown What the Google Podcast App Means for You for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes.</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475955510-iphone-qr-scanner-issues-discover-these-5-quick-fixes/"><u>IPhone QR Scanner Issues? Discover These 5 Quick Fixes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-web-searches-post-fbcta-implementation/"><u>Navigating Web Searches Post-FBCTA Implementation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-tecno-camon-20-premier-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Tecno Camon 20 Premier 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-scrubbing-facebooks-past-mistakes/"><u>The Ultimate Guide to Scrubbing Facebook's Past Mistakes</u></a></li>
 </ul></div>
 

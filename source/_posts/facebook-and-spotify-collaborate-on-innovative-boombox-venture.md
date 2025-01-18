@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2025-01-02T01:47:41.063Z
-updated: 2025-01-05T20:09:16.210Z
+date: 2025-01-14T16:28:57.626Z
+updated: 2025-01-18T16:18:45.241Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook and Spotify Team up on Project Boombox
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -67,20 +67,16 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-transform-your-images-basic-tips-with-lunapic/"><u>[Updated] Transform Your Images Basic Tips with LunaPic</u></a></li>
-<li><a href="https://win-answers.techidaily.com/assessing-the-return-of-apple-tv/"><u>Assessing the Return of Apple TV</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exploring-the-depth-of-computing-with-toms-gear-insights/"><u>Exploring the Depth of Computing with Tom's Gear Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-leverage-symbolic-meanings-in-social-media-conversations/"><u>How to Leverage Symbolic Meanings in Social Media Conversations</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-recover-invisible-airpods-using-the-find-my-feature-a-step-by-step-guide/"><u>How to Recover Invisible AirPods Using the 'Find My' Feature: A Step-by-Step Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-infinix-note-30-pro-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Infinix Note 30 Pro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-time-loop-video-recovery-explained/"><u>In 2024, YouTube's Time Loop Video Recovery Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagramfacebook-support-a-short-lived-meta-drops-trip/"><u>Instagram/Facebook Support: A Short-Lived Meta Drops Trip</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-password-alteration-on-your-favorite-social-platform/"><u>Mastering Password Alteration on Your Favorite Social Platform</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-combine-edit-and-share-best-video-collage-apps-for-iphone-and-ipad/"><u>New 2024 Approved Combine, Edit, and Share Best Video Collage Apps for iPhone and iPad</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-interpretations-what-does-facebooks-pages-labeling-change-imply/"><u>New Interpretations: What Does Facebook's Pages Labeling Change Imply?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-future-tracing-a-possible-rebrand/"><u>Social Network's Future: Tracing a Possible Rebrand</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sphere-shift-new-title-for-facebook-employees/"><u>Social Sphere Shift: New Title for Facebook Employees</u></a></li>
-<li><a href="https://driver-install.techidaily.com/taming-the-beast-resolving-winxps-network-woes/"><u>Taming the Beast: Resolving WinXP's Network Woes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-reason-why-apple-forgoes-metaverse-quest/"><u>Unveiling the Reason: Why Apple Forgoes Metaverse Quest</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-infuse-ingenuity-and-fun-make-memes-with-kapwing/"><u>[New] Infuse Ingenuity & Fun – Make Memes with Kapwing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transformative-talk-20-words-to-bolster-marketing-success/"><u>[New] Transformative Talk 20 Words to Bolster Marketing Success</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-craft-a-compelling-metaverse-presence-with-these-tools/"><u>2024 Approved Craft a Compelling Metaverse Presence with These Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-harmonizing-chapters-the-secrets-to-seamless-inshot-edits/"><u>2024 Approved Harmonizing Chapters The Secrets to Seamless Inshot Edits</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-metaverse-marketing-techniques/"><u>2024 Approved Mastering Metaverse Marketing Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-and-reliable-philips-hf3520-timer-comprehensive-product-analysis/"><u>Affordable & Reliable Philips HF3520 Timer - Comprehensive Product Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaining-access-tips-for-private-fb-profile-insight/"><u>Gaining Access: Tips for Private FB Profile Insight</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/move-beyond-ms-phone-link-with-our-exceptional-mobile-connectivity-app/"><u>Move Beyond MS Phone Link with Our Exceptional Mobile Connectivity App</u></a></li>
+<li><a href="https://facebook.techidaily.com/preparing-for-facebooks-upcoming-challenges/"><u>Preparing For Facebook's Upcoming Challenges</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pervasive-negativity-a-look-at-online-platform-animosity/"><u>The Pervasive Negativity: A Look at Online Platform Animosity</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-cost-free-apps-mastering-social-media-management/"><u>Top 10 Cost-Free Apps: Mastering Social Media Management</u></a></li>
 </ul></div>
 

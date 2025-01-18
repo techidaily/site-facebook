@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2025-01-09T16:56:04.180Z
-updated: 2025-01-12T18:38:38.461Z
+date: 2025-01-16T16:19:07.083Z
+updated: 2025-01-18T16:17:06.280Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Germany Bans Facebook From Collecting WhatsApp Data
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -81,22 +81,19 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/digital-dormancy-why-instagram-promotes-online-intervals/"><u>'Digital Dormancy': Why Instagram Promotes Online Intervals</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-inshot-showdown-expert-review-of-best-editing-software/"><u>[New] InShot Showdown Expert Review of Best Editing Software</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs/"><u>[New] Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1725286451037-dvdiso/"><u>効果的にDVDを書き込むためのISO圧縮技術と実践方法</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-facebook-gesture-interface-value/"><u>Deciphering Facebook Gesture Interface Value</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-mechanism-behind-my-fb-promos/"><u>Decoding the Mechanism Behind My FB Promos</u></a></li>
-<li><a href="https://facebook.techidaily.com/designing-visuals-that-stand-out-in-the-fb-crowd/"><u>Designing Visuals That Stand Out in the Fb Crowd</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-domains-shift-from-facebook-to-the-next-chapter-meta/"><u>Digital Domains Shift: From Facebook to the Next Chapter, Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/diminish-personalized-online-commerce-in-digital-communities/"><u>Diminish Personalized Online Commerce in Digital Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/discloser-of-confidences-unmasking-fbs-informant/"><u>Discloser of Confidences: Unmasking FB’s Informant</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-tactics-to-decrease-your-digital-socialization-cycle/"><u>Effective Tactics to Decrease Your Digital Socialization Cycle</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-12-pro-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone 12 Pro</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Infinix Smart 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/mastering-the-art-of-windows-booting-processes-complete-insights-and-essential-tips/"><u>Mastering the Art of Windows Booting Processes: Complete Insights & Essential Tips</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/survival-tips-from-ai-can-chatgpt-help-you-escape-the-wild/"><u>Survival Tips From AI: Can ChatGPT Help You Escape the Wild?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/universal-vmix-adapter-for-2024/"><u>Universal VMix Adapter for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ultimate-rankings-of-top-free-cross-platform-video-calls-iphoneandroid/"><u>[New] 2024 Approved Ultimate Rankings of Top Free Cross-Platform Video Calls (iPhone/Android)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ultivating-a-unique-vibe-in-your-own-mukbang-content-for-2024/"><u>[New] Cultivating a Unique Vibe in Your Own Mukbang Content for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/best-desktop-computers/"><u>Best Desktop Computers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-recordings-doing-without-a-microphone/"><u>Elevate Your Recordings Doing Without a Microphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-proposed-features-additions-of-reels-and-rooms-to-stories/"><u>Facebook's Proposed Features: Additions of Reels & Rooms to Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-locations-for-aspiring-freelancers/"><u>Ideal Locations for Aspiring Freelancers</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-messenger-adding-new-contacts-step-by-step/"><u>Mastering Facebook Messenger: Adding New Contacts Step-by-Step</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-windows-11-a-step-by-step-guide-to-overcoming-hosted-network-issues/"><u>Mastering Windows 11: A Step-by-Step Guide to Overcoming Hosted Network Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-without-a-mobile-deactivating-fb-2fa/"><u>Reactivating Without a Mobile: Deactivating FB 2FA</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-streaming-on-youtube-with-an-introductory-obs-course/"><u>Start Streaming on Youtube with an Introductory OBS Course</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/time-saving-tech-10-innovative-ai-pdf-extensions/"><u>Time-Saving Tech: 10 Innovative AI PDF Extensions</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-vivo-s17-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Vivo S17 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-does-meta-forsake-facial-recognition-on-facebook-platform/"><u>Why Does Meta Forsake Facial Recognition on Facebook Platform?</u></a></li>
 </ul></div>
 

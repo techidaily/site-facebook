@@ -1,7 +1,7 @@
 ---
 title: Deciphering Why Telegram Became a Lifeline During Facebook Blackout
-date: 2024-07-29T07:37:54.326Z
-updated: 2024-07-30T07:37:54.326Z
+date: 2025-01-11T16:16:55.452Z
+updated: 2025-01-18T16:16:53.952Z
 tags:
   - facebook
 categories:
@@ -22,22 +22,9 @@ thumbnail: https://thmb.techidaily.com/1b75e252ed41838e8d5bba451afdfa23d376fd039
  But how and why did it reap the rewards so spectacularly? Let's take a look.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Did Telegram Gain So Many Users in One Day?
 
  On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
@@ -48,15 +35,13 @@ Key features:
 
 But why did Telegram benefit so much more than any of its rivals?
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Did People Choose Telegram When WhatsApp Went Down?
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
@@ -65,8 +50,9 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Important Is This for Telegram?
 
  Most significantly for Telegram, Facebook's downtime and the rush of refugees that followed marks another major shift in the way people view the app as a service.
@@ -80,9 +66,9 @@ But why did Telegram benefit so much more than any of its rivals?
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -96,31 +82,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can Telegram Continue Its Momentous Rise?
 
  While 70 million new users in a day is impressive, it would be folly to believe that they will all continue to use the service now that WhatsApp and Messenger are back online.
 
  The critical thing from Telegram's perspective is that the app is now installed on more people's handsets than ever before. The company now faces the challenge of retaining them as active users. Only time will tell whether that actually happens.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +104,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unparalleled-top-10-free-image-archiving-hubs-pics-safe-and-sound/"><u>[New] In 2024, Unparalleled Top 10 Free Image Archiving Hubs, Pics Safe and Sound</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-iosandroid-tips-attaching-audio-posters-on-facebook/"><u>[New] IOS/Android Tips Attaching Audio Posters on Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-secure-and-ethical-methods-for-capturing-chat-calls-for-2024/"><u>[New] Secure and Ethical Methods for Capturing Chat Calls for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-top-list-of-video-recording-apps-for-iphone-for-2024/"><u>[New] Top List of Video Recording Apps for iPhone for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-quickstart-guide-key-elements-of-tiktok-macos/"><u>[Updated] In 2024, Quickstart Guide Key Elements of TikTok (macOS)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-non-youtube-havens-for-unparalleled-video-streaming/"><u>[Updated] Non-Youtube Havens for Unparalleled Video Streaming</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-live-tv-streaming-guide-the-best-ten-and-their-comparison/"><u>2024 Approved Live TV Streaming Guide The Best Ten and Their Comparison</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/8-revolutionary-ai-assistants-transforming-content-writing-efficiency/"><u>8 Revolutionary AI Assistants Transforming Content Writing Efficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-videos-not-playing-10-ways-to-fix-it/"><u>Facebook Videos Not Playing? 10 Ways to Fix It</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/future-proof-console-buying-guide-best-picks/"><u>Future-Proof Console Buying Guide - Best Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-facebook-image-techniques-for-personal-brands/"><u>Innovative Facebook Image Techniques for Personal Brands</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-on-facebook-ray-bans-stories-explained-and-costs-included/"><u>New on Facebook: Ray-Bans Stories Explained and Costs Included</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-tactics-for-an-outstanding-online-presence-on-fb/"><u>Step-by-Step Tactics for an Outstanding Online Presence on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-an-avatar-on-your-facebook-profile-picture/"><u>Step-by-Step: An Avatar on Your Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emerging-world-of-virtual-socializing-why-worry/"><u>The Emerging World of Virtual Socializing - Why Worry?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Delay in WhatsApp's May 15 Policy Adjustment Announcement
-date: 2024-07-29T07:38:54.861Z
-updated: 2024-07-30T07:38:54.861Z
+date: 2025-01-17T16:01:31.522Z
+updated: 2025-01-18T16:09:20.332Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
  In January this year, WhatsApp announced a controversial new privacy policy, which would allow the company to share data with Facebook. The policy initially stated that if one did not accept the changes, their WhatsApp account would be eventually deleted.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## WhatsApp's New Privacy Policy Has Been Heavily Criticized
 
  WhatsApp has updated its privacy policy many times in the past. However, this is the first time it announced that it would be limiting and deleting accounts that do not accept the changes.
@@ -35,36 +36,36 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
  For the past few weeks, WhatsApp has been showing a notification inside its app to provide more information about its privacy policy. It is also sending reminders if you have not accepted its new privacy policy. Eventually, if you don't accept the privacy policy, the reminder from WhatsApp will become persistent.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your WhatsApp Account Functionality Will Be Limited
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once a persistent reminder is shown, the functionality of your WhatsApp account will be limited. Initially, you'll only lose access to your chat list. You can, however, still answer incoming video or voice calls. You'll also be able to read and respond to messages or call back a missed voice or video call via notifications. In an[FAQ](https://faq.whatsapp.com/general/security-and-privacy/what-happens-when-our-terms-and-privacy-policy-updates-take-effect/?lang=en) , WhatsApp says the limitations will not apply to everyone at the same time.
 
  A few weeks after your WhatsApp account's functionality is limited, you will lose the ability to receive incoming calls and messages. At this point, your WhatsApp account will basically be of no use as you won't be able to send or receive messages.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Inactive WhatsApp Accounts Are Deleted After 120 Days
 
  WhatsApp won't delete your account if you don't accept its new privacy policy, but it does delete all inactive accounts after 120 days. This means once the functionality of your WhatsApp account is limited and you're unable to use the app to send messages, WhatsApp will delete your account after 120 days.
 
  If you are not comfortable with WhatsApp's new privacy policy, you can check some[WhatsApp alternatives that do not share data with Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/) .
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,4 +74,23 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-unleashing-androids-audio-potential-mastering-the-art-of-ringtones-and-sounds-for-2024/"><u>[New] Unleashing Android's Audio Potential Mastering the Art of Ringtones & Sounds for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-budget-analysis-for-youtube-promotion-for-2024/"><u>[Updated] Budget Analysis for YouTube Promotion for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-most-admired-iphone-based-podcast-platforms/"><u>[Updated] In 2024, Most Admired iPhone-Based Podcast Platforms</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-sdr-to-hdri-pioneers-expert-tips-and-techniques/"><u>2024 Approved SDR to HDRI Pioneers Expert Tips and Techniques</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-poco-x5-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Poco X5 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-analysis-of-the-cost-effective-tp-skylink-archer-a6-with-ac1200-connectivity/"><u>Comprehensive Analysis of the Cost-Effective TP-Skylink Archer A6 with AC1200 Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-music-anywhere-spotify-miniplayer-within-the-facebook-app/"><u>Embrace Music Anywhere: Spotify Miniplayer Within the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-meta-a-revolution-in-social-media-branding/"><u>Facebook Unveils Meta: A Revolution in Social Media Branding</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-on-iphone-7-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email On iPhone 7? Heres the Best Fixes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-the-1-to-5-of-windows-free-screen-capture-apps/"><u>In 2024, Unveiling the #1 to #5 of Windows Free Screen Capture Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>In 2024, Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/mysterious-mingle-fb-friends-veil-techniques/"><u>Mysterious Mingle: FB Friends Veil Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-users-whatsapp-clashes-with-government-law/"><u>Protecting Users, WhatsApp Clashes with Government Law</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-workforce-understanding-facebooks-metamates/"><u>The New Workforce: Understanding Facebook’s ‘Metamates’</u></a></li>
+<li><a href="https://facebook.techidaily.com/to-connect-or-not-the-pros-and-cons-of-facebook-powered-account-access/"><u>To Connect or Not: The Pros & Cons of Facebook-Powered Account Access</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/us-court-battle-ymtc-vs-micron-over-intellectual-property-rights-alleging-infringement-of-eleven-patents-from-chinas-memory-sector/"><u>US Court Battle: YMTC Vs. Micron Over Intellectual Property Rights, Alleging Infringement of Eleven Patents From China's Memory Sector</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Deciphering PhotoDNA's Role in Digital Security
-date: 2024-07-29T07:35:00.992Z
-updated: 2024-07-30T07:35:00.992Z
+date: 2025-01-12T16:18:28.340Z
+updated: 2025-01-18T16:08:42.630Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -37,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Does PhotoDNA Work?
 
  When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
@@ -58,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -73,14 +72,16 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
@@ -89,8 +90,9 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does PhotoDNA Make the Internet Safer?
 
  The Microsoft-developed service is undoubtedly an essential tool. PhotoDNA plays a crucial role in preventing these images from spreading and may even help to help at-risk children.
@@ -99,14 +101,11 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,4 +114,19 @@ thumbnail: https://thmb.techidaily.com/16e517e86ce5511ef20be02a34a06ee211f62f0d8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-hone-your-skills-how-to-seamlessly-post-videos-to-instagram-via-desktop/"><u>[New] 2024 Approved Hone Your Skills How to Seamlessly Post Videos to Instagram via Desktop</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-your-digital-past-with-fbs-preview-feature/"><u>[New] Navigating Your Digital Past with FB's Preview Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-facebook-true-subscriber-decline/"><u>Exposing Facebook: True Subscriber Decline</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-fb-shared-my-personal-details-unintentionally/"><u>Has FB Shared My Personal Details Unintentionally?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-htc-vives-diving-into-depth-a-vr-experience-review/"><u>In 2024, HTC Vive's Diving Into Depth A VR Experience Review</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-interruption-a-day-without-social-media/"><u>Internet Interruption: A Day Without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-the-unexpected-consequence-for-facebook/"><u>IOS 14.5: The Unexpected Consequence for Facebook?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1723862767750-lgs-best-34-ultragear-monitor-qhd-resolution-and-g-sync-tech-now-only-549-on-amazon/"><u>LG's Best: 34 Ultragear Monitor, QHD Resolution & G-Sync Tech - Now Only $549 on Amazon</u></a></li>
+<li><a href="https://extra-information.techidaily.com/superior-visual-treatment-applying-filters-to-videos/"><u>Superior Visual Treatment Applying Filters to Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-senior-friendly-networking-sites/"><u>Top 5 Senior-Friendly Networking Sites</u></a></li>
+</ul></div>
 

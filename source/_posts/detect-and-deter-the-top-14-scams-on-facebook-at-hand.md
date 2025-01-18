@@ -1,7 +1,7 @@
 ---
 title: "Detect and Deter: The Top 14 Scams on Facebook at Hand"
-date: 2024-07-29T07:38:08.221Z
-updated: 2024-07-30T07:38:08.221Z
+date: 2025-01-16T16:15:25.731Z
+updated: 2025-01-18T16:05:38.568Z
 tags:
   - facebook
 categories:
@@ -22,18 +22,15 @@ thumbnail: https://thmb.techidaily.com/57a4dd5881ee89a7ccb05cda2bbc7d01f9c197463
  We've all seen this one a little too many times. A scam claiming that you've won something. Sometimes they pretend to be big brands that say you've been chosen as the winner of a new iPhone, a holiday, or a luxury hotel-stay in one of the world's best resorts. If what they're claiming you won sounds too good to be true, it probably is!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Friend Requests From Duplicate Accounts
 
  If you've received a friend request from someone you know is your Facebook friend already, then it's most certainly a scam. Scammers are replicating accounts and pretending to be someone in your list to get access to your activity online.
 
  Why they're doing it? To make you trust them, so they can send you links or content that contains viruses.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## 3\. Facebook Marketplace Scams
 
  With so many of us utilizing Facebook Marketplace for our sales and purchases, there are scams that are affecting the way we trade and buy things online.
@@ -49,27 +46,18 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Facebook Job Advertisement Scams
 
  Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Online Shopping Scams
 
@@ -77,16 +65,13 @@ Key features:
 
  While businesses use Facebook to promote their products and services, scammy businesses use it just as much to sell fake brands and counterfeit goods.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## 7\. Charity Scams
 
  This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Scams Posing As Official Pages
 
@@ -94,10 +79,11 @@ No advertising on the website.
 
  Likewise, if you've seen posts posing as legitimate organizations offering help to citizens by offering housing, beware. These scams are circulating to take money from unsuspecting individuals who are looking for government assistance.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![housing scam screenshot from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/housing-scam.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 9\. Lottery Scams on Facebook
 
@@ -124,36 +110,28 @@ No advertising on the website.
  If you are being offered loans through Facebook (either via message or via advertisements claiming low interest rates), you should be careful. Facebook isn't a platform where you can look for low-interest loans, so if someone is offering you money, it's likely because they want to take your money.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 13\. Download/Update Facebook App Request Scams
 
  If you've received a link from a site that looks legitimate asking you for access to your Facebook account, they are trying to scam you by getting personal information about you so that they can send spam.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook app scam screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(55).jpg)
 
 ## 14\. Gift Voucher Scams
 
  We are all in for a bargain, so by the time the holidays come along, it's no wonder that you might see some scams out there claiming to save you money by giving you discounted vouchers. All these scams want is your details so they can send you spam or malicious software.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Know What Facebook Scams Are Out There
 
  Even the most tech-savvy, on-guard person can fall victim to one of these scams. They're currently on Facebook, but that doesn't mean they aren't happening elsewhere. The key to avoiding such scams is to stay alert, refrain from being impulsive, and double-check unknown links.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +140,26 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-enhance-content-categorization-top-picks-for-the-7-cheapest-youtube-taggification-apps/"><u>[New] In 2024, Enhance Content Categorization Top Picks for the 7 Cheapest Youtube Taggification Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-outstanding-films-not-on-mainstream-lists/"><u>[Updated] Outstanding Films Not on Mainstream Lists</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-harmonizing-hues-the-filmmakers-palette-guide/"><u>2024 Approved Harmonizing Hues The Filmmaker's Palette Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/do-xbox-series-xs-gaming-systems-include-an-integrated-optical-disc-player-for-movies-and-games/"><u>Do Xbox Series X|S Gaming Systems Include an Integrated Optical Disc Player for Movies and Games?</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-authenticity-over-alike-10-compelling-motivations-for-leaving-facebook/"><u>Embracing Authenticity Over Alike - 10 Compelling Motivations for Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/eradicating-politics-and-religion-from-social-networking-sites/"><u>Eradicating Politics & Religion From Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-your-facebook-been-hacked-how-to-tell-and-fix-it/"><u>Has Your Facebook Been Hacked? How to Tell (and Fix It)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-honor-magic-6-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-community.techidaily.com/les-plus-performants-logiciels-de-montage-video-en-faveur-des-utilisateurs-dordinateur-comparatif-complet/"><u>Les Plus Performants Logiciels De Montage Vidéo en Faveur Des Utilisateurs D'Ordinateur - Comparatif Complet</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-multimedia-conversions-transform-video-and-audio-files-with-these-techniques/"><u>Mastering Multimedia Conversions: Transform Video & Audio Files with These Techniques</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-windows-1011-easy-bluetooth-driver-reinstalls/"><u>Quick Windows 10/11: Easy Bluetooth Driver Reinstalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-deleted-facebook-content-instructions-for-success/"><u>Reclaiming Deleted Facebook Content: Instructions for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Report: Most COVID-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/steps-for-gradual-audio-dimming-with-lumafusion-for-2024/"><u>Steps for Gradual Audio Dimming with Lumafusion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-group-management-on-facebook-platforms/"><u>Streamlining Group Management on Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-taking-a-social-media-hiatus-as-suggested-by-instagram/"><u>The Case for Taking a Social Media Hiatus as Suggested by Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-of-social-media-duplication-techniques/"><u>The Dark Side of Social Media Duplication Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-recommended-facebook-portable-devices/"><u>Top 5 Recommended Facebook Portable Devices</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-2024-webcams-optimized-for-live-streaming-in-depth-analysis-by-tech-experts-zdnet/"><u>Top-Rated 2024 Webcams Optimized for Live Streaming - In-Depth Analysis by Tech Experts | ZDNet</u></a></li>
+</ul></div>
 

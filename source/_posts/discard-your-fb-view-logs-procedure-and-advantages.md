@@ -1,7 +1,7 @@
 ---
 title: Discard Your FB View Logs - Procedure & Advantages
-date: 2024-07-29T07:36:11.497Z
-updated: 2024-07-30T07:36:11.497Z
+date: 2025-01-13T16:06:44.549Z
+updated: 2025-01-18T16:15:13.325Z
 tags:
   - facebook
 categories:
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/8c3b13a3ac83a5d3d00093c2a17a7909556b01cc1
 * [How to Delete Your Facebook Watch History](#how-to-delete-your-facebook-watch-history)
 * [Why You Should Delete Your Facebook Watch History](#why-you-should-delete-your-facebook-watch-history)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Deleting your Facebook watch history allows you to stay in control of your digital footprint and keep your interests private.
@@ -32,8 +29,9 @@ thumbnail: https://thmb.techidaily.com/8c3b13a3ac83a5d3d00093c2a17a7909556b01cc1
  Managing your Facebook watched videos history is an integral part of staying in control of your digital footprint. Because no one needs to know what videos you watch on Facebook. And if you want to protect your privacy, you can delete your Facebook watch history completely.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Delete Your Facebook Watch History
 
  You can delete your Facebook video history on whatever device you use to access Facebook. You just need to access your Activity log.
@@ -46,9 +44,17 @@ thumbnail: https://thmb.techidaily.com/8c3b13a3ac83a5d3d00093c2a17a7909556b01cc1
 
 ![screenshot showing facebook profile page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-page-on-android.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
 
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
 
@@ -61,9 +67,6 @@ Close
 5. Tap**Clear video watch history** .
 6. Confirm your action by tapping**Clear** on the confirmation prompt.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Delete Your Facebook Watch History on the Web
 
  If you access Facebook using the website, you can clear your video watch history by following these steps:
@@ -71,21 +74,15 @@ Close
 1. ![clear video watch history on the facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/clear-video-watch-history-pc-screenshot.jpg)  
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 2. Click on the**three-dot icon** , then click**Activity log** .
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Clear Your Live Video History on the Web
 
  Facebook keeps your Live video history separate from that of other videos. If you'd like to clear that as well, follow these steps:
@@ -95,14 +92,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 3. Click on**Live videos you've watched** from the left sidebar.
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why You Should Delete Your Facebook Watch History
 
  You might be wondering why you should bother deleting your Facebook watch history. After all, it's just a record of what you watched, right? Well, not exactly. Your Facebook watch history reveals a lot about your interests, preferences, habits, and opinions. And this information is accessible at a glance to anyone who happens to[check your Facebook watch history](https://www.makeuseof.com/how-to-find-recently-watched-videos-facebook) on your device.
@@ -113,14 +113,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Whether you should clear your Facebook watch history is a personal decision that comes down to your individual needs. If privacy and control are paramount, clearing your watch history is a good way to manage your digital footprint. If you value relevant recommendations and convenient access to past videos, keeping your history might be more beneficial.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +126,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-5-best-igtv-editor-apps-for-improved-layouts/"><u>[Updated] 5 Best IGTV Editor Apps for Improved Layouts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-the-listening-experience-with-garageband-edits-for-2024/"><u>[Updated] Elevate the Listening Experience with GarageBand Edits for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimizing-close-up-views-on-google-meet/"><u>[Updated] Optimizing Close-Up Views on Google Meet</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-must-watch-alternatives-to-top-films/"><u>2023'S Must-Watch Alternatives to Top Films</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevate-your-website-analytics-and-conversions-using-the-advanced-technology-of-cookiebot/"><u>Elevate Your Website Analytics and Conversions Using the Advanced Technology of Cookiebot</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-arbitral-body-and-its-decision-making-process/"><u>FB's Arbitral Body and Its Decision-Making Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-shield-yourself-online-7-steps-for-enhanced-fb-security/"><u>How to Shield Yourself Online: 7 Steps for Enhanced FB Security</u></a></li>
+<li><a href="https://article-posts.techidaily.com/iconic-stock-photographs-meme-lives-and-histories/"><u>Iconic Stock Photographs Meme Lives and Histories</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/mastering-disk-recovery-fixing-unallocated-spaces-on-windows-11-systems/"><u>Mastering Disk Recovery: Fixing Unallocated Spaces on Windows 11 Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ating-the-short-form-space-youtubes-bite-vs-tiktok-written-by-a-marketing-analyst-with-expertise-in-social-media-trends-and-platforms/"><u>Navigating the Short-Form Space YouTube's Bite Vs. TikTok' Written by a Marketing Analyst with Expertise in Social Media Trends and Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/newly-discovered-ai-technique-mimics-text-from-images/"><u>Newly Discovered AI Technique Mimics Text From Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-meets-courtship-setting-up-on-facebook/"><u>Social Networking Meets Courtship: Setting Up on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-behind-a-users-hidden-status-in-chat-apps/"><u>The Enigma Behind a User's Hidden Status in Chat Apps</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-guide-to-video-blur-effects-on-iphone-and-android-for-2024/"><u>The Ultimate Guide to Video Blur Effects on iPhone and Android for 2024</u></a></li>
+</ul></div>
 

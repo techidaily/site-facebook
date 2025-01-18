@@ -1,7 +1,7 @@
 ---
 title: Deciphering Concealed Expressions in Messenger Correspondence
-date: 2024-07-29T07:37:48.776Z
-updated: 2024-07-30T07:37:48.776Z
+date: 2025-01-16T16:00:45.092Z
+updated: 2025-01-18T16:08:08.301Z
 tags:
   - facebook
 categories:
@@ -19,15 +19,16 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
  We’ll show you how to see hidden messages on Facebook Messenger, plus give tips on controlling how you see them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to See Hidden Messages on Facebook Messenger
 
  The menu to access your hidden Facebook messages is out of sight, but easy to open.
 
  To access it on desktop, open your message list by clicking the Messenger icon at the top-right of Facebook, then slick**See all in Messenger** at the bottom of the list. On the resulting page, click the three-dot button at the top-left of the screen and choose**Message requests** . This will change the sidebar view to show requests instead of your active conversations.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Messenger Desktop Message Requests](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Desktop-Message-Requests.jpg)
 
  To see your hidden messages in the mobile Messenger app, tap the hamburger menu at the top-left and choose**Message requests** from the resulting menu. We’ll use the desktop version to illustrate below, but the same applies to the mobile apps too.
@@ -40,19 +41,24 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
 ![Messenger Requests Main View](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Requests-Main-View.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Until you reply, the other person can’t see if you’ve read their message or when you’re online on Messenger. Once you respond, Messenger will move the chat to your main inbox and treat it like any other. That person will then be able to see your online status, know that you’ve read their messages[via Messenger’s icons](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/) , and can call you.
 
  For messages you aren’t interested in, click the**I don’t want to hear from \[name\]** link above the reply box.
 
 ![Messenger Stop Hearing From Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Stop-Hearing-From-Person.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You’ll then get a choice to**Delete chat** (good for cleaning up your request inbox) or**Block** the person (useful if they won’t stop messaging you). Either way, the other person won’t be aware you’ve done this.
 
  To delete many requests at once, click the**Pencil** icon above the message list to show checkboxes next to all threads. Check the boxes for each one you want to erase, then choose**Delete** to remove them.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Control Which Facebook Messages Go to Requests
 
  If this was your first time digging into your message requests box, you might be surprised how much is there. If you find that too many many messages are being filtered, or messages that should be caught in the filter are going to your primary inbox, you can adjust how Messenger deals with these.
@@ -60,6 +66,10 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
  To do so on desktop, click the three-dot menu at the top-left of the chat page and choose**Preferences** . In this menu, click**Manage message delivery** , which will bring you to[the**Privacy** page](https://www.facebook.com/settings/?tab=privacy) of Facebook’s main Settings menu. The relevant settings are in the**How You Get Message Requests** section at the bottom.
 
 ![Facebook Message Request Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Message-Request-Delivery.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To see this on the mobile Messenger app, slide out the left menu, tap the**Settings** gear, and go to**Privacy & safety > Message delivery** .
 
@@ -72,31 +82,23 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Other People: Probably Spam
 
  For the**Other people** section, you can choose to have messages go to**Message requests** , or**Don’t receive requests** to block them.**Others on Facebook** includes anyone you don’t have a connection with.
 
  Since Messenger now works across Facebook and Instagram, the**Accounts on Instagram** toggle controls people reaching out from the other app. If you’re checking these controls in the mobile Messenger app, tap**Add your Instagram account** to link your Facebook and Instagram accounts for a more seamless experience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![01a Messenger Settings Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01a-Messenger-Settings-Menu.jpg)
 
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to See Your Archived Messages on Messenger
 
  Archiving chats is one of[Messenger’s lesser-known but useful features](https://www.makeuseof.com/useful-facebook-messenger-features/) . When you archive a conversation, it’s removed from your inbox but is still active. Next time someone sends a message in the chat, it will reappear in your main list.
@@ -115,14 +117,12 @@ Close
 
  This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Seek and Find Hidden Messages on Facebook Messenger
 
  We’ve walked through all the ways to find hidden messages in Messenger, along with how to control what messages you receive.
@@ -131,14 +131,11 @@ Close
 
  Meanwhile, if you love Messenger, there’s a lot more to discover about it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +144,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-premier-tools-to-scrub-tiktok-brand-images/"><u>[New] 2024 Approved Premier Tools to Scrub TikTok Brand Images</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-easytech-snapshot-quick-rundown/"><u>[Updated] 2024 Approved EasyTech Snapshot Quick Rundown</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-high-definition-excellence-leading-the-recording-race/"><u>[Updated] High Definition Excellence Leading the Recording Race</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-universe-explored-three-underlying-fears/"><u>Facebook Universe Explored: Three Underlying Fears</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-become-a-social-media-influencer/"><u>How to Become a Social Media Influencer</u></a></li>
+<li><a href="https://network-issues.techidaily.com/how-to-troubleshoot-and-fix-the-black-screen-problem-in-windows-10-following-a-system-upgrade/"><u>How to Troubleshoot and Fix the Black Screen Problem in Windows 10 Following a System Upgrade</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-precision-speed-control-for-elite-pc-users/"><u>In 2024, Precision Speed Control for Elite PC Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategic-moves-spark-concern-over-european-tech-titans-future/"><u>Meta’s Strategic Moves Spark Concern Over European Tech Titans' Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-experiment-with-engaging-information-posts/"><u>Social Networks: Experiment with Engaging Information Posts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/stepwise-journey-becoming-a-pro-with-audacity-for-recording-for-2024/"><u>Stepwise Journey Becoming a Pro with Audacity for Recording for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplug-and-recharge-steps-to-drop-facebook/"><u>Unplug and Recharge: Steps to Drop Facebook</u></a></li>
+</ul></div>
 

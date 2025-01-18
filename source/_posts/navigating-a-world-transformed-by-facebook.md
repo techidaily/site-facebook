@@ -1,7 +1,7 @@
 ---
 title: Navigating a World Transformed by Facebook
-date: 2025-01-03T04:16:35.341Z
-updated: 2025-01-06T05:21:47.170Z
+date: 2025-01-13T16:07:37.756Z
+updated: 2025-01-18T16:01:09.652Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 ![a group of friends sitting on a dock](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-group-of-friends-sitting-on-a-dock.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Although Facebook wasn't the first social media platform to bring people together, it is, by far, the most successful. With Facebook, many people can keep their circles updated with the events in their lives, no matter how near or far they are.
 
  Facebook also made it easy to share memories by letting users post photos and videos and tag people in them. So it allowed people who've met and interacted in real life to keep an online repository of their shared memories, making it easier to reconnect with these people.
@@ -48,12 +44,16 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 ![an old photo of two kids playing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/an-old-photo-of-two-kids-playing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Aside from bringing people closer together, Facebook also lets us connect across time. You can easily find friends you've met over 20 years ago and have since lost contact with on the platform.
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 So, what are some of the biggest things that affected us negatively?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Misinformation on Facebook Deceived the Masses
@@ -88,13 +88,13 @@ So, what are some of the biggest things that affected us negatively?
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
@@ -131,15 +131,18 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-bright-idea-boost-your-videos-impact-on-youtube/"><u>[Updated] In 2024, A Bright Idea Boost Your Video's Impact on YouTube</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-brisk-blueprint-to-crafting-google-image-mosaics/"><u>2024 Approved The Brisk Blueprint to Crafting Google Image Mosaics</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153853041-connect-with-melodies-enjoy-spotifys-mini-panel-on-facebook/"><u>Connect with Melodies: Enjoy Spotify's Mini-Panel on Facebook!</u></a></li>
-<li><a href="https://games-able.techidaily.com/gamers-rejoice-akkos-mod007b-keys-reviewed-for-you/"><u>Gamers Rejoice! Akko's MOD007B Keys Reviewed for You</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-xiaomi-redmi-note-13-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Xiaomi Redmi Note 13 5G Devices</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-top-10-global-youtube-personalities-peak-of-viewership/"><u>In 2024, Top 10 Global YouTube Personalities Peak of Viewership</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-page-administration-selecting-admins/"><u>Navigating Page Administration - Selecting Admins</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-infinix-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Infinix</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-conversations-the-countdown-for-fb-messengers-e2ee/"><u>Securing Your Conversations: The Countdown for FB Messenger's E2EE</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dichotomy-of-connection-and-loneliness-on-facebook/"><u>The Dichotomy of Connection and Loneliness on Facebook</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-pro-tips-and-hidden-tricks-revolutionize-your-whatsapp-experience/"><u>[New] Pro Tips and Hidden Tricks Revolutionize Your WhatsApp Experience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mastering-access-to-exclusive-snapshots/"><u>[Updated] 2024 Approved Mastering Access to Exclusive Snapshots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-enhancing-collaboration-with-win11-and-zoom-techniques/"><u>2024 Approved Enhancing Collaboration with Win11 and Zoom Techniques</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhance-video-aesthetics-instagram-border-techniques/"><u>Enhance Video Aesthetics Instagram Border Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-shortcomings-highlighting-5-times-users-were-let-down/"><u>Facebook's Shortcomings: Highlighting 5 Times Users Were Let Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-alt-text-to-your-facebook-photos/"><u>How to Add Alt Text to Your Facebook Photos</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-photos-using-space-even-after-deleting-them-8-fixes/"><u>IPhone Photos Using Space Even After Deleting Them? 8 Fixes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterpieces-in-3d-graphics-and-golden-displaytexts-online-for-2024/"><u>Masterpieces in 3D Graphics and Golden DisplayTexts Online for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-feed-10-steps-to-get-facebook-videos-rolling/"><u>Revive Your Feed: 10 Steps to Get Facebook Videos Rolling</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/the-best-free-video-editing-software-for-gaming-content-creators-for-2024/"><u>The Best Free Video Editing Software for Gaming Content Creators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-broadcasting-across-multiple-facebook-spaces/"><u>The Blueprint of Broadcasting Across Multiple Facebook Spaces</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlock-the-potential-of-gaming-communities-by-streaming-xbox-games-on-discord/"><u>Unlock the Potential of Gaming Communities by Streaming Xbox Games on Discord</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-refresh-your-online-persona-icon/"><u>When to Refresh Your Online Persona Icon</u></a></li>
 </ul></div>
 

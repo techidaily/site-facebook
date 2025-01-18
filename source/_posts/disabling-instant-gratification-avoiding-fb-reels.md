@@ -1,7 +1,7 @@
 ---
 title: "Disabling Instant Gratification: Avoiding Fb Reels"
-date: 2024-07-29T07:38:12.018Z
-updated: 2024-07-30T07:38:12.018Z
+date: 2025-01-16T16:09:00.810Z
+updated: 2025-01-18T16:08:00.489Z
 tags:
   - facebook
 categories:
@@ -27,19 +27,25 @@ thumbnail: https://thmb.techidaily.com/cd61def31c266f510e96724b2a8477792657278ca
 
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Hide the Video Icon From Your Navigation Bar
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -47,16 +53,10 @@ thumbnail: https://thmb.techidaily.com/cd61def31c266f510e96724b2a8477792657278ca
 
  To hide the Video icon from your navigation bar, go to **Settings and privacy > Navigation bar > Customize the bar** . From here, you can hide the Video icon by tapping on the**inverted triangle** in line with Video and selecting**Hide** .
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Screenshot of Settings and Privacy page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook.jpg)
 
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
 Close
@@ -71,13 +71,6 @@ Close
 
 ###
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 4\. Hide Content You Don't Like
 
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
@@ -96,23 +89,22 @@ Close
 
  To do this, open the Facebook app and tap on the menu option. Tap the**gear icon** , then scroll down and tap on**Media** . Here you can then choose to never autoplay videos or have them only autoplay when you're on Wi-Fi.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![screenshot of Facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-profile-menu-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![screenshot of settings and privacy page on facebook showing media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-settings-and-privacy-page-on-facebook-showing-media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot of Media settings page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-media-settings-page-on-facebook.jpg)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## These Are Your Only Good Options
 
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
@@ -120,20 +112,18 @@ Close
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Working Around Facebook Reels
 
  Facebook Reels are here to stay, whether or not we like them. However, we do have some control over how they auto-play and when they show up in our News Feeds. If you’re not a fan of the feature, hopefully, one of these workarounds will help make things more bearable for you until Facebook decides to give us a “hide reel” button.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +132,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/he-graphic-gaze-decoding-youtubes-factful-17-narrative-for-2024/"><u>[New] The Graphic Gaze Decoding YouTube's Factful '17 Narrative for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-entertainment-alert-dive-into-sing-along-bliss-with-karaoke-usa-for-less-than-150/"><u>Affordable Entertainment Alert: Dive Into Sing-Along Bliss with Karaoke USA for Less than $150</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/discover-the-ultimate-selection-of-12-flawless-anime-add-ons-for-kodi-v20-and-v19-no-costs-no-signups/"><u>Discover the Ultimate Selection of 12 Flawless Anime Add-Ons for Kodi V20 and V19 - No Costs, No Signups!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/extended-appraisal-hero4-black-performance-for-2024/"><u>Extended Appraisal Hero4 Black Performance for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/governments-counteroffensive-against-monopolistic-tech-firms/"><u>Government's Counteroffensive Against Monopolistic Tech Firms</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-motorola-razr-40-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Motorola Razr 40 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-location-accessible-on-messenger/"><u>How to Make Your Location Accessible on Messenger</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oneplus-nord-ce-3-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your OnePlus Nord CE 3 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-hubs-to-explore-for-securing-freelance-roles/"><u>Ideal Hubs to Explore for Securing Freelance Roles</u></a></li>
+<li><a href="https://win-answers.techidaily.com/immerse-yourself-in-open-world-adventure-play-yakuza-like-a-dragon-on-pc/"><u>Immerse Yourself in Open-World Adventure – Play Yakuza: Like A Dragon on PC!</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-vivo-x90s-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Vivo X90S Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-to-newest-facebook-video-listings/"><u>Navigate to Newest Facebook Video Listings</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-mac-owners-checklist-the-first-10-must-do-tasks-for-optimal-performance/"><u>New Mac Owners' Checklist: The First 10 Must-Do Tasks for Optimal Performance</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-gionee-f3-pro-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Gionee F3 Pro Black and White | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-presence-changing-your-facebook-name/"><u>Redefining Online Presence: Changing Your Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-advantage-of-facebooks-725-million-settlement-provision/"><u>Taking Advantage of Facebook's $725 Million Settlement Provision</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-simplifying-life-why-eliminate-facebook/"><u>The Art of Simplifying Life – Why Eliminate Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-and-your-feed-a-look-at-usage-patterns/"><u>The Social Fabric and Your Feed: A Look at Usage Patterns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshackled-how-abstaining-from-social-screens-changed-me/"><u>Unshackled: How Abstaining From Social Screens Changed Me</u></a></li>
+</ul></div>
 

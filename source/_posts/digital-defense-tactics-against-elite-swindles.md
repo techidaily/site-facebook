@@ -1,7 +1,7 @@
 ---
 title: Digital Defense Tactics Against Elite Swindles
-date: 2024-07-29T07:35:35.456Z
-updated: 2024-07-30T07:35:35.456Z
+date: 2025-01-15T16:05:45.283Z
+updated: 2025-01-18T16:00:56.272Z
 tags:
   - facebook
 categories:
@@ -20,13 +20,11 @@ thumbnail: https://thmb.techidaily.com/eea9086dc7bf337d2bb499bc698c2b462f0914634
  Owing to widespread awareness, common internet scams like the infamous "Nigerian prince" fraud are now easily discerned by potential victims. Unfortunately, scammers have evolved and now employ more sophisticated tactics to defraud their victims. And social media plays a key part in that. Here's what you need to look out for, and how to spot online scams.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Instragam Celebrity Scam
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
@@ -54,15 +52,13 @@ There are some simple things you can do to avoid this kind of scam:
 * Always do thorough research of a celebrity's management team before committing to any form of payment.
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Telegram Cryptocurrency Scam
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
 
@@ -87,15 +83,16 @@ There are some simple things you can do to avoid this kind of scam:
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Dating Scams
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
@@ -121,6 +118,10 @@ Of course, that's all fake.
 
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -129,14 +130,11 @@ Of course, that's all fake.
 
  According to the US's[Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +143,21 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-in-2024-updated-interview-playbook-for-audience-allure/"><u>[New] In 2024, Updated Interview Playbook for Audience Allure</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-revolutionary-strategies-for-youtube-and-facebook-integration/"><u>[New] Revolutionary Strategies for YouTube & Facebook Integration</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-facebook-call-recording-a-step-by-step-guide/"><u>[Updated] In 2024, Mastering Facebook Call Recording A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-interpreting-single-photos-as-video-chronicles/"><u>[Updated] Interpreting Single Photos as Video Chronicles</u></a></li>
+<li><a href="https://facebook.techidaily.com/budget-friendly-but-flawed-a-closer-look-at-the-mobvoi-ticwatch-e2-review/"><u>Budget-Friendly but Flawed: A Closer Look at the Mobvoi TicWatch E2 Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-5m-push-for-new-media-landscape-in-authorship-and-publishing/"><u>Facebook's $5M Push for New Media Landscape in Authorship and Publishing</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1715701254625-instant-mac-screen-savior-free/"><u>Instant Mac Screen Savior - Free!</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-groups-including-every-member-on-facebook/"><u>Maximizing Groups: Including Every Member on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-transient-conversations-in-fb-messenger/"><u>Secrets of Transient Conversations in FB Messenger</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-maintain-windows-time-settings/"><u>Strategies to Maintain Windows Time Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-anonymous-interaction-on-platforms/"><u>The Art of Anonymous Interaction on Platforms</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-creme-de-la-cream-of-online-tv-services/"><u>The Crème De La Cream of Online TV Services</u></a></li>
+</ul></div>
 

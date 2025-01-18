@@ -1,7 +1,7 @@
 ---
 title: Turning Our Tracks Into Treasure
-date: 2025-01-08T21:04:18.485Z
-updated: 2025-01-12T20:48:26.147Z
+date: 2025-01-11T16:09:58.021Z
+updated: 2025-01-18T16:03:03.516Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 ![Surveillance Cameras](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/Surveillance-Cameras.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Coined by Harvard Professor Shoshana Zuboff, surveillance capitalism is an economic system centered around the commodification of personal data with a core purpose of making profit.
 
  In theory, surveillance capitalism helps businesses create better products, hold efficient inventory, and serve customers exactly what they need as soon as possible. By accurately pinpointing or swaying supply and demand, surveillance capitalism opens up a world of endless convenience.
@@ -40,17 +44,9 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Granular Data Gathering
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -60,13 +56,13 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -87,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
@@ -104,19 +100,23 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -145,19 +145,21 @@ In fact, we are already running out of ways to opt out.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-deep-dive-into-instagrams-daily-narrative-components-for-2024/"><u>[New] Deep Dive Into Instagram's Daily Narrative Components for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-video-partition-prowess-ultimate-recorder-ranking/"><u>[Updated] 2024 Approved Video Partition Prowess Ultimate Recorder Ranking</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-swiftly-seek-and-find-discarded-reddit-posts/"><u>[Updated] Swiftly Seek and Find Discarded Reddit Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-journey-for-vanishing-from-facebooks-world/"><u>A Step-by-Step Journey for Vanishing From Facebook's World</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-economics-how-twitter-tracks-users-for-zero-cost-access/"><u>App Economics: How Twitter Tracks Users for Zero Cost Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-assessment-for-(securityfacebookmailcom)-as-a-secure-mail-service/"><u>Authenticity Assessment for @<security@facebookmail.com> as a Secure Mail Service</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-vk-russias-alternative-to-facebook-revealed/"><u>Breaking Down VK: Russia’s Alternative to Facebook Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/cricket-associations-cut-ties-with-social-sites/"><u>Cricket Associations Cut Ties with Social Sites</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/disabling-apple-iphone-6s-plus-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling Apple iPhone 6s Plus Parental Restrictions With/Without Password | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-diminuendo-film-narrative/"><u>In 2024, Diminuendo Film Narrative</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-v29-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo V29 Pro Phone?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Realme 11 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-14-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlock-your-iphones-sim-without-the-ejector-tool-hacks-and-tricks-revealed/"><u>Unlock Your iPhone's SIM Without the Ejector Tool - Hacks and Tricks Revealed</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-in-depth-training-adopting-the-best-screen-recording-practices-with-adobe-captivate/"><u>[New] 2024 Approved In-Depth Training Adopting the Best Screen Recording Practices with Adobe Captivate</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-safety-first-where-to-buy-followers-on-tiktok-responsibly/"><u>[Updated] 2024 Approved Safety First Where to Buy Followers on TikTok Responsibly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-an-online-empire-ramp-up-video-views-for-2024/"><u>[Updated] Building an Online Empire Ramp Up Video Views for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-embrace-the-vivid-world-editing-and-viewing-hd-with-windows-hdr-for-2024/"><u>[Updated] Embrace the Vivid World Editing & Viewing HD with Windows HDR for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-potential-your-guide-to-making-blockbuster-youtube-videos/"><u>[Updated] Unleashing Potential Your Guide to Making Blockbuster Youtube Videos</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-amd-radeon-rx-580-graphics-card-drivers-fast-and-simple-updates/"><u>Download AMD Radeon RX 580 Graphics Card Drivers - Fast and Simple Updates!</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-global-tag-functionality-on-fb/"><u>Halt Global Tag Functionality on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/hold-your-breath-facebooks-regulators-stall-judgment/"><u>Hold Your Breath: Facebook's Regulators Stall Judgment</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-psycho-social-signal-customization-ps-console-edition/"><u>In 2024, Psycho-Social Signal Customization PS Console Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-profile-picture-for-facebook/"><u>Personalizing Your Profile Picture for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intersection-of-online-networks-and-real-world-shopping/"><u>The Intersection of Online Networks and Real-World Shopping</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-the-upholdran-the-smart-way-to-prepare-before-deleting-fb/"><u>Unfollowing the Upholdran: The Smart Way to Prepare Before Deleting FB</u></a></li>
+<li><a href="https://fox-where.techidaily.com/unique-product-identification-code-deciphering-the-iproductcode/"><u>Unique Product Identification Code - Deciphering the IProductCode</u></a></li>
+<li><a href="https://games-able.techidaily.com/unveiling-the-power-of-playstation-5-controller-reboot/"><u>Unveiling the Power of PlayStation 5 Controller Reboot</u></a></li>
+<li><a href="https://facebook.techidaily.com/vulnerabilities-in-cyber-social-networks/"><u>Vulnerabilities in Cyber Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-and-facebook-clash-as-germany-imposes-new-data-protection-order/"><u>WhatsApp and Facebook Clash as Germany Imposes New Data Protection Order</u></a></li>
 </ul></div>
 

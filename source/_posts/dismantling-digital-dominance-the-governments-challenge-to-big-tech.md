@@ -1,7 +1,7 @@
 ---
 title: "Dismantling Digital Dominance: The Government's Challenge to Big Tech"
-date: 2024-07-29T07:40:01.426Z
-updated: 2024-07-30T07:40:01.426Z
+date: 2025-01-15T16:05:02.905Z
+updated: 2025-01-18T16:05:48.645Z
 tags:
   - facebook
 categories:
@@ -17,9 +17,6 @@ thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -39,8 +36,9 @@ thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
@@ -55,10 +53,11 @@ thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d
 
 ## Big Tech Fails to Catch Misleading Ads
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -66,11 +65,12 @@ thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Big Tech Limits the Market Access of Smaller Companies
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
@@ -81,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d
 
  Another recent case occurred when the[European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
@@ -92,15 +89,8 @@ thumbnail: https://thmb.techidaily.com/031a4402ffc175410606d46c107303b712eafaa4d
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Big Tech Can Impact Government Decisions and Operations
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -114,6 +104,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ## Big Tech Companies Have Incredible Influence
 
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -131,6 +125,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -139,14 +137,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +150,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-generating-a-timeless-tiktok-outro-feature/"><u>[Updated] In 2024, Generating a Timeless TikTok Outro Feature</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-lyrical-explanation-designer/"><u>[Updated] In 2024, Lyrical Explanation Designer</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-to-select-your-preferred-facebook-hub/"><u>Essential Tips to Select Your Preferred Facebook Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-for-expats-evaluating-group-merits-and-shortcomings/"><u>Facebook for Expats: Evaluating Group Merits & Shortcomings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/keep-your-temperature-right-with-arctics-superior-liquid-freezer-ii-aio-cooler-for-a-steal-at-just-74/"><u>Keep Your Temperature Right with Arctic's Superior Liquid Freezer II AIO Cooler for a Steal at Just $74!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-online-routine-utilizing-facebook-breaks/"><u>Mastering Your Online Routine: Utilizing Facebook Breaks</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/potplayer-youtube-mastery-the-complete-tutorial-on-video-downloading-and-playback/"><u>PotPlayer YouTube Mastery: The Complete Tutorial on Video Downloading & Playback</u></a></li>
+<li><a href="https://facebook.techidaily.com/proactive-strategies-for-discovering-next-level-social-circles/"><u>Proactive Strategies for Discovering Next-Level Social Circles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rexing-v1-dashcam-review/"><u>Rexing V1 DashCam Review</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/silencing-background-noise-in-obs-feeds-for-2024/"><u>Silencing Background Noise in OBS Feeds for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-site-love-challenge-who-wins/"><u>Social Site Love Challenge - Who Wins?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-effects-on-your-digital-footprint-post-deletion/"><u>The Unseen Effects on Your Digital Footprint Post-Deletion</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/understanding-incompatibility-why-certain-programs-cant-pair-with-your-windows-pc-sound-card-insights-by-yl-computing/"><u>Understanding Incompatibility: Why Certain Programs Can't Pair With Your Windows PC Sound Card - Insights by YL Computing</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-enhanced-security-techniques-with-2fa-on-major-mail-apps/"><u>Unveiling Enhanced Security Techniques with 2FA on Major Mail Apps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726030351650-usbdvd/"><u>USBへのDVDコピーと保存：ステップバイステップチュートリアル</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-facebook-pulls-your-digital-plug-reasons/"><u>When Facebook Pulls Your Digital Plug: Reasons</u></a></li>
+</ul></div>
 

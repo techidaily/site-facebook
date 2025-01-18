@@ -1,7 +1,7 @@
 ---
 title: Determining if security@fb.com Is a Secure and Legitimate Mail Service From FB
-date: 2024-07-29T07:39:26.828Z
-updated: 2024-07-30T07:39:26.828Z
+date: 2025-01-11T16:09:58.228Z
+updated: 2025-01-18T16:08:25.757Z
 tags:
   - facebook
 categories:
@@ -21,12 +21,17 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
 ## Is "<Security@facebookmail.com>" a Safe Email Address?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Facebook Notification That User's Account Has Been Temporarily Locked](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-notification-that-user-s-account-has-been-temporarily-locked.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  <Security@facebookmail.com> is the email address that Facebook uses to send security-related emails to its users. If you receive an email from the email address containing the same email domain (@facebookmail), it's legit and coming from Facebook. You should follow the directions in the email.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Does the Email From "<Security@facebookmail.com>" Look Like?
 
@@ -40,9 +45,6 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
  But could the email asking you to enable Facebook Protect also be a scam? It's possible...
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Is the Facebook Protect Email a Scam?
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
@@ -51,9 +53,6 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Check the Email You Received From Facebook Is Legit
 
  Perform the following checks to verify that the email you received from Facebook is legitimate:
@@ -61,20 +60,15 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 * In the majority of cases, Facebook sends the email to enable Facebook Protect by the email address, "<security@facebookmail.com>". Is the email address from which you received the email different from this one? If so, you may be dealing with a scam.
 * Facebook doesn't include a link in the email to enable Facebook Protect, nor does it direct users to log in directly from the email. So if the email you received contains links and buttons, it's a scam.
 * Facebook also lets users view recent emails they received in their account security settings. That's another way of verifying the legitimacy of the email. For this, log into your account, click on the**profile icon** in the top-right corner, navigate to**Settings & privacy > Settings** , and then click**Security and login** in the left-sidebar.  
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![Opening Facebook Settings on Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Opening-Facebook-Settings-on-Facebook-Web-Client.jpg)  
  Afterward, click the**View** button next to**See recent emails from Facebook** under**Advanced** .  
 ![Clicking on View to View Recent Emails From Facebook in Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Clicking-on-View-to-View-Recent-Emails-From-Facebook-in-Facebook-Web-Client.jpg)  
  If the same email you received appears here, it's official. Otherwise, it's a scam.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Respond to a Legit Facebook Protect Email
 
  If the email you received from Facebook requesting you to enable Facebook Protect meets all three conditions listed above, enable it for your own security. You can enable Facebook Protect by following these steps:
@@ -84,13 +78,14 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 3. Navigate to**Settings & privacy > Settings** .
 4. Click the**Security and login** tab in the left sidebar.
 5. Click on**Get Started** button next to**Facebook Protect** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Enabling Facebook Protect in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Enabling-Facebook-Protect-in-Facebook-Settings-1.jpg)
 6. Then, follow the on-screen instructions to activate Facebook Protect.
 
  The Facebook Protect feature is only available for a limited number of Facebook users. And Facebook removes this feature from certain accounts when it feels that the account no longer meets the criteria to enjoy it. If you cannot find this option despite enabling it before, it signifies that your account no longer meets the eligibility criteria. So don't worry about it having been a scam!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Respond to a Fake Facebook Protect Email
 
@@ -102,10 +97,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ## What to Do if You Fall for a Fake Facebook Protect Email Scam
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
@@ -119,14 +115,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Fraudsters are very good at mimicking official emails and making them appear legit. Hopefully, knowing the context of Facebook Protect email will help you distinguish fake emails from real ones. Additionally, those tips will assist you in limiting the damage if you mistakenly fall victim to such phishing emails.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +128,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-elevate-your-video-storytelling-with-effective-markers/"><u>[New] 2024 Approved Elevate Your Video Storytelling with Effective Markers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfecting-your-content-time-stamping-in-online-vids/"><u>[New] 2024 Approved Perfecting Your Content Time Stamping in Online Vids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-advanced-techniques-for-using-the-instagram-sticker-question-mark-for-2024/"><u>[New] Advanced Techniques for Using the Instagram Sticker Question Mark for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-networking-site-policies-what-about-posting-videos/"><u>[Updated] In 2024, Social Networking Site Policies What About Posting Videos?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streaming-giants-rivalry-facebook-vs-youtube-and-spaces/"><u>[Updated] Streaming Giants' Rivalry Facebook Vs. YouTube & Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-enhanced-control-over-oculus-go-the-what-and-why-for-users/"><u>Facebook's Enhanced Control Over Oculus Go: The What and Why for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-contrast-rich-interface-on-facebook-app/"><u>Guide to Contrast-Rich Interface on Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-decide-what-to-allow/"><u>How Does Facebook Decide What to Allow?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-11-pro-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock iPhone 11 Pro Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-ipads-best-practices-for-clear-voice-recording/"><u>In 2024, IPad's Best Practices for Clear Voice Recording</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/making-ai-text-talk-like-you-training-steps/"><u>Making AI Text Talk Like You: Training Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-identity-shift-on-social-networks-via-photo-change/"><u>Mastery of Identity Shift on Social Networks via Photo Change</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722996015178-nvidia-rtx-overlay-trouble-here-are-solutions-to-get-it-working-again/"><u>Nvidia RTX Overlay Trouble? Here Are Solutions to Get It Working Again!</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-social-media-posts-effectively/"><u>Timing Your Social Media Posts Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-delays-implementation-of-updated-privacy-agreement/"><u>WhatsApp Delays Implementation of Updated Privacy Agreement</u></a></li>
+</ul></div>
 

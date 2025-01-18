@@ -1,7 +1,7 @@
 ---
 title: "Defining Vagueposting: The Quest for Engagement"
-date: 2024-07-29T07:38:04.717Z
-updated: 2024-07-30T07:38:04.717Z
+date: 2025-01-11T16:06:01.465Z
+updated: 2025-01-18T16:03:53.454Z
 tags:
   - facebook
 categories:
@@ -31,45 +31,46 @@ But what is vaguebooking?
 
  And that's the point of vaguebooking. While the majority of us will only post on social media when we have something specific to say, vaguebookers take great delight in beating around the metaphorical bush. Seeking attention while giving away very little in terms of detail.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Examples of Vaguebooking
 
  The easiest way to answer the question, "what is vaguebooking?" is to give examples. So here are some examples of vaguebooking which will help you recognize it when you see it. And ultimately avoid doing it yourself.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Expressing an Emotion Without Providing Context
 
  This is an expression of emotion in its most basic form. On this occasion it's anger, but other emotions can replace anger quite easily. Instead of, "I'm so angry right now. Arrggh!," it could be, "I'm so confused right now. Waagh!" or "I'm so miserable right now. Boohoo!"
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Why Me? This Could Only Happen to Me
 
  This is a classic, and one of the most annoying forms of vaguebooking. It's about as vague as it gets while still using words. With "Why? Only me..." you're imparting the fact that something (likely bad) has happened that you need someone to ask you about.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Question Marks: The Purest Form of Vaguebooking
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. When a GIF Is Meant to Sum Everything Up
 
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Who Is Responsible for Vaguebooking?
 
  So, who's doing all of this vaguebooking? Sadly, everyone seems prone to doing it from time to time. You'll find normally sane and sensible people vaguebooking in order to elicit sympathy or some kind of response from someone, somewhere. Anyone, anywhere. It doesn't really matter who responds, as long as someone notices their cries for attention.
@@ -79,6 +80,10 @@ But what is vaguebooking?
  We're all partly to blame too, even if we aren't the ones vaguebooking. If you have ever responded to vaguebooking on social media, you're part of the problem. Allowing vaguebooking to propagate almost as malevolently as fake news.
 
  Related:[Tips to Avoid (Spreading) Fake News During a Crisis](https://www.makeuseof.com/tag/quickly-avoid-fake-news-unfolding-crisis/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is Vaguebooking Harmless or Something More?
 
@@ -92,9 +97,6 @@ But what is vaguebooking?
 
  Related:[The Best Therapy and Counseling Apps for Mental Health](https://www.makeuseof.com/tag/mental-health-apps-people-cant-see-therapist/)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Avoid Vaguebooking
 
  It's actually very simple to avoid vaguebooking. Just don't post anything vague on social media. That's it. That's the golden rule.
@@ -109,14 +111,11 @@ But what is vaguebooking?
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -125,4 +124,24 @@ But what is vaguebooking?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/updated-where-to-find-hotspots-for-vr-content-for-2024/"><u>[Updated] Where to Find Hotspots for VR Content for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-photo-perfection-how-to-erase-background-noise-with-ease/"><u>2024 Approved Photo Perfection How to Erase Background Noise with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-check-if-someone-else-is-accessing-your-facebook-account/"><u>How to Check If Someone Else Is Accessing Your Facebook Account</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-realme-c33-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-gpt-3-on-your-devices-android-and-ios/"><u>Leveraging GPT-3 on Your Devices, Android & iOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/liberate-your-mindset-the-case-against-facebook/"><u>Liberate Your Mindset: The Case Against Facebook</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/loop-it-live-watch-youtube-in-sequential-sweetness/"><u>Loop It Live Watch YouTube in Sequential Sweetness</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-mapping-techniques-finding-facebook-profilepage-links/"><u>Social Mapping Techniques: Finding Facebook Profile/Page Links</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/the-algorithm-behind-youtubes-post-upload-logic-for-2024/"><u>The Algorithm Behind YouTube's Post-Upload Logic for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-must-have-features-in-crowdflower-software-for-marketers/"><u>Top 8 Must-Have Features in CrowdFlower Software for Marketers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-key-tracking-devices-finding-the-perfect-one/"><u>Top-Rated Key Tracking Devices : Finding the Perfect One</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-truths-from-the-hidden-files-of-facebook/"><u>Uncovering Truths From The Hidden Files of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfolding-the-storyline-of-your-digital-companions/"><u>Unfolding the Storyline of Your Digital Companions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-portions-of-facebooks-725m-settlement-fund/"><u>Unlocking Portions of Facebook's $725M Settlement Fund</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/vdr-screen-capture-compilation-extensive-guide-for-2024/"><u>VDR Screen Capture Compilation Extensive Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/watchdog-tips-for-protecting-fb-privacy-against-uninvited-guests/"><u>Watchdog Tips for Protecting FB Privacy Against Uninvited Guests</u></a></li>
+</ul></div>
 

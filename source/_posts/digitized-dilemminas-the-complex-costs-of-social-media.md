@@ -1,7 +1,7 @@
 ---
 title: "Digitized Dilemminas: The Complex Costs of Social Media"
-date: 2024-07-29T07:35:14.871Z
-updated: 2024-07-30T07:35:14.871Z
+date: 2025-01-15T16:10:16.415Z
+updated: 2025-01-18T16:05:00.261Z
 tags:
   - facebook
 categories:
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
  If you can't imagine your life without social media, you've probably fallen victim to the strong power that social networking sites have over the public. Chances are that you've also experienced some of the negative effects social media has on people.
 
  Unfortunately, the bad effects of social media are all too real for a lot of us. Let's look at the negative impacts of social media on real people, so you can recognize these symptoms and get help if needed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Social Media Is Bad for You
 
@@ -39,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows[what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -49,9 +57,6 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -62,10 +67,11 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
 
 ## 4\. Unrealistic Expectations
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -80,8 +86,9 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -104,14 +111,8 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ## 7\. General Addiction
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
@@ -123,22 +124,20 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Handle the Negative Effects of Social Media
 
  As with everything else, there are good and bad aspects of social media. We've discussed some of the negative impacts social media has for many, but you're the one who must decide whether there's more help or harm in it for you personally.
 
  If you find that social media is having a negative impact on your life, stop using it. However, if you decide to stay, there are ways to waste less time on social media, and thus maintain a healthier relationship with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +146,26 @@ thumbnail: https://thmb.techidaily.com/48491c0a3b929750d09e0d3e1dede43e654117023
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-ultimate-group-communication-applications-for-2024/"><u>[New] Ultimate Group Communication Applications for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-chrome-os-screen-capture-mastering-the-art-in-four-steps/"><u>[Updated] 2024 Approved Chrome OS Screen Capture Mastering the Art in Four Steps</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-dynamic-movement-analysis-a-complete-examination/"><u>[Updated] In 2024, Dynamic Movement Analysis A Complete Examination</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-precision-in-capturing-movie-moments-for-2024/"><u>[Updated] Precision in Capturing Movie Moments for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-secure-and-simple-photovideo-sharing-with-ios/"><u>[Updated] Secure and Simple Photo/Video Sharing with IOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-intrusion-stops-with-germany-ordering-halt-in-whatsapp-data-harvesting/"><u>Facebook’s Privacy Intrusion Stops with Germany Ordering Halt in WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-passive-posts-to-active-conversations-12-innovative-ideas-for-fb/"><u>From Passive Posts to Active Conversations: 12 Innovative Ideas for FB</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-vivo-x100-pro-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Vivo X100 Pro Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-approach-minor-user-behavior-on-web-platforms/"><u>How to Approach Minor User Behavior on Web Platforms</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Vivo Y27 4G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagramfacebook-experiment-integrating-meta-drops-innovations/"><u>Instagram/Facebook Experiment: Integrating Meta Drops' Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-platforms-fight-against-viral-disinformations/"><u>Interactive Platforms' Fight Against Viral Disinformations</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-in-redefined-spheres-on-facebook/"><u>Networking in Redefined Spheres on Facebook</u></a></li>
+<li><a href="https://win-webster.techidaily.com/revolutionizing-development-how-generative-ai-paves-the-way-from-low-code-to-no-code-paradigms/"><u>Revolutionizing Development: How Generative AI Paves the Way From Low Code to No Code Paradigms</u></a></li>
+<li><a href="https://facebook.techidaily.com/selecting-the-perfect-facebook-portal-device/"><u>Selecting the Perfect Facebook Portal Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-identities-online-adjusting-your-facebook-identity/"><u>Shifting Identities Online: Adjusting Your Facebook Identity</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-audio-guide-to-the-top-5-4k-recording-microphones/"><u>Ultimate Audio Guide to the Top 5 4K Recording Microphones</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-stealthier-meta-or-fb-for-quest-2-users/"><u>Which Is Stealthier? Meta or FB for Quest 2 Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-11-a-step-by-step-guide-to-restoring-usb-port-functionality/"><u>Windows 11: A Step-by-Step Guide to Restoring USB Port Functionality</u></a></li>
+</ul></div>
 

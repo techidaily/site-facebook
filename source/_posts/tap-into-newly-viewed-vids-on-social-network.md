@@ -1,7 +1,7 @@
 ---
 title: Tap Into Newly Viewed Vids on Social Network
-date: 2025-01-07T17:15:32.151Z
-updated: 2025-01-12T21:36:37.069Z
+date: 2025-01-15T16:14:02.946Z
+updated: 2025-01-18T16:05:45.073Z
 tags:
   - facebook
 categories:
@@ -36,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 ![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
 4. Select the**Videos you've watched** option.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
 That's it. Here you will find all the recently watched videos.
@@ -49,7 +45,7 @@ That's it. Here you will find all the recently watched videos.
 ![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
@@ -74,14 +70,10 @@ That's it. Here you will find all the recently watched videos.
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
@@ -96,17 +88,21 @@ Close
 
  You'll now see all the videos you recently watched on your Facebook app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Filter Facebook Watched Videos by Date on Android and iOS
 
  To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
 
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
-![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 Close
 
@@ -114,6 +110,10 @@ Close
 2. Slide the available activities to the left and choose the Videos watched option.
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
 
@@ -134,22 +134,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-commanders-conclave-celebrating-the-best-of-7-total-wars/"><u>[Updated] Commanders' Conclave Celebrating the Best of 7 Total Wars</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-guide-to-embedding-on-screen-text-on-youtube-clips-for-2024/"><u>[Updated] Guide to Embedding On-Screen Text on YouTube Clips for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-transitioning-away-from-newest-sierra-version-back-to-1010/"><u>[Updated] Transitioning Away From Newest Sierra Version Back to 10.10</u></a></li>
-<li><a href="https://facebook.techidaily.com/decrease-personalized-promotions-on-social-platforms/"><u>Decrease Personalized Promotions on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/demanding-action-from-social-media-leaders-against-scam-campaigns/"><u>Demanding Action From Social Media Leaders Against Scam Campaigns</u></a></li>
-<li><a href="https://facebook.techidaily.com/disable-fbs-tracking-tactics-using-off-fb-toolset/"><u>Disable Fb's Tracking Tactics Using Off-FB Toolset</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-hate-button-pros-and-cons/"><u>Disabling 'Hate' Button: Pros & Cons</u></a></li>
-<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
-<li><a href="https://facebook.techidaily.com/earnwhileengage-top-5-revenue-generating-strategies-for-social-media/"><u>EarnwhileEngage: Top 5 Revenue-Generating Strategies for Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-steps-to-implement-2fa-on-facebook-platform/"><u>Easy Steps to Implement 2FA on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-privacy-game-facebooks-secure-strategies-explained/"><u>Elevate Your Privacy Game: Facebook's Secure Strategies Explained</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/immerse-in-the-world-of-gaming-download-premium-gamercat-imagery-from-yl-computing-the-leading-provider-of-custom-graphics-and-themes/"><u>Immerse in the World of Gaming: Download Premium Gamercat Imagery From YL Computing – The Leading Provider of Custom Graphics and Themes</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-8-desktop-images-to-personalize-your-mbp/"><u>In 2024, Ideal 8 Desktop Images to Personalize Your MBP</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oppo-reno-11-pro-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Oppo Reno 11 Pro 5G Phones</u></a></li>
-<li><a href="https://win11.techidaily.com/keep-clicking-at-a-comfortable-rate-deactivating-mouse-speed-on-windows-11/"><u>Keep Clicking at a Comfortable Rate: Deactivating Mouse Speed on Windows 11</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-navigating-and-optimizing-your-experience-with-google-gemini/"><u>Step-by-Step Tutorial: Navigating and Optimizing Your Experience with Google Gemini</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-7-best-ways-to-speed-up-your-computer/"><u>The 7 Best Ways to Speed Up Your Computer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-discover-how-to-craft-videos-flawlessly-in-8-tools-for-2024/"><u>[New] Discover How to Craft Videos Flawlessly in 8 Tools for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premiere-pro-vanishing-art/"><u>[New] Premiere Pro Vanishing Art</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-nokia-130-music-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Nokia 130 Music FRP Bypass Instantly</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exclusive-september-bonanza-offering-top-gaming-bargains-final-call-snap-up-savings-of-1kplus-with-limited-time-deals-on-zdnet/"><u>Exclusive September Bonanza Offering Top Gaming Bargains - Final Call! Snap Up Savings of $1K+ with Limited Time Deals on ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-false-bargains-on-facebook-marketplace-how-to-dodge-them/"><u>Exposing False Bargains on Facebook Marketplace – How to Dodge Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-features-making-your-fb-story-stand-out/"><u>Harnessing Features: Making Your FB Story Stand Out</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-acethinker-screen-recorder-review-and-alternative/"><u>In 2024, AceThinker Screen Recorder Review and Alternative</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-online-screenshots-and-screen-recorders-guide/"><u>In 2024, Online Screenshots & Screen Recorders Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-age-updating-your-facebook-name/"><u>Navigating the New Age: Updating Your Facebook Name</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/premium-selection-of-mp4-devices-for-2024/"><u>Premium Selection of MP4 Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-facebooks-everyone-tag-from-appearing/"><u>Prevent Facebook's @Everyone Tag From Appearing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/samsung-ubd-k8500-review-2023-update/"><u>Samsung UBD-K8500 Review - 2023 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-erasure-guide-for-facebook-searches/"><u>Secure Erasure Guide for Facebook Searches</u></a></li>
+<li><a href="https://some-tips.techidaily.com/secure-your-copy-of-the-newly-released-apple-vision-pro-available-in-512gb-and-1tb-exclusive-details-techradar/"><u>Secure Your Copy of the Newly Released Apple Vision Pro: Available in 512GB & 1TB - Exclusive Details | TechRadar</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-self-image-makeover-update-your-facebook/"><u>Social Media Self-Image Makeover: Update Your Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tidy-up-facebook-filter-out-the-frenzy/"><u>Tidy Up Facebook: Filter Out the Frenzy</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-facebook-profile-into-a-standout-hub/"><u>Transform Your Facebook Profile Into a Standout Hub</u></a></li>
 </ul></div>
 

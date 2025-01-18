@@ -1,7 +1,7 @@
 ---
 title: "Deciphering the Language of Data: Insights From Whistleblower's Release"
-date: 2024-07-29T07:39:52.477Z
-updated: 2024-07-30T07:39:52.477Z
+date: 2025-01-14T16:04:30.548Z
+updated: 2025-01-18T16:05:07.251Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,9 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
@@ -32,8 +32,9 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 7 Key Revelations From the Facebook Papers
 
  Given the number of documents turned over to the media, it took a coordinated effort between multiple organizations to comb through and deliver detailed analysis. But, now, there are several major revelations into practices at Facebook regarding human rights, political violence, hate speech, harmful content, and other damning portrayals writ large.
@@ -50,14 +51,11 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -66,4 +64,21 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-inside-look-analyzing-androids-photoshop-substitute-lightroom/"><u>[New] 2024 Approved Inside Look Analyzing Android's Photoshop Substitute, Lightroom</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-video-editing-apps-for-youtube-creators/"><u>[Updated] 2024 Approved Essential Video Editing Apps for YouTube Creators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-apex-recommendations-exquisite-iphone-ringtone-designers/"><u>[Updated] Apex Recommendations Exquisite iPhone Ringtone Designers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-infinite-jest-joyride-top-kids-game-lineup/"><u>[Updated] In 2024, Infinite Jest Joyride - Top Kids' Game Lineup</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-audio-collections-for-screen-clips/"><u>2024 Approved Top Audio Collections for Screen Clips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/assessing-video-file-size-in-a-days-watching-for-2024/"><u>Assessing Video File Size in a Day's Watching for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-identity-options-now-for-oculus-users/"><u>Enhanced Identity Options Now for Oculus Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-see-someones-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to See Someones Location on Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-an-easier-way-get-instagrams-verification-on-whatsapp/"><u>Introducing an Easier Way: Get Instagram's Verification on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-authority-temporary-ban-on-trump-upholds-principles/"><u>Online Authority: Temporary Ban on Trump Upholds Principles</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-governance-temporary-ban-of-trump-appears-rational/"><u>Online Governance: Temporary Ban of Trump Appears Rational</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-free-collection-top-8-tools-for-viewing-4k-media-on-winos-x/"><u>Ultimate Free Collection Top 8 Tools for Viewing 4K Media on Win/OS X</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-your-birthdate-information-on-fb/"><u>Updating Your Birthdate Information on FB</u></a></li>
+</ul></div>
 

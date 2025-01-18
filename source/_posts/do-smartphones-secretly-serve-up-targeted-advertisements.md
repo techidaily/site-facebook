@@ -1,7 +1,7 @@
 ---
 title: Do Smartphones Secretly Serve Up Targeted Advertisements?
-date: 2024-07-29T07:38:07.364Z
-updated: 2024-07-30T07:38:07.364Z
+date: 2025-01-17T16:15:44.721Z
+updated: 2025-01-18T16:02:46.163Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/773bcb287706a7e5add3e76fb4807bc2dd418c60c
 ## Do Smartphones Secretly Serve Up Targeted Advertisements?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -31,8 +32,9 @@ What is going on?
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -40,6 +42,10 @@ What is going on?
  They believe that smartphone microphones are being used to record what they say, with the information used to[better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Reddit Users Think Their Phones Are Listening
 
@@ -58,8 +64,9 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
@@ -70,9 +77,6 @@ What is going on?
 
  Google reacted to this by taking action,[stating](https://www.blog.google/products/assistant/more-information-about-our-processes-safeguard-speech-data/) : "Audio snippets are not associated with user accounts." But as VRT pointed out, they don't need to be. More recently, I was brushing my teeth while reading an article about a movie when this advert appeared.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
@@ -89,10 +93,11 @@ What is going on?
 
  "We gave ourselves permission to use the microphone on the phone, set up a listening server on the internet, and everything that microphone heard on that phone, wherever it was in the world, came to us and we could then have sent back customized ads."
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
@@ -122,10 +127,6 @@ What is going on?
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -138,14 +139,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +152,21 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-voice-customization-made-easy/"><u>[New] Instagram Voice Customization Made Easy</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unveiling-creativity-making-striking-slideshows-for-fb-friends/"><u>[New] Unveiling Creativity Making Striking SlideShows for FB Friends</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-xs-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone XS Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elusive-exchanges-the-secret-facebookers-guide/"><u>Elusive Exchanges: The Secret Facebooker's Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fixing-overburdened-gpt-chat-on-pcs-windows/"><u>Fixing Overburdened GPT Chat on PCs (Windows)</u></a></li>
+<li><a href="https://facebook.techidaily.com/guarding-your-digital-identity-no-random-connections-please/"><u>Guarding Your Digital Identity: No Random Connections, Please</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-tecno-spark-20-pro-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Tecno Spark 20 Pro Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-the-art-of-search-engine-optimization-for-podcasts/"><u>In 2024, Mastering the Art of Search Engine Optimization for Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-online-networking-the-efficacy-of-hashtags-in-fb-marketplace/"><u>Insights Into Online Networking: The Efficacy of Hashtags in FB Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-reveals-its-hidden-free-app-strategy/"><u>Instagram Reveals Its Hidden Free App Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/meet-the-new-portable-version-of-facebooks-portal/"><u>Meet the New Portable Version of Facebook's Portal</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/programming-showdown-github-copilot-vs-chatgpt-determining-the-superior-choice/"><u>Programming Showdown: GitHub Copilot Vs. ChatGPT - Determining the Superior Choice</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-inside-facebooks-fortification-mechanisms-and-activate-them/"><u>Step Inside Facebook’s Fortification Mechanisms and Activate Them</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unveiling-the-latest-apple-introduces-m3-powered-13-and-15-macbook-air-key-features-revealed/"><u>Unveiling the Latest: Apple Introduces M3-Powered 13 & 15 MacBook Air - Key Features Revealed!</u></a></li>
+</ul></div>
 

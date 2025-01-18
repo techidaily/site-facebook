@@ -1,7 +1,7 @@
 ---
 title: Digital Identity on InstaNFTs
-date: 2024-07-29T07:36:23.397Z
-updated: 2024-07-30T07:36:23.397Z
+date: 2025-01-16T16:01:27.988Z
+updated: 2025-01-18T16:01:13.792Z
 tags:
   - facebook
 categories:
@@ -18,9 +18,9 @@ thumbnail: https://thmb.techidaily.com/db3dbeacfdd5ea435b3f8eb406f01646288938a03
  Everyone's talking about quitting Twitter, but what are the alternatives? What is Mastodon? Why is Instagram selling NFTs, and why would Facebook team up with the DHS?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Shownotes
 
 This week, we chat about the following tech news that matters:
@@ -40,14 +40,11 @@ We finish the show with the following recommendations:
 
  Christian Cawley and Gavin Phillips host this podcast. You can contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) and[@gavinspavin](https://twitter.com/gavinspavin) , with your suggestions for future topics.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -56,4 +53,22 @@ We finish the show with the following recommendations:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-best-screen-recording-software-top-10-list/"><u>[New] Best Screen Recording Software Top 10 List</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-future-is-here-magix-vpx-unveiled-and-tested-for-2024/"><u>[New] The Future Is Here Magix VPX Unveiled and Tested for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/connecting-airpods-with-your-hp-system-quick-and-easy-methods-explored/"><u>Connecting AirPods with Your HP System: Quick & Easy Methods Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-users-transforming-the-way-you-handle-privacy-on-facebook/"><u>Empowering Users: Transforming the Way You Handle Privacy on Facebook</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-3-ways-to-export-contacts-from-apple-iphone-se-2020-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 3 Ways to Export Contacts from Apple iPhone SE (2020) to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-fixes-to-solve-apple-iphone-8-plus-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve Apple iPhone 8 Plus Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-essential-guide-broadcast-360-videos-on-facebook/"><u>In 2024, Essential Guide Broadcast 360 Videos on Facebook</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-14-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server On iPhone 14</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-fb-groups-the-power-of-channels/"><u>Navigating FB Groups: The Power of Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-digital-persona-changing-your-name-in-the-virtual-world/"><u>Revamping Digital Persona: Changing Your Name in the Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-from-twitter-to-facebooks-informed-posts/"><u>Social Media Evolution: From Twitter to Facebook's Informed Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-uninterrupted-how-to-turn-off-facebook-responses/"><u>Stay Uninterrupted: How to Turn Off Facebook Responses</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-internet-interrupted-6-hour-tech-takedown/"><u>The Internet Interrupted: 6-Hour Tech Takedown</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-and-vr-at-a-crossroads-six-key-differences-demystified/"><u>The Metaverse and VR at a Crossroads: Six Key Differences Demystified</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-libeay32dll-error-find-out-why-its-gone-and-how-to-restore-it/"><u>Troubleshooting libeay32.dll Error: Find Out Why It's Gone and How to Restore It</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Decision Time for Users: Opt-In to Meta AI's Social Strategy?"
-date: 2024-07-29T07:40:02.247Z
-updated: 2024-07-30T07:40:02.247Z
+date: 2025-01-14T16:12:54.094Z
+updated: 2025-01-18T16:10:25.518Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/95f65ec843e39dc81b80b6ffcbfef45d788958cee
  Meta has rolled out its AI assistant Meta AI to more platforms, meaning that Facebook and Instagram users can now access the chatbot. But just because you can use it, should you?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta AI Arrives on Instagram and Facebook
 
 Close
@@ -29,8 +30,9 @@ Close
  However, by using the tool, you are agreeing to Meta's Terms of Service for Meta AI. And here's where some people may hesitate.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Do Meta AI's Terms Say?
 
  By interacting with the chatbot, you are giving it access to certain data, including personal information that you share with it.
@@ -46,8 +48,9 @@ Close
  According to Meta, the AI only has access to messages that mention it directly. But these messages may also be used to improve the AI's quality. Trusting a chatbot with sensitive information is one of the[mistakes people make when using generative AI](https://www.makeuseof.com/mistakes-generative-ai-tools/) and it could result in personal information being leaked.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta AI's Accuracy
 
 Close
@@ -59,8 +62,9 @@ Close
  In my short time using the chatbot, I already spotted some inaccuracies. These included Meta AI saying that it was a text-based AI and that it doesn't support downloading images. However, you can download images you generated with the bot.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Using Meta AI Comes With Some Risks
 
  The biggest risks that come with using Meta AI relate to data privacy and accuracy. So you should keep these risks in mind if you opt to use the AI assistant.
@@ -69,14 +73,11 @@ Close
 
 [Generative AI](https://www.makeuseof.com/what-is-generative-ai/) is known for hoovering up an excessive amount of data to train the large language models behind chatbots. So you may want to think twice before offering up even more personal information.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +86,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-top-10-cloud-storage-plans-finding-the-lowest-costs-2024-edition/"><u>[New] Top 10 Cloud Storage Plans Finding the Lowest Costs, 2024 Edition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-speaking-medias-language-mastering-srt-conversions/"><u>[Updated] Speaking Media's Language Mastering SRT Conversions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-whatsapp-wizardry-unveiling-the-ultimate-chat-strategies-for-2024/"><u>[Updated] WhatsApp Wizardry Unveiling the Ultimate Chat Strategies for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-procedures-for-producing-high-quality-asmr-videos/"><u>2024 Approved Step-by-Step Procedures for Producing High-Quality ASMR Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/free-cam-screen-recorder-review-and-best-alternatives/"><u>Free Cam Screen Recorder Review and Best Alternatives</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-turn-off-touchpad-auto-enablement-with-a-mouse-in-windows-11/"><u>How to Turn Off Touchpad Auto-Enablement with a Mouse in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-users-beware-thread-shutdown-dec/"><u>Instagram Users Beware: Thread Shutdown Dec</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-personal-inbox-a-guide-to-minimizing-contacts/"><u>Limiting Personal Inbox: A Guide to Minimizing Contacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-avoiding-shadowbanned-content/"><u>Mastering the Art of Avoiding Shadowbanned Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-boundaries-setting-up-a-restricted-list/"><u>Navigating Social Media Boundaries: Setting Up a Restricted List</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/creativity-youtube-fellowship/"><u>Peak Creativity YouTube Fellowship</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-the-hate-layers-of-social-media-networks/"><u>Peeling Back the Hate Layers of Social Media Networks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/prime-setup-the-finest-4k-dslr-shoulder-rigs-reviewed-for-2024/"><u>Prime Setup The Finest 4K DSLR Shoulder Rigs Reviewed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intriguing-world-of-vague-social-media-engagement/"><u>The Intriguing World of Vague Social Media Engagement</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unchecked-power-is-chatgpt-beyond-control/"><u>Unchecked Power: Is ChatGPT Beyond Control?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-rights-how-to-leave-a-group-online/"><u>Understanding Your Rights: How to Leave a Group Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-secrets-the-privacy-paradox-of-fb/"><u>Unlocking Secrets: The Privacy Paradox of FB</u></a></li>
+</ul></div>
 

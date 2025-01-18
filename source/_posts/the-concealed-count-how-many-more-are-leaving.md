@@ -1,7 +1,7 @@
 ---
 title: "The Concealed Count: How Many More Are Leaving?"
-date: 2025-01-10T16:00:12.056Z
-updated: 2025-01-12T16:03:25.405Z
+date: 2025-01-17T16:07:06.520Z
+updated: 2025-01-18T16:25:05.497Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## So How Many Users Have Facebook Lost?
@@ -42,16 +42,12 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Mark Zuckerberg's Statement on Losing Users
 
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
@@ -63,12 +59,16 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's User Loss Is Not as Big as It Seems
@@ -107,20 +107,24 @@ thumbnail: https://thmb.techidaily.com/70c37a7401073f1bcbf47eb7a020f3d12c21a20e9
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-latest-iteration-a-closer-look-at-sonys-s6500-bdp/"><u>[New] 2024 Approved Latest Iteration A Closer Look at Sony's S6500 BDP</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-from-recording-to-reality-a-detailed-look-at-the-sj-cam-s6/"><u>[New] From Recording to Reality A Detailed Look at the SJ-CAM S6</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/chrome-users-rejoice-eliminate-all-pop-up-ads-with-these-4-effective-strategies/"><u>Chrome Users Rejoice: Eliminate All Pop-Up Ads with These 4 Effective Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-veiled-world-of-shadowbanned-content/"><u>Deciphering the Veiled World of Shadowbanned Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-profiles-versus-usernames-in-digital-spaces/"><u>Decoding Facebook Profiles Versus Usernames in Digital Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-choice-for-holding-back-default-encryption/"><u>Decoding Meta's Choice for Holding Back Default Encryption</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dynamics-4-social-medias-reshaped-landscapes/"><u>Digital Dynamics: 4 Social Media's Reshaped Landscapes</u></a></li>
-<li><a href="https://facebook.techidaily.com/discard-your-fb-view-logs-procedure-and-advantages/"><u>Discard Your FB View Logs - Procedure & Advantages</u></a></li>
-<li><a href="https://facebook.techidaily.com/ditch-the-digital-embrace-a-more-fulfilling-lifestyle-without-facebook/"><u>Ditch the Digital: Embrace a More Fulfilling Lifestyle without Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/driving-growth-with-a-robust-list-of-work-clients-via-facebook/"><u>Driving Growth with a Robust List of Work Clients via Facebook</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-mastering-youtube-studio-ultimate-video-edits-techniques/"><u>In 2024, Mastering YouTube Studio Ultimate Video Edits Techniques</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/oneplus-9-analysis-why-the-calculations-dont-add-up/"><u>OnePlus 9 Analysis: Why the Calculations Don't Add Up</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-start-installing-office-on-modern-windows-os/"><u>Quick Start: Installing Office on Modern Windows OS</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/section-4c-five-qandas-on-organizational-culture-and-innovation/"><u>Section 4C: Five Q&As on Organizational Culture and Innovation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-quick-instructions-for-downloading-and-fun-with-ifunny-memes/"><u>[New] Quick Instructions for Downloading and Fun with iFunny Memes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-elements-for-fascinating-vlog-dialogues/"><u>[Updated] In 2024, Essential Elements for Fascinating Vlog Dialogues</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-video-conversion-software-for-your-ipad-seamless-format-adaptation-with-factory-pro-suite/"><u>Expert Video Conversion Software for Your iPad – Seamless Format Adaptation with Factory Pro Suite</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-you-back-into-facebook-post-code-loss/"><u>Guiding You Back Into Facebook Post-Code Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-harness-the-power-of-live-videos-for-greater-engagement-on-facebook/"><u>How to Harness the Power of Live Videos for Greater Engagement on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Samsung Phone with Broken Screen</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-xiaomi-14-ultra-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Xiaomi 14 Ultra Unlock Without Password</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-data-from-apple-iphone-15-pro-max-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Data from Apple iPhone 15 Pro Max to ZTE Phones | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/is-it-possible-to-get-free-mp3-downloads-using-keepvid-for-youtube-content/"><u>Is It Possible to Get Free MP3 Downloads Using KeepVid for YouTube Content?</u></a></li>
+<li><a href="https://facebook.techidaily.com/managing-group-exits-maintaining-good-relationships-online/"><u>Managing Group Exits: Maintaining Good Relationships Online</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-best-5-quandale-dingle-voice-generators-for-2024/"><u>New Best 5 Quandale Dingle Voice Generators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-two-factor-authentication-barrier-without-phone/"><u>Overcoming Two-Factor Authentication Barrier without Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-facebook-improvement-more-engaging-story-panels-with-reels-and-rooms/"><u>Potential Facebook Improvement: More Engaging Story Panels with Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-to-using-smschat-apps-beyond-facebook/"><u>Secrets to Using SMS/Chat Apps Beyond Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sector-shift-what-it-means-to-be-a-metamate/"><u>Social Sector Shift: What It Means To Be A 'Metamate'</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/striking-the-balance-visual-strategies-for-podcast-identity-for-2024/"><u>Striking the Balance Visual Strategies for Podcast Identity for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723011818124-the-principle-of-operation-involving-charging-particles-and-collecting-them-on-plates-with-an-opposite-charge/"><u>The Principle of Operation Involving Charging Particles and Collecting Them on Plates with an Opposite Charge.</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-maximize-outreach-when-sharing-job-openings-on-fb/"><u>Tips to Maximize Outreach When Sharing Job Openings on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-ray-ban-stories-facebook-announces-and-pricing-details/"><u>What Are Ray-Ban Stories? Facebook Announces & Pricing Details</u></a></li>
 </ul></div>
 

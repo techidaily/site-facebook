@@ -1,7 +1,7 @@
 ---
 title: "Watch Out: Disappearing Snapshots on Facebook Messenger"
-date: 2025-01-10T23:32:42.557Z
-updated: 2025-01-12T19:36:34.630Z
+date: 2025-01-13T16:22:41.587Z
+updated: 2025-01-18T16:23:09.335Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Messenger Now Has Full End-to-End Encryption (E2EE)
@@ -44,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -61,24 +57,28 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Other Updates to Messenger
 
@@ -101,22 +101,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-arctic-accolades-top-athletes-and-events/"><u>[New] 2024 Approved Arctic Accolades Top Athletes & Events</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-social-media-synergy-connecting-twitch-streams-with-fb/"><u>[New] 2024 Approved Social Media Synergy Connecting Twitch Streams with FB</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-tailoring-your-footage-a-comprehensive-guide-to-gopros-color-adjustment/"><u>[New] 2024 Approved Tailoring Your Footage A Comprehensive Guide to GoPro's Color Adjustment</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-sculpt-visual-jokes-for-giphy-space/"><u>2024 Approved Sculpt Visual Jokes for Giphy Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/declaring-safe-status-in-your-online-social-space/"><u>Declaring Safe Status in Your Online Social Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/defining-vagueposting-the-quest-for-engagement/"><u>Defining Vagueposting: The Quest for Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-facebooks-strategic-blueprint-layout/"><u>Demystifying Facebook’s Strategic Blueprint Layout</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-detects-illegal-photographs/"><u>Demystifying How PhotoDNA Detects Illegal Photographs</u></a></li>
-<li><a href="https://facebook.techidaily.com/detect-and-deter-the-top-14-scams-on-facebook-at-hand/"><u>Detect and Deter: The Top 14 Scams on Facebook at Hand</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-facebooks-chat-sounds-a-guide-to-soundmojis/"><u>Discover Facebook's Chat Sounds: A Guide to Soundmojis</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-smartphones-secretly-serve-up-targeted-advertisements/"><u>Do Smartphones Secretly Serve Up Targeted Advertisements?</u></a></li>
-<li><a href="https://facebook.techidaily.com/dont-get-duped-by-these-14-recurring-facebook-swindles/"><u>Don't Get Duped by These 14 Recurring Facebook Swindles</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/gaming-woes-sudden-pc-crashes-on-1011-systems/"><u>Gaming Woes: Sudden PC Crashes on 10/11 Systems</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How To Simulate GPS Movement With Location Spoofer On Apple iPhone 15 Plus? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/instant-printer-removal-guide-for-windows-users/"><u>Instant Printer Removal Guide for Windows Users</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/melodic-overlays-on-digital-imagery/"><u>Melodic Overlays on Digital Imagery</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-unable-to-connect-on-kodi-platform-for-seamless-streaming/"><u>Troubleshooting Unable to Connect on Kodi Platform for Seamless Streaming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-in-depth-comparison-can-inshot-outshine-competitors/"><u>[New] 2024 Approved In-Depth Comparison Can InShot Outshine Competitors?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-cut-to-the-chase-how-to-zoom-effectively-in-minecraft-for-2024/"><u>[New] Cut to the Chase How to Zoom Effectively in Minecraft for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-secure-and-efficient-lecture-recording-with-apple-devices/"><u>[New] In 2024, Secure & Efficient Lecture Recording with Apple Devices</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-discover-10-exceptional-commodity-lut-files/"><u>[Updated] 2024 Approved Discover 10 Exceptional Commodity LUT Files</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-beginners-overview-of-animation-trends/"><u>2024 Approved Beginner's Overview of Animation Trends</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rebrands-as-meta-a-leap-towards-a-new-digital-age/"><u>Facebook Rebrands as Meta: A Leap Towards a New Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-strategy-overshadows-traditional-app-purchase-approaches/"><u>Facebook’s Subscription Strategy Overshadows Traditional App Purchase Approaches</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fcc-greenlights-enhanced-6ghz-spectrum-use-for-immersive-arvr-experiences-latest-update-from-zdnet/"><u>FCC Greenlights Enhanced 6GHz Spectrum Use for Immersive AR/VR Experiences - Latest Update From ZDNet</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/financial-wisdom-in-emojis-unveiling-trends-and-concerns/"><u>Financial Wisdom in Emojis: Unveiling Trends & Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-a-facebook-avatar-on-whatsapp/"><u>How to Use a Facebook Avatar on WhatsApp</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-zte-blade-a73-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best ZTE Blade A73 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-the-marketing-maze-tips-to-avoid-objectionable-ads/"><u>Steering Clear of the Marketing Maze: Tips to Avoid Objectionable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-connectivity-8-social-networking-methods/"><u>The Power of Connectivity: 8 Social Networking Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-fbcta-in-shaping-digital-experience/"><u>The Role of FBCTA in Shaping Digital Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-you-turn-a-new-leaf-from-fb/"><u>When You Turn a New Leaf From FB</u></a></li>
 </ul></div>
 

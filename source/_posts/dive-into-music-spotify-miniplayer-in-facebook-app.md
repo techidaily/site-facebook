@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Music: Spotify Miniplayer in Facebook App"
-date: 2024-07-29T07:36:40.957Z
-updated: 2024-07-30T07:36:40.957Z
+date: 2025-01-11T16:08:11.355Z
+updated: 2025-01-18T16:11:33.573Z
 tags:
   - facebook
 categories:
@@ -20,18 +20,20 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
  Facebook and Spotify have created a miniplayer and embedded it into the social media app to allow users to stream Spotify content through the Facebook app.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Enjoy Your Favorite Spotify Content on the Facebook App
 
  Before the rollout of this new miniplayer, it was already possible to share Spotify songs on Facebook with friends and family. But whenever you wanted to listen to them, you were automatically redirected to the Spotify app or website.
 
  Now, you can enjoy your favorite tunes without ever leaving the Facebook app.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Spotify music player](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/spotify-miniplayer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -46,23 +48,21 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
  Spotify’s miniplayer has already launched in the US, Canada, Australia, and in 25 other countries. Spotify is planning to expand this feature to more countries over the following months.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Listen to Spotify Songs Through the Facebook Miniplayer
 
  To launch the new Facebook player, simply tap the**Play** button on the Spotify song shared on the News Feed.
 
  When listening to a song in such a way for the first time, you’ll be asked to give consent to share your data, so (if you're happy to do so) click**Connect** to continue. Then you’ll be prompted to log in to your Spotify account if you haven’t already done that.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![how to play a song in the Spotify miniplayer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-miniplayer1.jpg)
 
 Close
@@ -72,22 +72,20 @@ Close
  Once the song ends, you’ll continue to listen to Spotify’s music on shuffle. To turn off the miniplayer, you’ll need to scroll back to it and pause the music or turn it off completely.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## More Audio Features Are Coming Soon
 
  To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as[Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,4 +94,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-a-list-hd-screen-recorders-for-optimal-performance/"><u>[New] 2024 Approved A-List HD Screen Recorders for Optimal Performance</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-crafting-a-compelling-profile-visual-experience/"><u>[New] 2024 Approved Crafting a Compelling Profile Visual Experience</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-top-ten-image-amplifiers-for-social-media/"><u>[Updated] In 2024, Top Ten Image Amplifiers for Social Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-selective-cinematic-forecast-collection/"><u>2024 Approved Selective Cinematic Forecast Collection</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-itel-p55-5g-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Itel P55 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-assessment-on-trump-profile-suspension/"><u>Facebook Assessment on Trump Profile Suspension</u></a></li>
+<li><a href="https://win-lab.techidaily.com/fast-and-secure-peer-to-peer-data-transfer-connecting-laptops-instantly/"><u>Fast and Secure Peer-to-Peer Data Transfer: Connecting Laptops Instantly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-tecno-pova-5-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Tecno Pova 5 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/propel-interactive-platforms-with-stories-and-page-polling/"><u>Propel Interactive Platforms with Stories & Page Polling</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-unwanted-friend-recommendations-by-fb/"><u>Reject Unwanted Friend Recommendations by FB</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tailoring-trailer-music-to-evoke-emotion-for-2024/"><u>Tailoring Trailer Music to Evoke Emotion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-showcasing-3d-photography-on-facebook/"><u>The Essential Guide to Showcasing 3D Photography on Facebook</u></a></li>
+<li><a href="https://video-capture.techidaily.com/video-repository-explorator/"><u>Video Repository Explorator</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-a-cautious-approach-to-online-friendships-is-vital/"><u>Why a Cautious Approach to Online Friendships Is Vital</u></a></li>
+<li><a href="https://facebook.techidaily.com/wipe-your-fb-alerts-an-instructional-article/"><u>Wipe Your Fb Alerts: An Instructional Article</u></a></li>
+</ul></div>
 

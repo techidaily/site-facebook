@@ -1,7 +1,7 @@
 ---
 title: Epic Failures in Digital World's Biggest Players
-date: 2025-01-06T16:00:22.105Z
-updated: 2025-01-12T22:44:19.210Z
+date: 2025-01-13T16:27:44.723Z
+updated: 2025-01-18T16:11:05.359Z
 tags:
   - facebook
 categories:
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/371f85ea9dfa1babb000dca91773b4eb09149fff5
  Facebook's entire network of online properties went offline for around 7 hours on October 5th 2021\. But how did this happen and why did it appear Facebook had completely vanished? In this podcast, we take a look at the events leading up to Facebook's unscheduled downtime. This includes some theories surrounding the event and the surrounding storm instigated by whistle-blower Frances Haugen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -51,20 +51,18 @@ In this week's show we discuss:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-video-tweeting-on-phones-avoid-retweets/"><u>[New] 2024 Approved Direct Video Tweeting on Phones - Avoid Retweets</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-streamlining-office-communication-which-favors-teams-more-slack-or-discord-for-2024/"><u>[New] Streamlining Office Communication Which Favors Teams More, Slack or Discord for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-perfectly-polished-pictures-top-grid-tools-revealed/"><u>[Updated] 2024 Approved Perfectly Polished Pictures Top Grid Tools Revealed</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-exploring-whether-itop-fits-your-tech-needs-for-2024/"><u>[Updated] Exploring Whether ITop Fits Your Tech Needs for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-decoding-instagrams-reels-and-stories-differences/"><u>[Updated] In 2024, Decoding Instagram's Reels and Stories Differences</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-downtime-in-social-media-landscapes/"><u>Deciphering Downtime in Social Media Landscapes</u></a></li>
-<li><a href="https://facebook.techidaily.com/delete-prep-navigate-your-facebook-break-with-ease/"><u>Delete Prep: Navigate Your Facebook Break With Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-authorship-in-online-visual-content/"><u>Determining Authorship in Online Visual Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-if-(securityfbcom)-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if <security@fb.com> Is a Secure and Legitimate Mail Service From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/disable-friends-who-stay-hidden-on-facebook/"><u>Disable Friends Who Stay Hidden on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-function-of-facebooks-regulatory-panel/"><u>Dissecting the Function of Facebook's Regulatory Panel</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-13-proplus-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 13 Pro+ 5G to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-ace-the-art-of-editing-say-goodbye-to-overflowing-tiktok-drafts/"><u>In 2024, Ace the Art of Editing Say Goodbye to Overflowing TikTok Drafts</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/trade-in-tactics-apples-smartphone-upgrade-program/"><u>Trade-In Tactics: Apple’s Smartphone Upgrade Program</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/understanding-the-windows-10-battery-status-screen-a-comprehensive-guide/"><u>Understanding the Windows 10 Battery Status Screen - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-breaking-news-afbs-secret-to-trending-content-for-2024/"><u>[New] Breaking News AFB's Secret to Trending Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-various-ways-to-earn-on-youtube/"><u>[New] In 2024, Exploring Various Ways to Earn on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-vintage-racing-spectacles-top-five/"><u>[New] In 2024, Vintage Racing Spectacles Top Five</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-top-10-boosting-tiktok-success-with-key-analytics-for-2024/"><u>[Updated] TOP 10 Boosting TikTok Success with Key Analytics for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/compatibility-checklist-phone-list-for-gear-vr-2023/"><u>Compatibility Checklist Phone List for Gear VR 2023</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-official-acer-touchpad-driver-for-windows-10-compatible-and-updated-version/"><u>Download Official Acer Touchpad Driver for Windows 10 - Compatible and Updated Version</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/dynamic-instagram-collage-views/"><u>Dynamic Instagram Collage Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-enhances-user-experience-with-whatsapp-2fa-integration/"><u>Instagram Enhances User Experience with WhatsApp 2FA Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-emotional-connection-via-facebook-memories/"><u>Maximizing Emotional Connection via Facebook Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-assurance-delete-your-fb-browsing-data/"><u>Privacy Assurance: Delete Your FB Browsing Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/transitioning-personal-brand-how-to-alter-your-name-on-facebook/"><u>Transitioning Personal Brand: How to Alter Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-fb-account-inaccessibility-and-lockout/"><u>Troubleshooting FB Account Inaccessibility & Lockout</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/webcam-innovation-cutting-edge-live-video-technology-for-2024/"><u>Webcam Innovation Cutting-Edge Live Video Technology for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Keep It Confidential! Top Privacy Blunders to Escape on Social Media
-date: 2025-01-06T16:50:22.114Z
-updated: 2025-01-12T16:58:04.821Z
+date: 2025-01-14T16:16:10.271Z
+updated: 2025-01-18T16:27:17.935Z
 tags:
   - facebook
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -28,23 +32,19 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
  As a safer alternative, don't share any details or pictures about your trip until after you return. While this is less exciting, it protects you because you're not advertising to the world that you're away from home for an extended period.
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Location Data
 
@@ -53,6 +53,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  Depending on where you share photos, people may also be able to access photo metadata that shows more details about what took the photo and where it was captured.[Deleting photo metadata before uploading](https://www.makeuseof.com/delete-your-metadata-before-sharing-your-files/) is thus a wise idea.
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Personally-Identifying Information
 
@@ -73,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Self-Incriminating Evidence
@@ -98,10 +102,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
  The key point is that you simply don't (and can't) know all the facts. If someone is sick or in trouble, they should seek professional help. This also applies to advice on exercise, weight loss, diet, finance, relationships, and other sensitive topics. You're not going to get the whole picture from a social post.
@@ -111,6 +111,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -131,10 +135,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  On the internet, once something has been published, it's pretty much impossible to remove it completely. Even if you set your posts to "friends only," there's no way to know for sure who's seen your posts and photos, saved them, or shared them with someone else. Someone could always send a screenshot to another person who can't "officially" see the post, for instance.
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
 
@@ -157,17 +157,21 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-dash.techidaily.com/es-posible-la-compresion-automatica-de-archivos-mediante-smb-en-windows-server-2022/"><u>¿Es Posible La Compresión Automática De Archivos Mediante SMB en Windows Server 2022?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-leveraging-windows-11-features-for-top-notch-gaming-capture/"><u>[Updated] 2024 Approved Leveraging Windows 11 Features for Top-Notch Gaming Capture</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-seamless-screenshot-synergy-for-pc-users/"><u>[Updated] Seamless Screenshot Synergy for PC Users</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-choice-of-steadicams-for-drone-shooting/"><u>[Updated] Ultimate Choice of Steadicams for Drone Shooting</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-analyzing-the-impact-of-reduced-photo-jiggles-in-adobe/"><u>2024 Approved Analyzing the Impact of Reduced Photo Jiggles in Adobe</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-duty-dispute-whatsapp-sues-over-it-rule-impacts/"><u>Digital Duty Dispute: WhatsApp Sues Over IT Rule Impacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-immersive-ar-messages-from-fb-messenger/"><u>Discover Immersive AR Messages From FB Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-most-memorable-podcasts-of-2022/"><u>Discovering the Most Memorable Podcasts of 2022</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-reasons-for-facebooks-naming-shift/"><u>Dissecting the Reasons for Facebook's Naming Shift</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-enhance-your-photo-game-with-top-editors/"><u>In 2024, Enhance Your Photo Game with Top Editors</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-11-pro-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, iPhone 11 Pro Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/solved-scan-to-computer-is-no-longer-activated-on-windows-10/"><u>Solved: Scan to Computer Is No Longer Activated on Windows 10</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-10-free-downloads-legal-meditation-melodies/"><u>2024 Approved Best 10 Free Downloads Legal Meditation Melodies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pushing-boundaries-3d-text-in-adobe-illustrator/"><u>2024 Approved Pushing Boundaries 3D Text in Adobe Illustrator</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-motorola-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Motorola</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-apple-iphone-8-plus-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>Best Apple iPhone 8 Plus & iPad Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-user-interactions-with-a-focus-on-news-streams/"><u>Exploring User Interactions with a Focus on News Streams</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/freeze-the-frame-overcoming-shake-phenomena-for-2024/"><u>Freeze the Frame Overcoming Shake Phenomena for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-nvidia-high-definition-audio-no-sound/"><u>How to Fix Nvidia High Definition Audio No Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-mutualities-facebooks-friendlist-shield/"><u>Masked Mutualities: Facebook's Friendlist Shield</u></a></li>
+<li><a href="https://facebook.techidaily.com/resurrect-the-inactive-restore-your-facebook-experience/"><u>Resurrect the Inactive: Restore Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-connectivity-what-to-expect-from-fbs-boombox-with-spotify/"><u>Revolutionizing Connectivity: What to Expect From FB's Boombox With Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/sealing-your-social-exit-complete-unsubscription-from-fb/"><u>Sealing Your Social Exit: Complete Unsubscription From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-breakthroughs-in-technology-youve-missed-out-on/"><u>The Biggest Breakthroughs in Technology You've Missed Out On</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-essential-guide-to-iphone-reflections-in-landscapes/"><u>The Essential Guide to iPhone Reflections in Landscapes</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723862839510-transform-your-workspace-get-the-immersive-lg-34-inch-499-curved-ultragear-display-today/"><u>Transform Your Workspace: Get the Immersive LG 34-Inch $499 Curved UltraGear Display Today</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-fixing-modern-warfare-game-crashes-and-lag-issues-on-windows/"><u>Troubleshooting: Fixing 'Modern Warfare' Game Crashes & Lag Issues on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-etiquette-in-digital-interactions/"><u>Understanding Social Etiquette in Digital Interactions</u></a></li>
 </ul></div>
 

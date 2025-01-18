@@ -1,7 +1,7 @@
 ---
 title: Digital Detox for Youths? Facebook Proposes Break From Instagram
-date: 2024-07-29T07:39:53.436Z
-updated: 2024-07-30T07:39:53.436Z
+date: 2025-01-13T16:05:44.471Z
+updated: 2025-01-18T16:03:05.225Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,9 @@ thumbnail: https://thmb.techidaily.com/0dca80060c58b2b6bbf1021b5cfac76e3fa6cc6f3
 Here's what to know about the planned Instagram features.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Planned "Take a Break" Feature?
 
  Facebook says it wants to play its part in ensuring that young Instagram users don't spend too much time on the app, so it will be launching a Take a Break feature. The feature will encourage teens to step away from using the app temporarily.
@@ -40,8 +40,9 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -53,8 +54,9 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Is Facebook Introducing These Features?
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
@@ -66,8 +68,9 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 
  While Facebook is doing something to help reduce the harm it allegedly causes children on its platforms, these new measures fall short of making a real impact.
@@ -78,14 +81,11 @@ Here's how Clegg explained it:
 
  For instance, since Facebook is aware of what type of content is potentially harmful, it should work on not showing that content to children in the first place, instead of intervening after it has been viewed multiple times.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -94,4 +94,24 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-secrets-of-the-pros-screening-your-switch-games/"><u>[New] 2024 Approved Secrets of the Pros Screening Your Switch Games</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-transform-your-podcast-with-these-google-upload-insights/"><u>[New] In 2024, Transform Your Podcast with These Google Upload Insights</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-distance-dominators-the-ultimate-long-flight-drones-list/"><u>[Updated] 2024 Approved Distance Dominators The Ultimate Long-Flight Drones List</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximizing-hit-rates-with-youtubes-best-thumbnail-strategies/"><u>[Updated] Maximizing Hit Rates with YouTube's Best Thumbnail Strategies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-navigating-the-top-10-ways-to-improve-fb-page-rankings-for-2024/"><u>[Updated] Navigating the Top 10 Ways to Improve FB Page Rankings for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhance-clarity-and-contrast-expert-tips-for-tuning-your-samsung-4k-screens-image-quality/"><u>Enhance Clarity & Contrast: Expert Tips for Tuning Your Samsung 4K Screen's Image Quality</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-evolving-with-touch-technology/"><u>Is Social Media Evolving with Touch Technology?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-intersections-of-privacy-and-convenience-with-facebook-logins/"><u>Navigating the Intersections of Privacy and Convenience with Facebook Logins</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-excel-2013-files-from-virus-infected-pen-drives-for-free-stellar-by-stellar-guide/"><u>Recover Excel 2013 Files from Virus-Infected Pen Drives for Free | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-embrace-on-instagram-live/"><u>Silence Embrace on Instagram Live</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-rolls-out-innovative-admin-control-tools/"><u>Social Media Giant Rolls Out Innovative Admin Control Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-appoint-an-admin-for-your-fb-page/"><u>Step-by-Step: Appoint an Admin for Your FB Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-double-edged-sword-of-engagement-on-facebook/"><u>The Double-Edged Sword of Engagement on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-the-page-with-blocked-facebook-buddies/"><u>Turn the Page with Blocked Facebook Buddies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchecked-zones-vaccine-hesitancy-grows-in-social-media/"><u>Unchecked Zones: Vaccine Hesitancy Grows in Social Media</u></a></li>
+</ul></div>
 

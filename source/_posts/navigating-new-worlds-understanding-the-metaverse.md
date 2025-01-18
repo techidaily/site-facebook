@@ -1,7 +1,7 @@
 ---
 title: "Navigating New Worlds: Understanding the Metaverse"
-date: 2025-01-09T17:19:32.698Z
-updated: 2025-01-12T19:06:39.336Z
+date: 2025-01-17T16:12:50.021Z
+updated: 2025-01-18T16:22:40.382Z
 tags:
   - facebook
 categories:
@@ -26,17 +26,9 @@ So, what is the metaverse?
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Etymology and Origin of the Term "Metaverse" and Its Concept
 
 ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -51,7 +43,7 @@ So, what is the metaverse?
 ![Girl wearing glasses lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Girl-wearing-glasses-neon-lights.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Stephenson, on his part, describes his metaverse in Snow Crash, instead of as a hallucination, but as “graphic representations—the user interfaces—of a myriad different pieces of software that have been engineered by major corporations” and as “made available to the public over the worldwide fiber-optics network.” This is science fiction talking, of course. The metaverse doesn’t really exist.
@@ -71,7 +63,7 @@ Yet.
 ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
@@ -94,13 +86,13 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The Metaverse Precursors
 
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -111,9 +103,17 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Metaverse Is the Future of the Internet
 
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -136,22 +136,22 @@ Yet.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-navigating-through-windows-11s-new-frontier/"><u>[New] Navigating Through Windows 11'S New Frontier</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-complete-guide-twitter-reaction-videos/"><u>[Updated] 2024 Approved Complete Guide | Twitter Reaction Videos</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-blueprints-for-the-ultimate-home-studio-a-4k-editing-powerhouse/"><u>[Updated] Blueprints for the Ultimate Home Studio A 4K Editing Powerhouse</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-methodology-incorporating-youtube-playlists-into-a-websites-structure/"><u>[Updated] In 2024, Methodology Incorporating YouTube Playlists Into a Website's Structure</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-integrating-slack-and-filmora-for-smooth-meeting-operations/"><u>[Updated] Integrating Slack & Filmora for Smooth Meeting Operations</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-drone-selections-for-young-pilots-and-rookie-flyers-for-2024/"><u>Best Drone Selections for Young Pilots and Rookie Flyers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-walls-of-time-for-nba-watchers/"><u>Breaking Down Walls of Time for NBA Watchers</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypass-lost-phones-security-fastest-way-to-fb-without-phone/"><u>Bypass Lost Phones' Security: Fastest Way to FB without Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/channeling-more-meaningful-connections-within-communities/"><u>Channeling More Meaningful Connections Within Communities</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatbot-cupid-unlocking-better-relationships-through-ai-assisted-dating-advice/"><u>Chatbot Cupid: Unlocking Better Relationships Through AI-Assisted Dating Advice</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparative-study-oculus-account-security-features/"><u>Comparative Study: Oculus Account Security Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-fun-on-fb-be-covering-up-hidden-dangers/"><u>Could Fun on FB Be Covering Up Hidden Dangers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/cross-platform-content-posting-instagram-reels-to-facebook/"><u>Cross-Platform Content: Posting Instagram Reels to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/crossing-paths-increased-bond-between-facebook-and-instagram/"><u>Crossing Paths: Increased Bond Between Facebook & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-shutdown-global-giants-blackout-briefcase/"><u>Cyber Shutdown: Global Giants' Blackout Briefcase</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/no-expenses-the-ultimate-guide-to-16-top-tier-youtube-rippers-for-audios-for-2024/"><u>No Expenses The Ultimate Guide to 16 Top-Tier YouTube Rippers for Audios for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-quick-guide-to-restore-video-sharing-in-fb-messengers-iosandroid/"><u>[Updated] 2024 Approved Quick Guide to Restore Video Sharing in FB Messengers (iOS/Android)</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-essential-steps-to-proficiently-employing-iphone-x-animoji-for-2024/"><u>[Updated] Essential Steps to Proficiently Employing iPhone X Animoji for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-fbx-recorder-essentials-for-players-for-2024/"><u>[Updated] FBX Recorder Essentials For Players for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-metas-trusted-identity-in-america/"><u>Embrace Meta's Trusted Identity in America</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-transform-your-imagination-into-reality-with-top-animation-software/"><u>In 2024, Transform Your Imagination Into Reality with Top Animation Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-communal-territories-now-on-facebook/"><u>Interactive Communal Territories Now on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-study-networkings-adverse-effects/"><u>Mass Perception Study: Networking's Adverse Effects</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/preparing-to-engage-in-googles-video-meetings-for-2024/"><u>Preparing to Engage in Google's Video Meetings for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/say-goodbye-to-gaming-hiccups-the-definitive-2024-strategies-for-stunningly-fluid-gameplay-at-maximum-fps/"><u>Say Goodbye to Gaming Hiccups: The Definitive 2024 Strategies for Stunningly Fluid Gameplay at Maximum FPS</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-profile-visibility-on-fb/"><u>Securing Your Profile Visibility on FB</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/smartwatch-shopping-guide-the-key-factors-you-shouldnt-ignore/"><u>Smartwatch Shopping Guide: The Key Factors You Shouldn't Ignore</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-how-to-preventing-responses-on-your-social-media-update/"><u>The Ultimate How-To: Preventing Responses on Your Social Media Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-unspoken-etiquette-for-online-acquaintance-requests/"><u>Understanding Unspoken Etiquette for Online Acquaintance Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-the-power-of-hd-media-in-social-networks/"><u>Unleashing the Power of HD Media in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-anticipate-a-crypto-fueled-ad-wave/"><u>Why Anticipate a Crypto-Fueled Ad Wave?</u></a></li>
+<li><a href="https://discover-able.techidaily.com/wie-man-fotos-vom-iphone-erfolgreich-in-windows-1011-ubertragen-kann/"><u>Wie Man Fotos Vom iPhone Erfolgreich in Windows 10/11 Übertragen Kann</u></a></li>
 </ul></div>
 

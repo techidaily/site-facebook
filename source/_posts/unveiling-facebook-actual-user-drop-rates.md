@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Facebook: Actual User Drop Rates?"
-date: 2024-12-29T20:49:03.317Z
-updated: 2025-01-05T22:48:24.523Z
+date: 2025-01-13T16:24:07.761Z
+updated: 2025-01-18T16:24:03.895Z
 tags:
   - facebook
 categories:
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## So How Many Users Have Facebook Lost?
 
  The[2021 Q4 earnings report of Meta](https://app.quotemedia.com/data/downloadFiling?webmasterId=90423&ref=116418952&type=PDF&symbol=FB&companyName=Meta+Platforms+Inc.&formType=10-K&formDescription=Annual+report+pursuant+to+Section+13+or+15%28d%29&dateFiled=2022-02-03&CK=1326801) showed that Facebook’s daily active users (DAUs) have shrunk from 1.930 billion to around 1.929 billion. This means that Facebook lost between 500,000 and one million users, depending on the news source.
@@ -39,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf0
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Mark Zuckerberg's Statement on Losing Users
@@ -47,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf0
 ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
@@ -59,16 +63,12 @@ thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf0
  But TikTok is not the only[reason for Facebook's declining users](https://www.makeuseof.com/why-facebook-is-losing-users/) . Lack of interest among the younger population, no markets to expand into, and its controversial privacy and tracking policies have all contributed to this trend.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Facebook’s End Near?
 
 ![facebook logo fallen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-logo-fallen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  A negligibly-small drop in the number of daily users, and that too for the first time, doesn’t mean that Facebook will fade away anytime soon. The Meta’s expansion into the metaverse will definitely help its flagship product, Facebook.
 
@@ -81,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf0
  As it aggressively promotes Horizon Worlds, VR devices, and Reels, Facebook might regain the interest of young adults—a step which is essential to increase its user base. Moreover, a change in its privacy program and ads infrastructure can also help the platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook's User Loss Is Not as Big as It Seems
@@ -107,22 +107,24 @@ thumbnail: https://thmb.techidaily.com/ad7d05b0030775951042fde08b0fbde9a0ebb4cf0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-essential-open-worlds-you-cant-ignore/"><u>[New] In 2024, Essential Open Worlds You Can't Ignore</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-strategic-message-management-expert-tips-for-discord-pinning/"><u>[Updated] 2024 Approved Strategic Message Management Expert Tips for Discord Pinning</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-post-tomorrow-assessment-original-ideas/"><u>[Updated] Post-Tomorrow Assessment Original Ideas</u></a></li>
-<li><a href="https://fox-links.techidaily.com/10-best-free-luts-roundup-download-links-galore/"><u>10 Best Free LUTs Roundup - Download Links Galore</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
-<li><a href="https://facebook.techidaily.com/engaging-evolution-understanding-the-role-of-news-on-facebook/"><u>Engaging Evolution: Understanding the Role of News on Facebook</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/from-vision-to-reality-personal-animation-mastery/"><u>From Vision to Reality Personal Animation Mastery</u></a></li>
-<li><a href="https://facebook.techidaily.com/high-tech-hustlers-defending-your-digital-self/"><u>High-Tech Hustlers: Defending Your Digital Self</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-lava-yuva-2-is-unlocked-by-drfone-android/"><u>How To Check if Your Lava Yuva 2 Is Unlocked</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-huawei-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Huawei Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/merging-social-media-and-chat-apps-the-whatsapp-facebook-nexus/"><u>Merging Social Media & Chat Apps: The WhatsApp-Facebook Nexus</u></a></li>
-<li><a href="https://facebook.techidaily.com/pioneering-tech-future-with-facebook-and-rust-fusion/"><u>Pioneering Tech Future with Facebook and Rust Fusion</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/seamless-video-conferencing-with-zoom-and-gmail/"><u>Seamless Video Conferencing with Zoom & Gmail</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/streamlining-tiktok-posts-for-facebook-exposure-for-2024/"><u>Streamlining TikTok Posts for Facebook Exposure for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-content-how-to-disable-auto-feed-suggestions/"><u>Unseen Content: How to Disable Auto-Feed Suggestions</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-vigilance-in-verification-leveraging-facebooks-advanced-moderation-mechanisms/"><u>Virtual Vigilance in Verification: Leveraging Facebook's Advanced Moderation Mechanisms</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-imovie-magic-ranking-the-best-8-free-and-paid-film-apps/"><u>[Updated] IMovie Magic Ranking the Best 8 Free and Paid Film Apps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-effortless-integration-igtv-and-instagram-stories/"><u>[Updated] In 2024, Effortless Integration IGTV & Instagram Stories</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-a-flash-streamlined-techniques-for-cutting-images-online/"><u>[Updated] In a Flash Streamlined Techniques for Cutting Images Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-introduces-new-social-audio-features-to-compete-with-clubhouse/"><u>Facebook Introduces New Social Audio Features to Compete With Clubhouse</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gtx-970-seamless-driver-integration-with-win-11/"><u>GTX 970 - Seamless Driver Integration with Win 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-1-v-phone-without-pin-by-drfone-android/"><u>How to Unlock Sony Xperia 1 V Phone without PIN</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-community-effective-ways-to-amplify-facebook-conversations/"><u>Ignite Community: Effective Ways to Amplify Facebook Conversations</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/metaverse-and-multiverse-demystified-an-in-depth-guide/"><u>Metaverse and Multiverse Demystified An In-Depth Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-old-friends-a-facebook-journey/"><u>Revisiting Old Friends: A Facebook Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-intrusion-turned-financial-strategy/"><u>Social Intrusion Turned Financial Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-silent-suffocation-dissolve-your-fb-brand/"><u>Steps for Silent Suffocation: Dissolve Your FB Brand</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-social-engineering-on-your-facebook-account/"><u>Stop Social Engineering on Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bedrock-of-bitcoins-ecosystem-decoding-stablecoins/"><u>The Bedrock of Bitcoin's Ecosystem: Decoding Stablecoins</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-big-four-in-digital-communication-unpacking-facebook-twitter-instagram-and-youtube/"><u>The Big Four in Digital Communication: Unpacking Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-path-to-claiming-a-facebook-buyback/"><u>The Ultimate Path to Claiming a Facebook Buyback</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-social-media-game-changer-mastering-the-art-of-making-videos-for-facebook/"><u>The Ultimate Social Media Game Changer: Mastering the Art of Making Videos for Facebook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-10-free-web-based-video-chatting-tools/"><u>Top 10 Free Web-Based Video Chatting Tools</u></a></li>
+<li><a href="https://win-data.techidaily.com/wdhdd2/"><u>WD外付けHDDクリーンアップ:最も効果的な2つの手順</u></a></li>
 </ul></div>
 

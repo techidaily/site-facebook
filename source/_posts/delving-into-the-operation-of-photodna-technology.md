@@ -1,7 +1,7 @@
 ---
 title: Delving Into the Operation of PhotoDNA Technology
-date: 2024-07-29T07:39:05.164Z
-updated: 2024-07-30T07:39:05.164Z
+date: 2025-01-11T16:01:44.296Z
+updated: 2025-01-18T16:10:24.395Z
 tags:
   - facebook
 categories:
@@ -22,9 +22,9 @@ thumbnail: https://thmb.techidaily.com/e73bb44e853b64ea13a3dc6d94705befdc354ca8d
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -38,9 +38,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Does PhotoDNA Work?
 
  When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
@@ -60,8 +60,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -75,13 +76,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
@@ -91,8 +90,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Does PhotoDNA Make the Internet Safer?
 
  The Microsoft-developed service is undoubtedly an essential tool. PhotoDNA plays a crucial role in preventing these images from spreading and may even help to help at-risk children.
@@ -101,14 +101,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +114,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-disconnect-and-delete-discord-accounts-devices/"><u>[New] Disconnect and Delete Discord Accounts (Devices)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-video-editor-face-off-making-an-informed-decision-filmora-vs-democracy-creator/"><u>[Updated] In 2024, The Video Editor Face-Off Making an Informed Decision (Filmora Vs. Democracy Creator)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-digital-chronicling-of-live-audio-content-on-the-net/"><u>2024 Approved Digital Chronicling of Live Audio Content on the Net</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-directive-balancing-social-interaction-for-younger-users/"><u>Facebook's New Directive: Balancing Social Interaction for Younger Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-outage-alert-how-to-stay-informed-and-prepared/"><u>FB Outage Alert: How to Stay Informed and Prepared</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-2-review-combining-a-workout-companion-with-the-power-of-a-connected-watch/"><u>Fitbit Versa 2 Review: Combining a Workout Companion with the Power of a Connected Watch</u></a></li>
+<li><a href="https://techtrends.techidaily.com/freshly-compiled-netgear-device-passwords-access-guide-july-2024/"><u>Freshly Compiled NETGEAR Device Passwords: Access Guide (July 2024)</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/hands-on-tips-easily-fix-reboot-and-select-proper-boot-path-message-on-windows/"><u>Hands-On Tips: Easily Fix 'Reboot and Select Proper Boot Path' Message on Windows</u></a></li>
+<li><a href="https://windows11.techidaily.com/mastering-excel-tips-how-to-create-bullet-point-items-in-your-spreadsheets-easily/"><u>Mastering Excel Tips: How To Create Bullet Point Items In Your Spreadsheets Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-online-romance-your-facebook-guide/"><u>Navigating the Nuances of Online Romance: Your Facebook Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/perfecting-fading-audio-tracks-through-audacitys-tools/"><u>Perfecting Fading Audio Tracks Through Audacity's Tools</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/resolving-issues-with-the-windows-migration-assistant-top-5-strategies/"><u>Resolving Issues with the Windows Migration Assistant: Top 5 Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-9-warning-signs-for-a-breached-account/"><u>Spotting 9 Warning Signs for a Breached Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-liberating-life-beyond-likes-and-shares-top-10-reasons-to-quit-facebook/"><u>The Liberating Life Beyond Likes and Shares - Top 10 Reasons to Quit Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrading-your-visual-presence-on-mobile-fb-platform/"><u>Upgrading Your Visual Presence on Mobile Fb Platform</u></a></li>
+</ul></div>
 

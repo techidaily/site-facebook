@@ -1,7 +1,7 @@
 ---
 title: Departing Leader of Facebook's Advertising Strategy
-date: 2024-07-29T07:38:59.111Z
-updated: 2024-07-30T07:38:59.111Z
+date: 2025-01-17T16:13:46.359Z
+updated: 2025-01-18T16:01:43.310Z
 tags:
   - facebook
 categories:
@@ -20,17 +20,9 @@ thumbnail: https://thmb.techidaily.com/a6f140ff4ddda64bd14cec3cab639274aa642e4bb
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Loses Its Top Ad Executive
 
  Carolyn Everson, now former vice president of Facebook's Global Business Group, has[posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
@@ -39,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/a6f140ff4ddda64bd14cec3cab639274aa642e4bb
 
  "I am extremely proud of what we set out to accomplish but way more proud of my team and the support we showed each other, especially in difficult times," Everson writes. "I am very much looking forward to starting a new chapter."
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
@@ -59,14 +52,16 @@ thumbnail: https://thmb.techidaily.com/a6f140ff4ddda64bd14cec3cab639274aa642e4bb
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
 
@@ -74,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/a6f140ff4ddda64bd14cec3cab639274aa642e4bb
 
  It's a role with a lot of responsibilities, and thus, a lot of stress. We'll have to wait and see whether this'll cause any major changes to the company's operations.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -90,4 +82,20 @@ thumbnail: https://thmb.techidaily.com/a6f140ff4ddda64bd14cec3cab639274aa642e4bb
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/implifying-slide-creations-with-youtube-content-for-2024/"><u>[New] Simplifying Slide Creations with YouTube Content for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-viral-vibes-a-guide-to-memetic-magic-for-2024/"><u>[New] Viral Vibes A Guide to Memetic Magic for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-understanding-cultural-influences-on-consumer-behavior-in-global-markets/"><u>[Updated] Understanding Cultural Influences on Consumer Behavior in Global Markets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/crisp-capture-leaders-the-ultimate-list-of-premium-4k-phone-cameras-for-2024/"><u>Crisp Capture Leaders The Ultimate List of Premium 4K Phone Cameras for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-sony-bdp-s6500-review-updated/"><u>In 2024, Sony BDP-S6500 Review - Updated</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-on-iphone-12-pro-max-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide on iPhone 12 Pro Max iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/the-art-of-sharing-online-videos-from-youtube-to-facebook-for-2024/"><u>The Art of Sharing Online Videos From YouTube to Facebook for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-essentials-of-crafting-crystal-clear-vhs-graphics-online/"><u>The Essentials of Crafting Crystal-Clear VHS Graphics Online</u></a></li>
+</ul></div>
 

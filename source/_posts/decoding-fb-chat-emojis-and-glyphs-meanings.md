@@ -1,7 +1,7 @@
 ---
 title: Decoding FB Chat Emojis & Glyphs Meanings
-date: 2024-07-29T07:38:19.784Z
-updated: 2024-07-30T07:38:19.784Z
+date: 2025-01-12T16:09:24.340Z
+updated: 2025-01-18T16:05:59.272Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
 ## 1\. Open Blue Circle
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![blue circle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle.jpg)
 
  The open blue circle Facebook Messenger icon means that your message is currently being sent.
@@ -31,23 +28,17 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
  If you navigate away from the message or lose network connectivity while the open blue circle is present, Facebook still sends the message once the connection is restored.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Open Blue Circle + Checkmark
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
 
  The open blue circle with a checkmark means that your message has been delivered.
 
  At this point, the recipient will see your message as soon as they open the Messenger app. But if they're not online, they may not be able to see it yet.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Filled Blue Circle + Check
 
 ![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
@@ -56,26 +47,25 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
  While the person may not have seen your message yet, you can be confident that it'll be available to them whenever they next check their phone, tablet, or computer.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## 4\. Red Triangle + Exclamation
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
 
  A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
 
  A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you[fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Green Dot
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A green dot in the lower right corner of your contacts' pictures at the top indicates that they're online and available to chat.
 
@@ -91,6 +81,10 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
  Opening a chat with a blue dot removes the dot and shows the sender that you've opened and read their message. This feature is also handy for quickly sorting and identifying messages you don't want to read.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. A Gray Crossed-Out Bell
 
 ![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
@@ -99,25 +93,31 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
  You can mute a chat in the Messenger app for as long as you want or use one of the default timings to unmute them when the chosen time elapses.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 8\. The Lock Icon
 
 ![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Know if Someone Saw Your Facebook Message
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
 
  If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
 
  You'll also see the word “Seen” displayed under a message that has been read, along with a timestamp to let you know when the recipient opened it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook Messenger Alternatives
 
@@ -125,14 +125,11 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
  Other popular alternatives to Messenger include WhatsApp, Viber, and Telegram. If you live in Asia, check out WeChat and Line. And remember, Messenger also works with Facebook's other major service, Instagram.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +138,16 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-guide-free-youtube-downloads-without-programs/"><u>[Updated] Guide Free YouTube Downloads Without Programs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-redmi-13c-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi Redmi 13C 5G</u></a></li>
+<li><a href="https://win11.techidaily.com/bridging-the-gap-onedrive-and-microsoft-id-for-pc-users/"><u>Bridging the Gap: OneDrive & Microsoft ID for PC Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-login-attempt-success-rate-on-facebook-code-fix/"><u>Enhancing Login Attempt Success Rate on Facebook (Code Fix)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/from-passive-to-active-income-profitable-facebook-tactics/"><u>From Passive to Active Income Profitable Facebook Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustle-your-guide-to-evasion-strategies/"><u>High-Tech Hustle: Your Guide to Evasion Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-photodna-process-for-identifying-forged-images/"><u>Insight Into PhotoDNA: Process for Identifying Forged Images</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210585511-9781637108666-know-thyself-the-7-dimensions-of-wellness/"><u>Know Thyself: The 7 Dimensions of Wellness | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ethics-enforcement-properly-ban-trump-but-for-how-long/"><u>Online Ethics Enforcement: Properly Ban Trump, But for How Long?</u></a></li>
+</ul></div>
 

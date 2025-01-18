@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2025-01-10T21:28:21.164Z
-updated: 2025-01-12T19:50:08.029Z
+date: 2025-01-16T16:26:40.159Z
+updated: 2025-01-18T16:21:50.214Z
 tags:
   - facebook
 categories:
@@ -36,16 +36,12 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
@@ -55,13 +51,13 @@ To get a Facebook account memorialized, follow these steps:
 
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -75,6 +71,10 @@ To get a Facebook account memorialized, follow these steps:
 ![Special request form for deceased persons account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Special-request-form-for-deceased-persons-account.jpg)
 2. In the**Full Name** section, enter your official credentials.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
 4. After that, enter the deceased person’s name as written on their Facebook profile. It can differ from the name mentioned on their death certificate. This is why Facebook recommends using your actual name when creating a profile.
 5. Copy the URL from their Facebook profile and paste it under the**Link (URL) to the Person's Profile** section. To copy a URL on mobile, go to the deceased person's**Profile** , tap the three dots, and under**Profile Link** , select**Copy Profile Link** .
@@ -84,7 +84,7 @@ To get a Facebook account memorialized, follow these steps:
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
@@ -97,7 +97,7 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -123,24 +123,19 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-perpetual-screen-moments-tool-for-2024/"><u>[New] Perpetual Screen Moments Tool for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-silent-spectator-of-social-media-snippets/"><u>[New] Silent Spectator of Social Media Snippets</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-smart-buying-top-value-action-cam-models-for-2024/"><u>[New] Smart Buying Top Value Action Cam Models for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-android-sound-capture-4-non-root-methods-for-2024/"><u>[Updated] Effortless Android Sound Capture 4 Non-Root Methods for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-become-a-streaming-sensation-on-twitter-platform/"><u>2024 Approved Become a Streaming Sensation on Twitter Platform</u></a></li>
-<li><a href="https://driver-error.techidaily.com/bcm20702a0-support-issue-detected/"><u>BCM20702A0 Support Issue Detected</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-social-media-insights-from-facebooks-openness-hub/"><u>Deciphering Social Media: Insights From Facebook's Openness Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-your-targeted-ads-on-facebook/"><u>Deciphering Your Targeted Ads on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/decision-on-trump-account-shelved-by-facebook-watchdog/"><u>Decision on Trump Account Shelved by Facebook Watchdog</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-most-frequent-facebook-hurdles-and-fixes/"><u>Decoding the Most Frequent Facebook Hurdles & Fixes</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-web-of-connections-total-summary-of-your-facebook-history/"><u>Decoding the Web of Connections: Total Summary of Your Facebook History</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-innovation-unleashed-with-meta-drops-on-social-networks/"><u>Digital Innovation Unleashed with Meta Drops on Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-dominant-digital-outlets-for-corporates/"><u>Discovering the Dominant Digital Outlets for Corporates</u></a></li>
-<li><a href="https://facebook.techidaily.com/dodging-digital-deceptions-securing-transactions-in-the-social-swap-sphere/"><u>Dodging Digital Deceptions – Securing Transactions in the Social Swap Sphere</u></a></li>
-<li><a href="https://facebook.techidaily.com/earn-verified-status-through-metas-investment/"><u>Earn Verified Status Through Metas Investment</u></a></li>
-<li><a href="https://windows11.techidaily.com/elevate-your-game-amplifying-graphics-power-in-windows-1011/"><u>Elevate Your Game: Amplifying Graphics Power in Windows 10/11</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/step-by-step-tutorial-restoring-deleted-photos-from-icloud-photo-streams-efficiently/"><u>Step-by-Step Tutorial: Restoring Deleted Photos From iCloud Photo Streams Efficiently</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/top-tweet-talent-showdown-1-10-edition/"><u>Top Tweet Talent Showdown #1-#10 Edition</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-diagnostic-criteria-for-fetal-alcohol-syndrome/"><u>[New] 2024 Approved Diagnostic Criteria for Fetal Alcohol Syndrome</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-maximizing-video-visibility-on-youtube-through-lighting/"><u>[Updated] 2024 Approved Maximizing Video Visibility on YouTube Through Lighting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-lava-agni-2-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Lava Agni 2 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-childs-information-in-messenger-kids/"><u>How to Change Your Child's Information in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-night-mode-on-facebook-profile/"><u>Implementing Night Mode on Facebook Profile</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-y100t-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo Y100t Phone FRP Lock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenswave-proconnect-25x-review-superior-quality-at-an-extreme-price/"><u>LensWave ProConnect 25X Review: Superior Quality at an Extreme Price</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-failure-fb-whatsapp-and-instagram-halted/"><u>Network Failure: FB, WhatsApp & Instagram Halted</u></a></li>
+<li><a href="https://win-blog.techidaily.com/pc-players-guide-eliminating-bugs-causing-persona-titis-iii-reboot-to-refresh-snapshots-freezing-issues/"><u>PC Player's Guide: Eliminating Bugs Causing Persona Titis III Reboot to Refresh Snapshots Freezing Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/proposed-update-for-facebook-more-interactive-stories-reels-and-rooms/"><u>Proposed Update for Facebook: More Interactive Stories, Reels, and Rooms</u></a></li>
+<li><a href="https://techidaily.com/remove-lava-blaze-pro-5g-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Lava Blaze Pro 5G unlock screen</u></a></li>
+<li><a href="https://win-blog.techidaily.com/speed-at-impact-the-higher-the-speed-the-more-severe-the-damage-tends-to-be/"><u>Speed at Impact - The Higher the Speed, the More Severe the Damage Tends to Be.</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-balance-between-user-freedom-and-ai-enforced-regulations/"><u>The Balance Between User Freedom and AI-Enforced Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/warning-signs-someones-in-your-digital-domain/"><u>Warning Signs: Someone's in Your Digital Domain</u></a></li>
 </ul></div>
 

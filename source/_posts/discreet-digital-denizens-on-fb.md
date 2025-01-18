@@ -1,7 +1,7 @@
 ---
 title: Discreet Digital Denizens on FB
-date: 2024-07-29T07:37:15.755Z
-updated: 2024-07-30T07:37:15.755Z
+date: 2025-01-17T16:00:21.725Z
+updated: 2025-01-18T16:17:15.705Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,6 @@ thumbnail: https://thmb.techidaily.com/8f0f7ad73a0fa3da9b0369f5be30ef87f2772c066
 
  At the moment, there are two likely scenarios: either everyone can see your friends list or only your friends can see your friends list. No matter who can or can't see your full friends list, though, anyone can see if they have mutual friends with you and also see who they are. This is possible even if they're not your friends. In the example below, you can see we have 23 mutual friends in the grey text under the profile name.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![facebook mutual followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-mutual-followers.jpg)
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
@@ -33,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/8f0f7ad73a0fa3da9b0369f5be30ef87f2772c066
 ## How to Hide Your Facebook Friends List
 
  You can hide your friends list either from the Facebook app or on the desktop website. Either way, you will be able to change the same setting.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Hiding Your Friends List on Mobile
 
@@ -48,25 +49,28 @@ thumbnail: https://thmb.techidaily.com/8f0f7ad73a0fa3da9b0369f5be30ef87f2772c066
 
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### Hiding Your Friends List on Desktop
 
 The steps are similar on Facebook's desktop website.
@@ -75,10 +79,11 @@ The steps are similar on Facebook's desktop website.
 
  2\. Click**Settings and Privacy** then**Settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3\. From the left sidebar, click**Privacy** .
 
@@ -86,9 +91,6 @@ The steps are similar on Facebook's desktop website.
 
  4\. Scroll to**How people find and contact you** .
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
@@ -97,23 +99,17 @@ The steps are similar on Facebook's desktop website.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Gaining Privacy on Facebook
 
  Facebook should be a place where you can connect with friends and have fun without sharing information that you don't want to.
 
  Not wanting people to see your friends list isn't a bad thing, and you may even benefit from hiding it. Hiding your Facebook network may protect you and your friends from dangerous or bothersome strangers messaging you. You may also protect yourself from drama related to your family or friends seeing who else you are friends with on Facebook. Gaining this privacy can keep you safe and free from stress.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +118,17 @@ The steps are similar on Facebook's desktop website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sound-issues.techidaily.com/dealing-with-a-silent-laptop-step-by-step-solution-for-no-audio-problems/"><u>Dealing with a Silent Laptop – Step-by-Step Solution for 'No Audio' Problems</u></a></li>
+<li><a href="https://win-dash.techidaily.com/expert-guide-choosing-and-downloading-high-quality-sound-drivers-for-win7/"><u>Expert Guide: Choosing & Downloading High-Quality Sound Drivers for Win7</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-of-tech-under-scrutiny-a-look-at-us-antitrust-developments/"><u>Future of Tech Under Scrutiny: A Look at U.S. Antitrust Developments</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/game-enhancing-screens-top-5-for-ps5-and-xbox-gamers-for-2024/"><u>Game-Enhancing Screens Top 5 for PS5 & Xbox Gamers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-evaluate-the-real-life-impact-before-deleting-accounts/"><u>How to Evaluate the Real-Life Impact Before Deleting Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-master-facebook-problem-solving-addressing-11-top-errors/"><u>How to Master Facebook Problem-Solving: Addressing 11 Top Errors</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-x100-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo X100 Without PUK Codes</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-pros-guide-from-playback-to-perfected-overwatch-recordings/"><u>In 2024, The Pro's Guide From Playback to Perfected Overwatch Recordings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-easy-route-to-capturing-every-gameplay-moment-for-2024/"><u>The Easy Route to Capturing Every Gameplay Moment for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-technique-for-removing-your-name-from-images/"><u>The Ultimate Technique for Removing Your Name From Images</u></a></li>
+</ul></div>
 

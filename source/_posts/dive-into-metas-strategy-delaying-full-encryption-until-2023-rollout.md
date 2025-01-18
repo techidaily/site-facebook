@@ -1,7 +1,7 @@
 ---
 title: "Dive Into Meta's Strategy: Delaying Full Encryption Until 2023 Rollout"
-date: 2024-07-29T07:37:24.288Z
-updated: 2024-07-30T07:37:24.288Z
+date: 2025-01-14T16:16:29.451Z
+updated: 2025-01-18T16:17:33.331Z
 tags:
   - facebook
 categories:
@@ -20,17 +20,16 @@ thumbnail: https://thmb.techidaily.com/0ef39d9a604e71499226be4f237e87d1b86c04c6f
  Let us explore the winding road that has brought Meta to this decision.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Does Meta Want End-to-End Encryption?
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
 
@@ -41,8 +40,9 @@ The powerful video editing program for your Windows PC</a>
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Has Meta Delayed End-to-End Encryption?
 
  The plan has been delayed due to what[Meta says](https://www.telegraph.co.uk/business/2021/11/20/people-shouldnt-have-choose-privacy-safety-says-facebook-safety/) is a desire to engage with all concerned parties to ensure end-to-end encryption is not abused by bad actors. However, when you read between the lines, it appears Meta has buckled to pressure from law enforcement and regulators, who have been adamantly opposed to Meta's E2EE plans.
@@ -54,9 +54,9 @@ The powerful video editing program for your Windows PC</a>
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Can a Balance Be Found?
 
  The biggest concerns with encryption are child safety and national security. The UK's National Society for the Prevention of Cruelty to Children (NSPCC) has said encrypting messages could lead to the easier spread of child porn, child abuse, and online grooming of minors.
@@ -65,14 +65,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  So, what happens next? That's what Meta needs more time to figure out.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,4 +78,24 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-dynamic-games-best-flash-fueled-fun-for-phonespcs-for-2024/"><u>[New] Dynamic Games Best Flash-Fueled Fun for Phones/PCs for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-innovative-approaches-to-powerpoint-video-capture/"><u>[New] In 2024, Innovative Approaches to PowerPoint Video Capture</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-signal-id-video-overview-width-x-height-encoding-minutes/"><u>[New] Signal ID Video Overview Width X Height, Encoding, Minutes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-quick-and-secure-lecture-capture-methods-for-mac-users/"><u>[Updated] 2024 Approved Quick and Secure Lecture Capture Methods for Mac Users</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-primer-on-dynamic-visual-expression-for-2024/"><u>A Primer on Dynamic Visual Expression for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/crafting-an-epic-tiktok-farewell-sequence-for-2024/"><u>Crafting An Epic TikTok Farewell Sequence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-innovation-to-imposition-government-strikes-back-on-big-tech/"><u>From Innovation to Imposition: Government Strikes Back on Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-an-avatar-with-personal-touch-on-fb/"><u>Initiating an Avatar with Personal Touch on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-legacy-irreversible/"><u>Is Social Media Legacy Irreversible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-tide-of-disenchanted-users-online/"><u>Navigating Through the Tide of Disenchanted Users Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-deleted-iphone-se-2022-whatsapp-attachments-on-mac-and-windows-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Deleted iPhone SE (2022) WhatsApp Attachments on Mac and Windows | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-interaction-exploring-metaverse-landscapes/"><u>Redefining Interaction: Exploring Metaverse Landscapes</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-tweaking-your-kiddos-messenger-settings/"><u>Step-by-Step: Tweaking Your Kiddo's Messenger Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-firms-content-moderation-under-legal-scrutiny/"><u>Tech Firms' Content Moderation Under Legal Scrutiny</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-essentials-of-using-llama-2-for-business-success/"><u>The Essentials of Using Llama 2 for Business Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-of-the-tale-dispelling-common-social-media-misconceptions/"><u>The Truth of the Tale: Dispelling Common Social Media Misconceptions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleash-creativity-complimentary-premiere-pro-toolset-for-2024/"><u>Unleash Creativity - Complimentary Premiere Pro Toolset for 2024</u></a></li>
+</ul></div>
 

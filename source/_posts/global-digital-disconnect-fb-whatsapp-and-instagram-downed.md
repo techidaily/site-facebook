@@ -1,7 +1,7 @@
 ---
 title: "Global Digital Disconnect: FB, WhatsApp, & Instagram Downed"
-date: 2025-01-01T22:47:32.267Z
-updated: 2025-01-05T22:50:57.256Z
+date: 2025-01-17T16:10:37.182Z
+updated: 2025-01-18T16:05:37.519Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Facebook Went Offline for Six Hours
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -87,19 +87,18 @@ thumbnail: https://thmb.techidaily.com/3546fd9956a8b6a73b831712e52723669b090c846
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/facebook-rated-poorly-a-decade-of-pal-activist-campaigns/"><u>Facebook Rated Poorly: A Decade of Pal-Activist Campaigns</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-latest-tools-target-community-governance-improvement/"><u>Facebook's Latest Tools Target Community Governance Improvement</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-social-proof-without-crossing-lines/"><u>Harnessing the Power of Social Proof Without Crossing Lines</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/identifying-fake-chatgpt-websites-tips-on-detecting-and-responding-to-potential-scams/"><u>Identifying Fake ChatGPT Websites: Tips on Detecting and Responding to Potential Scams</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-frozen-yum-screening-device-deep-review/"><u>In 2024, Frozen Yum Screening Device Deep Review</u></a></li>
-<li><a href="https://blog-min.techidaily.com/line-audio-call-recording-a-comprehensive-guide-on-how-to-save-video-calls-with-sound/"><u>LINE Audio Call Recording - A Comprehensive Guide on How to Save Video Calls with Sound</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/620363-9780307783691-prophetic-visions-of-the-future/"><u>Prophetic Visions of the Future | Free Book</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguard-facebook-privacy-against-hacking/"><u>Safeguard Facebook Privacy Against Hacking</u></a></li>
-<li><a href="https://driver-install.techidaily.com/seamless-windows-11-experience-through-tactile-upgrades/"><u>Seamless Windows 11 Experience Through Tactile Upgrades</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/simplified-methods-for-recording-successful-online-classes-and-meets-for-2024/"><u>Simplified Methods for Recording Successful Online Classes & Meets for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-into-the-future-of-socializing-with-ar-in-messenger/"><u>Step Into the Future of Socializing with AR in Messenger</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tackling-the-format-rejection-by-windows-vlc/"><u>Tackling the Format Rejection by Windows-VLC</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-list-top-8-alternatives-to-gmail-for-2e24/"><u>The Ultimate List: Top 8 Alternatives to Gmail for 2E24</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-vows-severing-online-bonds/"><u>Virtual Vows: Severing Online Bonds</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/1716070221557-updated-in-2024-snap-and-save-your-android-no-price-tag/"><u>[Updated] In 2024, Snap & Save Your Android - No Price Tag!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-pioneering-youtube-success-stories-via-tubebuddy/"><u>2024 Approved Pioneering YouTube Success Stories via TubeBuddy</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-extraneous-exchanges-from-your-fb-posts-quickly/"><u>Eliminate Extraneous Exchanges From Your FB Posts Quickly</u></a></li>
+<li><a href="https://common-error.techidaily.com/ending-taskbar-troubles-in-windows-10-effective-solutions-and-tips/"><u>Ending Taskbar Troubles in Windows 10: Effective Solutions & Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-llifes-role-as-we-enter-the-metaverse-phase/"><u>Exploring LLife’s Role as We Enter the Metaverse Phase</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/googles-latest-masterpiece-palm-2-vs-openais-gpt-4-an-in-depth-analysis-of-the-ai-revolution/"><u>Google's Latest Masterpiece, PaLM 2 Vs. OpenAI's GPT-4 – An In-Depth Analysis of the AI Revolution</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/highlighting-twitvideos-twitters-viral-video-trends/"><u>Highlighting TwitVideos Twitter's Viral Video Trends</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-guide-to-mastering-igtv-content-creation/"><u>In 2024, The Ultimate Guide to Mastering IGTV Content Creation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/methodology-to-overhaul-windows-11s-new-text-based-search/"><u>Methodology to Overhaul Windows 11'S New Text-Based Search</u></a></li>
+<li><a href="https://facebook.techidaily.com/mirage-in-the-network-uncovering-impersonators/"><u>Mirage in the Network: Uncovering Impersonators</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetizing-friendships-how-social-websites-earn-big/"><u>Monetizing Friendships: How Social Websites Earn Big</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-purpose-of-facebooks-moderation-council/"><u>What Is The Purpose Of Facebook’s Moderation Council?</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/1725289842644-iso/"><u>アビファイルへの自由なISOからの変換手順</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Delve Into Digital Memories: Friends' Facebook Timeline"
-date: 2024-07-29T07:37:20.855Z
-updated: 2024-07-30T07:37:20.855Z
+date: 2025-01-13T16:06:45.642Z
+updated: 2025-01-18T16:13:50.845Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 
 ## Delve Into Digital Memories: Friends' Facebook Timeline
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [How to See Your Friendship History on Facebook](#how-to-see-your-friendship-history-on-facebook)
@@ -22,8 +26,9 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 * [Is There a Privacy Risk to Viewing Your Facebook Friendships?](#is-there-a-privacy-risk-to-viewing-your-facebook-friendships)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Viewing your friendship history on Facebook lets you see common interests and interactions with friends through a button or URL.
@@ -35,17 +40,9 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
  Here's all you need to know about accessing your friendship history on Facebook.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to See Your Friendship History on Facebook
 
  By viewing your friendship history on Facebook, you'll see a list of things you have in common and photos or posts you're both tagged in. There are two ways to view your Facebook friendship history: through a button on the friend's page or a custom URL.
@@ -61,8 +58,9 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 ![Manage Friend Menu on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/manage-friend-menu-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Facebook Friendship history Page on App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page-on-app.jpg)
 
 Close
@@ -76,16 +74,10 @@ Close
 
  You should now be looking at a page that shows any posts, events, photos, and videos the two people are tagged in. At the top it will say,**You and \[Your Friend\]** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Friendship Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-friendship-page.jpg)
 
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Can You See the Friendship Between Any Two People on Facebook?
 
  It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
@@ -95,9 +87,9 @@ Close
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
@@ -106,14 +98,11 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +111,20 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-revealing-the-undisclosed-in-instagram-story-observation-for-2024/"><u>[New] Revealing the Undisclosed in Instagram Story Observation for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-depth-look-at-videorecorderpros-features-and-review/"><u>[Updated] In-Depth Look at VideoRecorderPro's Features & Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-ultimate-guide-to-transforming-old-videos-into-live-feeds/"><u>[Updated] The Ultimate Guide to Transforming Old Videos Into Live Feeds</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/essential-accessories-to-upgrade-your-ipad-experience-reviews/"><u>Essential Accessories to Upgrade Your iPad Experience Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-subtextual-innuendoes-in-messenger-correspondence/"><u>Exploring Subtextual Innuendoes in Messenger Correspondence</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/handling-non-microsoft-verified-application-warnings/"><u>Handling Non-Microsoft Verified Application Warnings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-beware-the-risk-in-fake-followers-on-youtube/"><u>In 2024, Beware The Risk in Fake Followers on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/nine-methods-to-reset-and-secure-fb-password/"><u>Nine Methods to Reset and Secure Fb Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-of-user-identities-facebook-naming-change-guide/"><u>Seamless Transition of User Identities: Facebook Naming Change Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tighten-control-over-personalized-ad-delivery-in-social-sites/"><u>Tighten Control Over Personalized Ad Delivery in Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-deactivation-on-ice-at-facebook-oversight/"><u>Trump Deactivation on Ice at Facebook Oversight</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispered-ban-for-fb-users-practicing-genuine-business-tactics/"><u>Whispered Ban for FB Users Practicing Genuine Business Tactics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtubes-payment-system-a-monthly-breakdown/"><u>YouTube’s Payment System A Monthly Breakdown</u></a></li>
+</ul></div>
 

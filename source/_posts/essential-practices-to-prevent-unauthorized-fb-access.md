@@ -1,7 +1,7 @@
 ---
 title: Essential Practices to Prevent Unauthorized FB Access
-date: 2024-12-31T04:14:07.738Z
-updated: 2025-01-05T21:10:42.869Z
+date: 2025-01-17T16:28:45.199Z
+updated: 2025-01-18T16:07:53.730Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ This makes you vulnerable to losing access to your account.
 
 ![Facebook Check Your Important Security Settings Guide](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Check-Your-Important-Security-Settings-Guide.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook has a neat little tool that lets you review your account's most important security settings.
 
  Open Facebook in your desktop browser, expand the**Account menu** in the top right, and head to**Settings & privacy > Settings** , then switch to the**Security and Login** screen, click the[Check Your Important Security Settings](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) link at the top, and follow the on-screen guide.
@@ -37,12 +41,16 @@ This makes you vulnerable to losing access to your account.
  Ideally, your password should be OK, two-factor authentication enabled, and login alerts turned on. The tool will help you close those three particular security gaps, but we'll also show you how to double-check everything manually too.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Update Your Contact Information
 
 ![Facebook General Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-General-Account-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A fairly easy way to recover your Facebook password is through alternative contact information, such as email addresses and mobile phone numbers.
 
@@ -51,10 +59,6 @@ This makes you vulnerable to losing access to your account.
 **Note:** To add or remove personal data, you'll need to enter your Facebook password. This ensures that no one can change your information, should you ever forget to log yourself out of your account at a publicly accessible computer.
 
 Here are the contact details you can update and how to do so...
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Email Address
 
@@ -68,13 +72,13 @@ Here are the contact details you can update and how to do so...
 
  In other words, having a working email address on record is an extra layer of security, as you will be notified of changes and can prevent them, while at the same time being able to use that address to recover access to your account.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Mobile Phone Number
 
 ![Facebook Confirm Your Number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Confirm-Your-Number.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Now let's check the phone numbers attached to your Facebook account. Switch to the[**Mobile** settings](https://www.facebook.com/settings?tab=account&section=email&view) screen and review the phone numbers listed here.
 
@@ -85,10 +89,6 @@ Here are the contact details you can update and how to do so...
  Note that this only works with selected carriers and if your mobile carrier is supported, they might charge a fee for receiving Facebook's call or text message.
 
  Related:[How to Recover Your Facebook Account When You Can't Log In](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Update Your Password
 
@@ -108,6 +108,10 @@ Here are the contact details you can update and how to do so...
 
 ![Facebook Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Setting-Up-Extra-Security.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To receive email or text message notifications when someone logs into your Facebook account from a new device or location, set up login alerts.
 
  Head to Facebook **Settings >[Security and Login](https://www.facebook.com/settings?tab=security)**  , scroll down to**Setting Up Extra Security** , and click**Edit** next to the**Get alerts about unrecognized logins** option.
@@ -115,10 +119,6 @@ Here are the contact details you can update and how to do so...
  You can have the alerts sent to your Facebook account, Messenger, and any of the email addresses associated with your account; the more, the merrier.
 
  Be sure to click**Save changes** when you're done.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Enable Two-Factor Authentication
 
@@ -165,24 +165,16 @@ We highly recommend that you set up the following security methods:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/inge-watching-to-billions-jake-pauls-video-venture/"><u>[New] Binge-Watching to Billions Jake Paul's Video Venture</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-screensnapper-prox-the-premier-pc-screen-recorder-by-apowersoft/"><u>[New] ScreenSnapper ProX The Premier PC Screen Recorder by Apowersoft</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-essential-quicktime-lapse-maker-5/"><u>[Updated] 2024 Approved Essential Quicktime-Lapse Maker #5</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-guide-for-effortless-youtube-playlist-downloads-for-2024/"><u>[Updated] How-To Guide for Effortless YouTube Playlist Downloads for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-lineup-all-angle-recorders/"><u>2024 Approved Exclusive Lineup All-Angle Recorders</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-iphone-tips-for-perfecting-motion-shot-photography/"><u>2024 Approved IPhone Tips for Perfecting Motion Shot Photography</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-news-feed-curation-by-fb/"><u>Behind-the-Scenes of News Feed Curation by FB</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/capturing-content-with-confidence-winning-strategies-for-igtv-acquisition-for-2024/"><u>Capturing Content with Confidence Winning Strategies for IGTV Acquisition for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/comparing-avi-and-mp4-formats-which-one-is-superior-discover-the-key-differences/"><u>Comparing AVI and MP4 Formats: Which One Is Superior? Discover the Key Differences</u></a></li>
-<li><a href="https://facebook.techidaily.com/effectively-tapping-into-facebook-on-this-day/"><u>Effectively Tapping Into Facebook On This Day</u></a></li>
-<li><a href="https://facebook.techidaily.com/fast-switching-tactics-for-multiple-facebook-ids/"><u>Fast-Switching Tactics for Multiple Facebook IDs</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-picture-to-persona-integrating-an-avatar-into-your-fb-cover/"><u>From Picture to Persona: Integrating an Avatar Into Your FB Cover</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacking-occurrences-on-digital-platforms/"><u>Hacking Occurrences on Digital Platforms</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-itel-p40plus-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Itel P40+ Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/insider-tips-for-spotting-next-gen-fb-gatherings/"><u>Insider Tips for Spotting Next-Gen FB Gatherings</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-strategic-posts-private-establishing-a-customized-fb-visibility-list/"><u>Keep Strategic Posts Private: Establishing a Customized FB Visibility List</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-most-practical-crowdfire-technologies/"><u>Unveiling the Most Practical Crowdfire Technologies</u></a></li>
-<li><a href="https://facebook.techidaily.com/wind-sun-and-social-media-fbs-energy-makeover/"><u>Wind, Sun, and Social Media: FB's Energy Makeover</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-capture-and-preserve-a-detailed-look-at-7-ways-to-log-webcasts/"><u>[New] Capture and Preserve A Detailed Look at 7 Ways to Log Webcasts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-secrets-to-a-flawless-ps3-gameplay-record/"><u>[Updated] 2024 Approved Secrets to a Flawless PS3 Gameplay Record</u></a></li>
+<li><a href="https://win-unique.techidaily.com/comprehensive-guide-fixing-windows-issues-with-sfc-scannow-in-windows-11/"><u>Comprehensive Guide: Fixing Windows Issues with SFC /Scannow in Windows 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-solutions-for-missing-d3dx939dll-error-fixes/"><u>Effective Solutions for Missing D3dx9_39.dll Error Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-texting-tech-boost-for-instagram-and-messenger-a-new-era-begins/"><u>Facebook's Texting Tech Boost for Instagram and Messenger: A New Era Begins</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-10t-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme 10T 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-engagement-top-5-costless-fb-update-planning-tips/"><u>Maximize Engagement: Top 5 Costless FB Update Planning Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-times-for-online-presence-growth/"><u>Peak Times for Online Presence Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-control-over-a-frozen-or-suspended-facebook-profile/"><u>Retrieving Control Over a Frozen or Suspended Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emerging-trend-of-cryptocurrency-on-facebook-and-instagram/"><u>The Emerging Trend of Cryptocurrency on Facebook & Instagram</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1721924812630-understanding-the-constraints-5-key-factors-against-using-chatgpt-for-bitcoin-and-co/"><u>Understanding the Constraints: 5 Key Factors Against Using ChatGPT for Bitcoin & Co.</u></a></li>
 </ul></div>
 

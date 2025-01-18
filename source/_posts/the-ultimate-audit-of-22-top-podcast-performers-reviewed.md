@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Audit of '22 - Top Podcast Performers Reviewed
-date: 2025-01-06T20:28:47.952Z
-updated: 2025-01-12T23:49:04.319Z
+date: 2025-01-17T16:03:02.775Z
+updated: 2025-01-18T16:19:45.486Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Shownotes
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/5e3e6b4e0f517bf2ed82ad459bf90369516144d1c
 Here's everything we discuss in this week's 2022 special:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### High points of 2022
@@ -43,7 +43,7 @@ Here's everything we discuss in this week's 2022 special:
 * Right to Repair growth
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Low points of 2022
@@ -56,7 +56,7 @@ Here's everything we discuss in this week's 2022 special:
 * [Raspberry Pi's lack of availability](https://www.makeuseof.com/eben-upton-raspberry-pi-shortages-400-pico/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best devices of 2022
@@ -66,7 +66,7 @@ Here's everything we discuss in this week's 2022 special:
 * Airpod Pro 2nd Generation Earbuds
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Best games of 2022
@@ -94,19 +94,22 @@ Here's everything we discuss in this week's 2022 special:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-a-compreayers-pathway-to-efficient-screen-recording-via-zd-software/"><u>[New] A Compreayer's Pathway to Efficient Screen Recording via ZD Software</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-discovering-top-tools-the-2023-guide-to-browser-capture-tech/"><u>[New] In 2024, Discovering Top Tools The 2023 Guide to Browser Capture Tech</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-maximizing-efficiency-streamlined-methods-to-download-vimeo-videos-for-2024/"><u>[New] Maximizing Efficiency Streamlined Methods to Download Vimeo Videos for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultimate-handbook-for-morphvox-transformers/"><u>[Updated] 2024 Approved Ultimate Handbook for MorphVOX Transformers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-ballot-box-battles-prime-voting-challenge-platforms/"><u>[Updated] In 2024, Ballot Box Battles Prime Voting Challenge Platforms</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/exclusive-look-microsofts-revolutionary-ai-chip-takes-on-apple-macbook-zdnet/"><u>Exclusive Look: Microsoft's Revolutionary AI Chip Takes on Apple MacBook | ZDNet</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-recover-deleted-facebook-posts/"><u>How to Recover Deleted Facebook Posts</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-itel-a60s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/join-facebooks-metaverse-creation-seeking-10k-talents/"><u>Join Facebook's Metaverse Creation - Seeking 10K Talents!</u></a></li>
-<li><a href="https://facebook.techidaily.com/parental-control-updates-on-childs-messenger-details/"><u>Parental Control Updates on Child's Messenger Details</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/review-michael-kors-access-gen-nv0718-08-fashion-and-utility-in-one/"><u>Review: Michael Kors' Access Gen Nv0718-08 Fashion and Utility in One</u></a></li>
-<li><a href="https://facebook.techidaily.com/testing-marketing-potential-sticker-ads-in-story-formats-on-fbinsta/"><u>Testing Marketing Potential: Sticker Ads in Story Formats on FB/Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-covert-concept-of-acceptance-on-fb-networks/"><u>The Covert Concept of Acceptance on FB Networks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-the-features-of-magix-video-pro-x/"><u>[New] Navigating the Features of Magix Video Pro X</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-elevate-your-content-writability-with-these-best-fonts/"><u>[Updated] 2024 Approved Elevate Your Content' Writability with These Best Fonts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/screener-tech-perfect-for-creating-viral-youtube-moments/"><u>Best Screener Tech Perfect for Creating Viral YouTube Moments</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/easy-guide-to-saving-yandex-playlists-and-albums-in-various-formats-for-windowsmac-users/"><u>Easy Guide to Saving Yandex Playlists & Albums in Various Formats for Windows/Mac Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-engagement-uploading-instagram-reels-to-facebook-profile/"><u>Enhancing Engagement: Uploading Instagram Reels to Facebook Profile</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-visuals-the-role-of-a-tripod-in-video-content-for-2024/"><u>Enhancing Visuals The Role of a Tripod in Video Content for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-to-restore-microphone-functionality-in-the-latest-windows-11-update/"><u>Expert Tips to Restore Microphone Functionality in the Latest Windows 11 Update</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/filefixer-video-suite/"><u>FileFixer Video Suite</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broaden-your-messenger-network/"><u>How-To: Broaden Your Messenger Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-digital-landscapes-smart-use-of-facebooks-timers/"><u>Navigating Digital Landscapes: Smart Use of Facebook’s Timers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-name-change-process-in-the-social-sphere-of-fb/"><u>Navigating the Name Change Process in the Social Sphere of FB</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/realme-narzo-60-pro-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme Narzo 60 Pro 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-user-specific-promotional-messages-online/"><u>Reduce User-Specific Promotional Messages Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-intrigue-is-your-device-secretly-curating-commerce/"><u>Tech's Intrigue: Is Your Device Secretly Curating Commerce?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-new-antitrust-legislation-targeting-giants/"><u>Unraveling New Antitrust Legislation Targeting Giants</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Honor 100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-your-facebook-timeline/"><u>What Lies Beneath Your Facebook Timeline?</u></a></li>
 </ul></div>
 

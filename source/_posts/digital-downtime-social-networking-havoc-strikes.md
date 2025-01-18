@@ -1,7 +1,7 @@
 ---
 title: "Digital Downtime: Social Networking Havoc Strikes"
-date: 2024-07-29T07:39:44.822Z
-updated: 2024-07-30T07:39:44.822Z
+date: 2025-01-12T16:05:08.448Z
+updated: 2025-01-18T16:08:48.029Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
  Facebook has since provided an explanation and apology for this outage. Keep reading to find out why you couldn't use any of Facebook's apps for so long.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook Went Offline for Six Hours
 
  On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Went Down for Six Hours
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
@@ -56,22 +58,20 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is Your Facebook Data Safe After the Outage?
 
  The first concern for many users is whether their data is still safe, considering how large of a corporation Facebook is. However, the company has sought to assure all users that they have no reason to be concerned, stating that there is "no evidence that user data was compromised as a result of this downtime."
 
  We have no other option than to trust Facebook on this, but given the company's history and reputation, that's a big ask.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,4 +80,26 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/updated-audio-messages-keeper-iphone-2024-model/"><u>[Updated] Audio Messages Keeper - iPhone 2024 Model</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-superior-picks-top-rated-webcam-grips/"><u>[Updated] Superior Picks Top-Rated Webcam Grips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-intense-meetings-perfect-your-screen-focus-in-msteams/"><u>2024 Approved Intense Meetings Perfect Your Screen Focus in MSTEAMS</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719202889022-efficient-tips-for-resolving-common-windows-problems/"><u>Efficient Tips for Resolving Common Windows Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-office-insights-essential-workplace-wisdom/"><u>Facebook Office Insights: Essential Workplace Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-gateway-for-data-breaches/"><u>Facebook Quizzes: A Gateway for Data Breaches?</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723010201364-fixing-continuous-crashes-in-resident-evil-village-on-your-pc-solutions-inside/"><u>Fixing Continuous Crashes in Resident Evil Village on Your PC - Solutions Inside</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/flagship-firefox-screenshot-tools/"><u>Flagship Firefox Screenshot Tools</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-ai-is-shaping-the-future-of-search-with-microsofts-innovative-bing-platform/"><u>How AI Is Shaping the Future of Search with Microsoft's Innovative Bing Platform</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-vivo-y100-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Vivo Y100 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-turn-off-algorithms-on-twitter-instagram-and-facebook/"><u>Mastering Social Media: Turn Off Algorithms on Twitter, Instagram, & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-anonymity-on-social-networking-fb/"><u>Mastering the Art of Anonymity on Social Networking (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/severing-digital-ties-separating-instagram-from-facebook/"><u>Severing Digital Ties: Separating Instagram From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-step-down-tactics-to-delete-multiple-business-profiles-on-facebook/"><u>Stealthy Step-Down Tactics to Delete Multiple Business Profiles on Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-stabilizing-your-house-flipper-2-gameplay-experience-on-windows/"><u>Step-by-Step Guide: Stabilizing Your House Flipper 2 Gameplay Experience on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-debates-starters/"><u>The Biggest Tech Debates Starters</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-man-or-woman-behind-60-minutes-facebook-scoop/"><u>The Man or Woman Behind 60 Minutes' Facebook Scoop</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-effective-facebook-navigation-addingremoving-links/"><u>Tips for Effective Facebook Navigation: Adding/Removing Links</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-mac-subtitle-editing-made-easy-top-subtitle-edit-alternatives/"><u>Updated Mac Subtitle Editing Made Easy Top Subtitle Edit Alternatives</u></a></li>
+</ul></div>
 

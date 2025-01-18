@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2025-01-08T17:02:54.307Z
-updated: 2025-01-12T21:31:15.164Z
+date: 2025-01-12T16:12:40.167Z
+updated: 2025-01-18T16:22:11.363Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Does Meta Want End-to-End Encryption?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 ![hacker typing on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/hacker-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta's goal is to integrate all functionalities on Facebook, Facebook Messenger, Instagram, and WhatsApp. This will enable users to post messages across the four apps, with each app's existing features available across the board.
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -85,17 +85,22 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-elevate-your-gaming-experience-mastering-steam-recordings-for-2024/"><u>[New] Elevate Your Gaming Experience - Mastering Steam Recordings for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-prime-techniques-for-silent-videography/"><u>[Updated] 2024 Approved Prime Techniques for Silent Videography</u></a></li>
-<li><a href="https://facebook.techidaily.com/17-motivating-reasons-to-take-a-social-media-vacation-now/"><u>17 Motivating Reasons to Take a Social Media Vacation Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-image-alt-text/"><u>Best Practices for Facebook Image Alt-Text</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/delving-into-the-heart-of-viva-video-app/"><u>Delving Into the Heart of Viva Video App</u></a></li>
-<li><a href="https://extra-information.techidaily.com/duo-dynamics-instagram-tiktok-confluence-guide/"><u>Duo Dynamics Instagram-TikTok Confluence Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719145917232-fortify-your-online-communications-facebooks-newly-launched-encrypted-chat-features-enhance-privacy/"><u>Fortify Your Online Communications: Facebook's Newly Launched Encrypted Chat Features Enhance Privacy.</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-se-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone SE? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-on-iphone-8-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working On iPhone 8</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/top-screen-capture-contenders-a-comprehensive-review/"><u>Top Screen Capture Contenders A Comprehensive Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153500304-zuckerbergs-litecoin-louie-innovative-pet-nomenclature/"><u>Zuckerberg's 'Litecoin Louie': Innovative Pet Nomenclature</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-perfecting-presentation-adding-fonts-to-ae-projects-for-2024/"><u>[New] Perfecting Presentation Adding Fonts to AE Projects for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehensive-breakdown-sony-fdr-x1000-video-gear/"><u>[Updated] Comprehensive Breakdown Sony FDR-X1000 Video Gear</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-guide-to-playing-twitter-on-chromium-browser-for-2024/"><u>[Updated] Guide to Playing Twitter on Chromium Browser for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-decision-temporary-ban-on-trump-proves-prudent/"><u>Facebook's Decision: Temporary Ban on Trump Proves Prudent</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-samsung-galaxy-a05-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Samsung Galaxy A05 Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-post-anonymously-in-a-facebook-group/"><u>How to Post Anonymously in a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-meta-verification-a-prudent-expense/"><u>Is Meta Verification a Prudent Expense?</u></a></li>
+<li><a href="https://facebook.techidaily.com/its-not-just-you-facebook-whatsapp-and-instagram-are-down-right-now/"><u>It's Not Just You: Facebook, WhatsApp, and Instagram Are Down Right Now</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastery-start-essence-of-storyline-development-for-2024/"><u>Mastery Start Essence of Storyline Development for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/path-to-regain-lost-fb-access-without-previous-keys/"><u>Path to Regain Lost FB Access without Previous Keys</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-xiaomi-redmi-note-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/d-hacks-top-youtube-experts-to-elevate-learning-for-2024/"><u>Sci-Ed Hacks Top YouTube Experts to Elevate Learning for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-cut-off-removing-someone-from-your-network/"><u>Social Cut-Off: Removing Someone From Your Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-engagement-peaks-and-troughs-analysis/"><u>Social Engagement Peaks and Troughs Analysis</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-bargain-video-snippets-grab-youtube-images-without-cost-for-2024/"><u>Top Bargain Video Snippets - Grab YouTube Images Without Cost for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-ascension-frightens-us-all/"><u>Why Meta's Ascension Frightens Us All</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722962727498-wild-relatives-landraces-and-cultivated-varieties-are-primary-sources-of-new-alleles-in-breeding-programs/"><u>Wild Relatives, Landraces, and Cultivated Varieties Are Primary Sources of New Alleles in Breeding Programs</u></a></li>
 </ul></div>
 

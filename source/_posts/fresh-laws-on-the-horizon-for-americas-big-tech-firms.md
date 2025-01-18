@@ -1,7 +1,7 @@
 ---
 title: Fresh Laws on the Horizon for America's Big Tech Firms
-date: 2025-01-05T16:22:26.528Z
-updated: 2025-01-12T23:23:52.357Z
+date: 2025-01-16T16:26:41.620Z
+updated: 2025-01-18T16:17:45.342Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is an Antitrust Law?
@@ -35,20 +35,20 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -88,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/5101a256be44324944567b3cdefbcb470dad072a3
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -98,16 +102,12 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we come to the economic backing to make it all happen.
@@ -143,22 +143,20 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-navigating-the-secrets-of-funimate-download/"><u>[New] 2024 Approved Navigating the Secrets of Funimate Download</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-building-a-robust-360-video-broadcast-framework-for-fb/"><u>[New] Building a Robust 360 Video Broadcast Framework for FB</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-budget-friendly-vlogging-cameras-unveiled-our-picks/"><u>[New] In 2024, Budget-Friendly Vlogging Cameras Unveiled Our Picks</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-iphone-x-the-ultimate-guide-for-users/"><u>[New] Mastering iPhone X The Ultimate Guide for Users</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-4k-clarity-comes-closer-with-asuss-innovative-mg28uq-display/"><u>[Updated] 2024 Approved 4K Clarity Comes Closer with ASUS's Innovative MG28UQ Display</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-everything-about-facebook-live-split-screen-you-should-know-for-2024/"><u>[Updated] Everything About Facebook Live Split Screen You Should Know for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-from-camera-roll-to-feed-adding-photos-on-instagram/"><u>2024 Approved From Camera Roll to Feed Adding Photos on Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-latest-privacy-framework-updates/"><u>Decoding Meta's Latest Privacy Framework Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-updated-significance-behind-facebook-pages-tags/"><u>Decoding The Updated Significance Behind Facebook Pages' Tags</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-the-dynamics-of-online-romance-via-facebook/"><u>Delving Into the Dynamics of Online Romance via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-the-metaverse-who-really-holds-power/"><u>Demystifying the Metaverse: Who Really Holds Power?</u></a></li>
-<li><a href="https://facebook.techidaily.com/deny-new-friend-recommendations-in-fb/"><u>Deny New Friend Recommendations in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-war-against-covid-1ranking-through-social-media/"><u>Digital War Against COVID-1ranking Through Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-facebooks-internal-design-philosophy/"><u>Dissecting Facebook's Internal Design Philosophy</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-online-appeal-with-strategic-profiles/"><u>Elevate Your Online Appeal with Strategic Profiles</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-ai-is-shaping-the-future-of-search-with-microsofts-innovative-bing-platform/"><u>How AI Is Shaping the Future of Search with Microsoft's Innovative Bing Platform</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/reviewing-ingenuity-moto-z2s-intelligent-evolution/"><u>Reviewing Ingenuity Moto Z2's Intelligent Evolution</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-foundational-steps-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved Foundational Steps for YouTube Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-pixels-to-prints-master-snapseed-fundamentals/"><u>[Updated] From Pixels to Prints Master Snapseed Fundamentals</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagrams-abandoned-followers-map/"><u>[Updated] Instagram's Abandoned Followers Map</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-deception-on-the-internet-time-for-tech-to-step-up/"><u>Fighting Deception on the Internet: Time for Tech to Step Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-wherever-you-want-facebooks-mobility-centric-portal/"><u>Go Wherever You Want: Facebook's Mobility-Centric Portal</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-samsung-galaxy-a34-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-gt-3-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme GT 3 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-se-to-samsung-simplified-guide-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How To Transfer From Apple iPhone SE to Samsung Simplified Guide | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-optimize-your-video-written-by-your-name/"><u>In 2024, Optimize Your Video' Written By [Your Name]</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-13-mini-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>iPhone 13 mini Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastodon-a-new-era-of-discourse/"><u>Mastodon: A New Era of Discourse</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-messages-discovering-new-auditory-features-on-messenger/"><u>Revolutionizing Messages: Discovering New Auditory Features on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-backdoor-for-anti-immunization-advocates/"><u>Social Media's Backdoor for Anti-Immunization Advocates</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-intrusion-verifying-third-party-login-on-facebook/"><u>Uncover Intrusion: Verifying Third-Party Login on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-inner-circle-with-dossiers-revealed/"><u>Unmasking Facebook’s Inner Circle with Dossiers Revealed</u></a></li>
 </ul></div>
 

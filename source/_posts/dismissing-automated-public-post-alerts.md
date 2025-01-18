@@ -1,7 +1,7 @@
 ---
 title: Dismissing Automated Public Post Alerts
-date: 2024-07-29T07:40:22.904Z
-updated: 2024-07-30T07:40:22.904Z
+date: 2025-01-12T16:12:03.450Z
+updated: 2025-01-18T16:03:56.692Z
 tags:
   - facebook
 categories:
@@ -20,35 +20,26 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
  If you don't want to receive these batch notifications, we've got you covered. Read on to learn how to turn off the annoying @everyone tag on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Turn Off the @everyone Tag on Facebook
 
  Here's how to turn off the pesky notifications without[leaving a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) :
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![screenshot showing facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-settings-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![screenshot showing facebook notification settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-notification-settings-page.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing facebook tag page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-tag-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,8 +51,9 @@ Close
  That's all there is to it. You'll no longer receive notifications when someone uses the @everyone tag in a group post. You can further customize the notifications you receive on the**Notifications Settings** page to receive even fewer notifications.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why You Should Turn Off @everyone Tags on Facebook
 
  The @everyone feature is popular with Facebook groups because it allows admins to alert members of important news or events. It's also helpful when admins want to[start a discussion with everyone in a Facebook group](https://www.makeuseof.com/how-to-mention-all-members-facebook-group/) .
@@ -71,31 +63,20 @@ Close
  Turning off the Batch @everyone mentions toggle can be a great way to take control of your notifications and stop getting spammed by overzealous group admins. You will still get notified of personal tags, so you won't miss any vital conversations.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Take Control of Your Facebook Tags
 
  You can control your notifications and decide which tags you want to receive. Just follow the steps above, and you'll be able to customize your notifications settings in no time.
 
  You don't have to leave the group or mute the conversation if you don't want to—just turn off the Batch @everyone mentions toggle and be done with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +85,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-a-comprehensive-guide-to-share-facebook-videos-with-whatsapp/"><u>[New] In 2024, A Comprehensive Guide to Share Facebook Videos with WhatsApp</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-total-zen-closing-virtual-horizons/"><u>[New] In 2024, Total Zen Closing Virtual Horizons</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-restoring-rightful-representation-amidst-misguided-chatter-for-2024/"><u>[Updated] Restoring Rightful Representation Amidst Misguided Chatter for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-strategic-setup-youtube-gaming-banners-made-easy/"><u>2024 Approved Strategic Setup YouTube Gaming Banners Made Easy</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/enhancing-classroom-learning-through-recorders-for-2024/"><u>Enhancing Classroom Learning Through Recorders for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/iphone-15-pro-vs-pro-max-which-ultimate-model-should-you-buy/"><u>IPhone 15 Pro Vs. Pro Max: Which Ultimate Model Should You Buy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-visual-privacy-on-facebook/"><u>Mastering Visual Privacy on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-word-in-pictures-becomes-a-multitude-of-styles-through-ai/"><u>One Word in Pictures Becomes a Multitude of Styles Through AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-interaction-effortless-transfer-of-social-media-storages/"><u>Revolutionize Interaction: Effortless Transfer of Social Media Storages</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-network-by-deleting-groups/"><u>Streamlining Your Network by Deleting Groups</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/unlock-peak-performance-on-your-computer-with-pro-tips-insights-by-yl-technology-experts/"><u>Unlock Peak Performance on Your Computer with Pro Tips - Insights by YL Technology Experts</u></a></li>
+</ul></div>
 

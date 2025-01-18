@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How
-date: 2025-01-10T22:51:13.815Z
-updated: 2025-01-12T22:01:09.037Z
+date: 2025-01-11T16:09:35.004Z
+updated: 2025-01-18T16:18:50.576Z
 tags:
   - facebook
 categories:
@@ -32,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
 * Under the[Security and login](https://www.facebook.com/settings?tab=security) tab, check the**Where you're logged in** section to identify which devices you have logged into Facebook. If you see a browser or device you don't recognize, select the**three dots** next to it and choose**Log out** . If you notice anything suspicious, select**Not you?** .
@@ -48,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
 * You should ensure that the visibility of your current and future posts match your expectations. You can do this by visiting the[Privacy](https://www.facebook.com/settings?tab=privacy) tab and navigating to**Your activity** . Future posts can be set to public, friends, friends except, only me, or specific friends.
@@ -59,9 +59,17 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3. Profile and Tagging
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
@@ -75,16 +83,16 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
 * The[Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
 * Once you've made a public post, you can adjust the audience that can comment on your posts. However, it's worth noting that if you limit this to friends, their friends may still be able to comment.
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5. Blocking
 
@@ -97,17 +105,9 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
@@ -116,7 +116,7 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Be Facebook Privacy Aware
@@ -138,18 +138,21 @@ thumbnail: https://thmb.techidaily.com/a50833de398a016d5f4384db8ba343a7a22c031d1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-effortless-fb-movie-access-top-8-tools-of-23/"><u>[New] Effortless FB Movie Access Top #8 Tools of '23</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-apex-capture-vs-lumen-hub/"><u>[Updated] Apex Capture VS Lumen Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/5m-investment-in-journalists-focused-venture-by-global-social-media-leader/"><u>$5M Investment in Journalists-Focused Venture by Global Social Media Leader</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-navigating-the-seas-of-sponsorships-a-youtubers-playbook/"><u>2024 Approved Navigating the Seas of Sponsorships A Youtuber's Playbook</u></a></li>
-<li><a href="https://facebook.techidaily.com/accelerate-connections-with-3-easy-to-learn-facebook-tag-strategies/"><u>Accelerate Connections with 3 Easy-to-Learn Facebook Tag Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-headlines-examining-metaverse-ownership-claims/"><u>Beyond Headlines: Examining Metaverse Ownership Claims</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-free-delete-disconnect-and-discover/"><u>Break Free: Delete, Disconnect & Discover</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/convertidor-video-online-sin-costo-como-cambiar-contenido-3gpp-a-mpeg-facilmente-con-movavi/"><u>Convertidor Video Online Sin Costo: Cómo Cambiar Contenido 3GPP a MPEG Fácilmente Con Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-purging-possible-consequences-for-social-media-protection/"><u>Data Purging: Possible Consequences for Social Media Protection</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149784631-hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game!</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-redmi-k70-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Redmi K70</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-10-best-final-cut-pro-x-alternatives-free-and-paid/"><u>Updated 10 Best Final Cut Pro X Alternatives Free & Paid</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96031800-9781938289736-wisdom-of-the-shamans/"><u>Wisdom of the Shamans | Free Book</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-kit-list-for-road-trip-movie-making/"><u>[New] 2024 Approved Kit List for Road-Trip Movie Making</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-diverse-video-editing-apps-for-pc-users-for-2024/"><u>[New] Diverse Video Editing Apps for PC Users for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-top-editing-suites-recommendations-for-windows-videographers/"><u>[Updated] In 2024, Top Editing Suites Recommendations for Windows Videographers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-prime-8-android-apps-for-multi-person-video-conferencing-for-2024/"><u>[Updated] Prime 8 Android Apps for Multi-Person Video Conferencing for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bring-back-sound-to-your-windows-7-pc-fixing-usb-headphone-issues/"><u>Bring Back Sound to Your Windows 7 PC: Fixing USB Headphone Issues</u></a></li>
+<li><a href="https://network-issues.techidaily.com/evaluating-amds-strategies-for-a-winning-place-in-gaming-hardware/"><u>Evaluating AMD's Strategies for a Winning Place in Gaming Hardware</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-imperfections-exposed-discovering-5-times-users-faced-letdowns/"><u>Facebook's Imperfections Exposed: Discovering 5 Times Users Faced Letdowns</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-facebook-notification-loading-speed/"><u>Fixing Erratic Facebook Notification Loading Speed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-and-use-facebooks-mtfc-for-security/"><u>How to Activate and Use Facebook's MTFC for Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/participation-in-facebooks-725-million-settlement-a-guide/"><u>Participation in Facebook's $725 Million Settlement: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/potency-in-pixels-hashtags-contribution-to-engagement-metrics-on-fb/"><u>Potency in Pixels: Hashtags' Contribution to Engagement Metrics on FB</u></a></li>
+<li><a href="https://driver-install.techidaily.com/printer-harmony-solving-hp-1020-drivers-on-windows/"><u>Printer Harmony: Solving HP 1020 Drivers on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giants-defend-free-speech-in-court/"><u>Social Media Giants Defend Free Speech in Court</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-four-platforms-in-the-digital-age-facebook-twitter-instagram-and-youtube/"><u>Top Four Platforms in the Digital Age: Facebook, Twitter, Instagram, and YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/uncovering-apples-top-ai-breakthrough-for-wwdc-why-the-low-key-revelation-is-a-game-changer/"><u>Uncovering Apple's Top AI Breakthrough for WWDC – Why the Low-Key Revelation Is a Game Changer</u></a></li>
+<li><a href="https://facebook.techidaily.com/upgrading-your-profile-the-ultimate-facebook-name-alteration/"><u>Upgrading Your Profile: The Ultimate Facebook Name Alteration</u></a></li>
 </ul></div>
 

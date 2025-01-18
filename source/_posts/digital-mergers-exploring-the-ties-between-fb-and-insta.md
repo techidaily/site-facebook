@@ -1,7 +1,7 @@
 ---
 title: "Digital Mergers: Exploring the Ties Between FB and Insta"
-date: 2024-07-29T07:39:17.487Z
-updated: 2024-07-30T07:39:17.487Z
+date: 2025-01-17T16:11:22.559Z
+updated: 2025-01-18T16:13:17.643Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/3baf857753526582466180d3f05c500201c50c263
  Despite concerns that users have over the data-sharing between Instagram and Facebook, parent company Meta has announced that it's testing Accounts Center features that allow users to swap between profiles more easily and receive notifications from both apps.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Tests New Cross-Platform Account Center Features
 
  Meta announced the test of the new Accounts Center features in a[post on the Meta Newsroom](https://about.fb.com/news/2022/09/accounts-center-facebook-and-instagram/) . The new features will allow you to receive your notifications for Facebook and Instagram in one place, as well as create and link existing accounts.
@@ -39,8 +40,9 @@ Meta notes:
  If you want to[make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Accounts Center May Expand to More Apps
 
  The centralization of accounts raises security concerns, since leaks or breaches of one account's credentials could grant access to all linked accounts. Despite this, Meta is not planning to just centralize Instagram and Facebook.
@@ -50,20 +52,18 @@ Meta notes:
  In August 2022, Meta introduced Meta Accounts, a change to account structure for Oculus profiles and Meta Horizons.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Meta Continues to Bring its Apps Closer
 
  The new Accounts Center feature test won't be the last we see of centralized Meta account access. If all goes according to plan, your profiles across Meta accounts may become a lot more connected than in the past.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -72,4 +72,23 @@ Meta notes:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-crafting-impressive-instagram-reels-quickly/"><u>[Updated] 2024 Approved Crafting Impressive Instagram Reels Quickly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-direct-download-and-mp3-creation-for-streaming-video-files/"><u>[Updated] In 2024, Direct Download & MP3 Creation for Streaming Video Files</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-ancestral-aesthetics-art-without-restrictive-rights/"><u>2024 Approved Ancestral Aesthetics Art Without Restrictive Rights</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-tutorial-on-youtube-thumbnail-extraction-for-all-os-enthusiasts/"><u>2024 Approved Tutorial on YouTube Thumbnail Extraction for All OS Enthusiasts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/expert-methods-for-win10-game-screen-recording-for-2024/"><u>Expert Methods for Win10 Game Screen Recording for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-expanding-your-spotify-reach/"><u>Facebook's Role in Expanding Your Spotify Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-transformation-into-a-simpler-social-media-platform/"><u>Facebook’s Transformation Into a Simpler Social Media Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-id-shutdown-exploring-the-meta-facebook-breakup/"><u>Facial ID Shutdown? Exploring the Meta-Facebook Breakup</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insider-tips-to-get-a-buyers-remorse-fix-on-fb/"><u>Insider Tips to Get a Buyer's Remorse Fix on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/leadership-elevation-assigning-a-prestigious-admin-role-on-fb/"><u>Leadership Elevation: Assigning a Prestigious Admin Role on FB</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-top-7-underrated-transition-sounds-for-enhanced-audio-experience-download-now-for-2024/"><u>New Top 7 Underrated Transition Sounds for Enhanced Audio Experience (Download Now!) For 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-a-compreenas-guide/"><u>Stop Fb Alerts & Messages: A Compreenas Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-hidden-algos-how-to-stop-auto-tweets/"><u>Twitter's Hidden Algos: How to Stop Auto-Tweets</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-motorola-moto-g23-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Motorola Moto G23 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+</ul></div>
 

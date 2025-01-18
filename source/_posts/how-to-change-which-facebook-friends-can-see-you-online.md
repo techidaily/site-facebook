@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2025-01-06T18:29:18.406Z
-updated: 2025-01-12T17:13:09.268Z
+date: 2025-01-14T16:18:16.304Z
+updated: 2025-01-18T16:22:34.648Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do People See Who's Online on Facebook?
@@ -71,11 +71,7 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
@@ -88,10 +84,14 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
@@ -131,13 +131,13 @@ This is different from a full Facebook block.
 
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -160,21 +160,17 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-final-cut-pro-everything-you-need-to-know-for-2024/"><u>[New] Final Cut Pro – Everything You Need to Know for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-exploring-beyond-manycam-enhanced-alternatives/"><u>[New] In 2024, Exploring Beyond ManyCam Enhanced Alternatives?</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-time-saving-routines-for-capturing-vimeo-media/"><u>[New] Time-Saving Routines for Capturing Vimeo Media</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-incorporating-secondary-footage-a-filmmakers-guide/"><u>[Updated] Incorporating Secondary Footage A Filmmaker's Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-htc-u23-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-redesigned-interface/"><u>Decoding Facebook's Redesigned Interface</u></a></li>
-<li><a href="https://facebook.techidaily.com/determining-facebook-uptime-methods-and-timelines/"><u>Determining Facebook Uptime: Methods and Timelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-drought-six-hours-of-no-facebookwhatsappinstagram/"><u>Digital Drought: Six Hours of No Facebook/WhatsApp/Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/diversifying-digital-dialogue-not-just-messenger/"><u>Diversifying Digital Dialogue: Not Just Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-smartphones-unwittingly-broadcast-your-preferences/"><u>Do Smartphones Unwittingly Broadcast Your Preferences?</u></a></li>
-<li><a href="https://facebook.techidaily.com/echoes-of-friendship-retrospective-on-fb-connections/"><u>Echoes of Friendship: Retrospective on FB Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-tactics-removing-distasteful-pages-from-your-facebook-hub/"><u>Effective Tactics: Removing Distasteful Pages From Your Facebook Hub</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-12-mini-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 12 mini To Other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 to Android? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transforming-viral-tiktok-sounds-into-personalized-calls/"><u>In 2024, Transforming Viral TikTok Sounds Into Personalized Calls</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-premier-guidance-leading-ringtone-artisans-iphone/"><u>[Updated] Premier Guidance Leading Ringtone Artisans iPhone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-ls-pros-and-cons-firmware-versus-devices/"><u>2024 Approved LS Pros & Cons Firmware Versus Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-eufy-t82-00-video-doorbell-complete-analysis-without-hidden-costs/"><u>Discover the Eufy T82 00 Video Doorbell - Complete Analysis without Hidden Costs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/diy-eradicating-graphics-problems-in-fifa-20-with-ease/"><u>DIY: Eradicating Graphics Problems in FIFA 20 with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-elements-necessity-or-novelty/"><u>Facebook’s Interactive Elements: Necessity or Novelty?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-download-the-right-drivers-for-your-logitech-t6pressor-t630-on-various-windows-systems/"><u>How to Download the Right Drivers for Your Logitech T6pressor T630 on Various Windows Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-promotion-the-5-leading-social-tools-for-trade/"><u>Pioneering Promotion: The 5 Leading Social Tools for Trade</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-profiles-boosted-by-facebooks-latest-release/"><u>Podcast Profiles Boosted by Facebook's Latest Release</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/rectifying-hp-printer-issue-code-oxc4eb827f/"><u>Rectifying HP Printer Issue: Code OXC4EB827F</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-cyberspace-app-downtimes-explained/"><u>The Silent Cyberspace: App Downtimes Explained</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-to-overcome-connect-pairing-errors-in-windows-11-os/"><u>Tips to Overcome 'Connect' Pairing Errors in Windows 11 OS</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-incorrantegate-sleep-mode-into-your-daily-routine-with-messenger-kids/"><u>Why You Should Incorrantegate Sleep Mode Into Your Daily Routine with Messenger Kids</u></a></li>
 </ul></div>
 

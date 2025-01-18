@@ -1,7 +1,7 @@
 ---
 title: "Revamping Social Media Profiles: Email & Number Switch"
-date: 2025-01-05T19:40:02.961Z
-updated: 2025-01-12T16:57:46.453Z
+date: 2025-01-14T16:20:52.725Z
+updated: 2025-01-18T16:16:33.170Z
 tags:
   - facebook
 categories:
@@ -32,15 +32,15 @@ thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec1855627
 
  Another reason why you might want to update your email or phone number is if you are moving or traveling and will be using a new email address or phone number temporarily. Whatever the reason, updating your information is easy to do and can be done in just a few minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Update Your Email Address and Phone Number on Facebook
 
  You can change the email address and phone number linked to your account on the Facebook app as well as the web version.
 
 Here's how...
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Update Your Email Address and Phone Number on Mobile
 
@@ -48,17 +48,9 @@ To change your email address on the Facebook app, follow these steps:
 
 ![screenshot showing facebook main menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-main-menu.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-facebook-menu.jpg)
 
 ![screenshot showing personal information page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-personal-information-page-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![screenshot showing contact details on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-contact-details-on-facebook.jpg)
 
@@ -82,7 +74,7 @@ Here's how to do this:
 ![screenshot showing how to remove phone number from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-how-to-remove-phone-number-from-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -91,7 +83,7 @@ Close
 2. Hit**Remove** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Change Your Contact Details on the Facebook Website
@@ -107,7 +99,7 @@ Close
 4. Click on**Account Settings** .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Click on**Edit** in line with the previously linked email address and then click on**\+ Add another email or mobile number** .  
@@ -115,6 +107,14 @@ Close
 6. Enter your new email address in the provided field and click**Add** or click on**Add your phone number?** .
 
 ![screenshot showing enter email address page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/screenshot-showing-enter-email-address-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Updating Your Contact Information on Facebook
 
@@ -135,18 +135,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-audioarchive-compiler-download-playback-and-test-for-2024/"><u>[New] AudioArchive Compiler Download, Playback & Test for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-instructions-windows-movie-maker-version-6-installation/"><u>[Updated] In 2024, Instructions Windows Movie Maker Version 6 Installation</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-digital-detox-diary-my-journey-beyond-the-feeds/"><u>A Digital Detox Diary: My Journey Beyond the Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-did-facebook-expose-our-groups-numbers/"><u>Alert! Did Facebook Expose Our Group's Numbers?</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-components-of-facebooks-white-list/"><u>Analyzing the Components of Facebook's White List</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Nokia C32 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-social-media-downtime-reasons/"><u>Breaking Down Social Media Downtime Reasons</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722965767376-d-link-driver-installation-and-update-tutorial-for-windows-users-solved/"><u>D-Link Driver Installation & Update Tutorial for Windows Users - SOLVED</u></a></li>
-<li><a href="https://fox-where.techidaily.com/how-can-i-change-brightness-and-contrast-on-my-scanner-tips-by-yl-computing/"><u>How Can I Change Brightness & Contrast on My Scanner? - Tips by YL Computing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-motorola-razr-40-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Motorola Razr 40 Phone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/portability-meets-precision-the-ideal-blend-of-functionality-in-sabrents-mini-travel-mouse-for-seamless-navigation/"><u>Portability Meets Precision: The Ideal Blend of Functionality in Sabrent's Mini Travel Mouse for Seamless Navigation</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlock-the-potential-of-gaming-communities-by-streaming-xbox-games-on-discord/"><u>Unlock the Potential of Gaming Communities by Streaming Xbox Games on Discord</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-understanding-igtv-vs-youtube-a-comprehensive-feature-breakdown/"><u>[Updated] 2024 Approved Understanding IGTV Vs. YouTube A Comprehensive Feature Breakdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-vision-of-a-virtual-world-unpacking-three-issues/"><u>Facebook's Vision of a Virtual World – Unpacking Three Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/furtive-friendship-securing-fb-connectivity/"><u>Furtive Friendship: Securing FB Connectivity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/guide-to-streaming-yify-films-effortlessly-on-iphone-ipad-and-playstation-5-by-bypassing-the-need-for-a-codec-pack/"><u>Guide to Streaming YIFY Films Effortlessly on iPhone, iPad, and PlayStation 5 by Bypassing the Need for a Codec Pack</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-assets-in-nfts/"><u>Instagram Assets in NFTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-communities-fb-vs-linkedins-approach/"><u>Navigating Online Communities: FB Vs. LinkedIn's Approach</u></a></li>
+<li><a href="https://techtrends.techidaily.com/pc-mastery-with-google-assistant-a-tutorial-for-smart-device-management/"><u>PC Mastery with Google Assistant: A Tutorial for Smart Device Management</u></a></li>
+<li><a href="https://fox-links.techidaily.com/seamless-iphone-photography-during-video-for-2024/"><u>Seamless iPhone Photography During Video for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/selecting-the-superior-socializing-space-networks-vs-groups/"><u>Selecting the Superior Socializing Space: Networks Vs. Groups</u></a></li>
+<li><a href="https://some-tips.techidaily.com/survive-power-interruptions-and-slash-your-electric-bills-by-100plus-discover-the-best-rated-portable-solar-generator-from-zdnets-picks/"><u>Survive Power Interruptions and Slash Your Electric Bills by $100+ | Discover the Best Rated Portable Solar Generator From ZDNet's Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-decision-meta-deals-with-e2e-encryption-implementation-date/"><u>Unpacking the Decision: Meta Deals with E2E Encryption Implementation Date</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-trim-avi-videos-with-ease-top-picks-for-desktop-and-mobile-devices/"><u>Updated Trim AVI Videos with Ease Top Picks for Desktop and Mobile Devices</u></a></li>
+<li><a href="https://win-best.techidaily.com/wie-sie-mit-dem-ipad-pro-2022-nahtlos-dateien-von-ihrem-windows-pc-ubertragen-konnen-ein-umfassender-leitfaden-fur-6-effektive-moglichkeiten/"><u>Wie Sie Mit Dem iPad Pro 2022 Nahtlos Dateien Von Ihrem Windows-PC Übertragen Können: Ein Umfassender Leitfaden Für 6 Effektive Möglichkeiten</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-deleting-facial-recognition-data-affect-facebook-users-security/"><u>Will Deleting Facial Recognition Data Affect Facebook Users' Security?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974328874-zoom-camera-roadblocks-clear-them-now-with-our-help/"><u>Zoom Camera Roadblocks? Clear Them Now with Our Help!</u></a></li>
 </ul></div>
 

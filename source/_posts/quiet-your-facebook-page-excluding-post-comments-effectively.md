@@ -1,7 +1,7 @@
 ---
 title: "Quiet Your Facebook Page: Excluding Post Comments Effectively"
-date: 2024-12-29T19:01:49.485Z
-updated: 2025-01-05T16:33:14.972Z
+date: 2025-01-13T16:27:11.217Z
+updated: 2025-01-18T16:25:27.936Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Things to Know About Turning Off Comments on Facebook
 
  Facebook limits what control you have over your personal posts. Because of this, you cannot fully disable comments on your Facebook posts. But you can limit who can comment on your posts.
@@ -45,14 +41,10 @@ thumbnail: https://thmb.techidaily.com/375603cf480909bd9b580ef05e67947950bbf1e13
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -60,6 +52,10 @@ Close
 2. Tap on the**three dots** in the top-right corner of the post.
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Manage Comments Using Facebook Web
 
@@ -70,24 +66,24 @@ Close
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
 ![screenshot of general profile settings page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-general-profile-settings-page-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click on**Public Post Comments** or the area next to it and select your preferred commenting audience, from**Public** ,**Friends of Friends** , or**Friends** .
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  And that's all you need to manage comments on your Facebook post.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
 
@@ -106,6 +102,10 @@ Close
  Using the web version, the steps are the same. Just make sure to look out for the three dots in the top-right corner of the post.
 
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
 
@@ -128,18 +128,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-pinnacle-devices-best-cars-surveillance-tech/"><u>[New] 2024 Approved Pinnacle Devices Best Cars Surveillance Tech</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-effortlessly-download-top-5-chromium-plug-ins-for-fb-video-access/"><u>[New] Effortlessly Download Top 5 Chromium Plug-Ins for FB Video Access</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-uncovering-histories-student-favored-youtubes-on-historic-events/"><u>[Updated] In 2024, Uncovering Histories Student-Favored YouTubes on Historic Events</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-world-of-photo-reshaping/"><u>2024 Approved Navigating the World of Photo Reshaping</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-right-sound-the-right-mic-top-recommendations-for-diverse-online-presence/"><u>2024 Approved The Right Sound, The Right Mic Top Recommendations for Diverse Online Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-revolution-the-power-of-facebook-channels-in-groups/"><u>Connectivity Revolution: The Power of Facebook Channels in Groups</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/data-exposure-incident-cooler-masters-user-information-compromised/"><u>Data Exposure Incident: Cooler Master's User Information Compromised</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ng-youtube-with-imovie-a-soundtrack-journey/"><u>Merging Youtube with iMovie A Soundtrack Journey</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/revitalize-your-lenovo-computer-seamless-power-drivers-reinstallation-tutorial/"><u>Revitalize Your Lenovo Computer: Seamless Power Drivers Reinstallation Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
-<li><a href="https://facebook.techidaily.com/steer-clear-of-facebooks-intrusive-history-feature/"><u>Steer Clear of Facebook's Intrusive History Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/swift-swapping-of-separate-facebook-login-credentials/"><u>Swift Swapping of Separate Facebook Login Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/teaching-friends-share-your-location-in-fbmessenger/"><u>Teaching Friends: Share Your Location in FBMessenger</u></a></li>
+<li><a href="https://blog-min.techidaily.com/comment-creer-un-powerpoint-sur-mac-avec-lassistant-de-diaporamas-movavi/"><u>Comment Créer Un Powerpoint Sur Mac Avec L'Assistant De Diaporamas - Movavi</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/crafting-believable-characters-in-ux-with-chatgpt-assistance/"><u>Crafting Believable Characters in UX with ChatGPT Assistance</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-live-shopping-fridays-for-online-shoppers/"><u>Facebook Launches Live Shopping Fridays for Online Shoppers</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-logitechs-rx250-driver-setup-and-installation-guide-for-windows-781n10/"><u>Get Logitech's RX250 Driver Setup and Installation Guide for Windows 7/8/1N10</u></a></li>
+<li><a href="https://facebook.techidaily.com/guides-to-limit-facebook-reel-engagement/"><u>Guides to Limit Facebook Reel Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-determine-whitelisted-media/"><u>How Does Facebook Determine Whitelisted Media?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-poco-m6-pro-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Poco M6 Pro 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/reconsidering-the-rivalry-is-microsofts-bing-stepping-back-from-challenging-google-insights-from-zdnet/"><u>Reconsidering the Rivalry: Is Microsoft's Bing Stepping Back From Challenging Google? Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-communications-in-the-digital-age-facebook-introduces-advanced-end-to-end-encryption-on-direct-messaging-and-calls/"><u>Securing Communications in the Digital Age: Facebook Introduces Advanced End-to-End Encryption on Direct Messaging & Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-socio-media-management-our-selection-of-free-solutions/"><u>Streamline Socio Media Management: Our Selection of Free Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-messenger-kids-sleep-mode-for-optimal-performance/"><u>Unlocking Messenger Kids' Sleep Mode for Optimal Performance</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/what-to-do-if-windows-wont-show-notification-badges-on-taskbar-icons/"><u>What to Do if Windows Won’t Show Notification Badges on Taskbar Icons</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/windows-maintenance-mastery-a-detailed-walkthrough-of-the-chkdsk-feature-usage/"><u>Windows Maintenance Mastery: A Detailed Walkthrough of the Chkdsk Feature Usage</u></a></li>
 </ul></div>
 

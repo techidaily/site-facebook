@@ -1,7 +1,7 @@
 ---
 title: "Digital Age Advantages: The Positive Seven for Society"
-date: 2024-07-29T07:35:07.189Z
-updated: 2024-07-30T07:35:07.189Z
+date: 2025-01-17T16:04:07.959Z
+updated: 2025-01-18T16:07:36.782Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,12 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Social Media Makes It Easier to Make Friends
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
@@ -36,15 +37,8 @@ thumbnail: https://thmb.techidaily.com/c76014f183cb941dddc5e361ad7d0edd6dead041e
 
 **Social media can help you make and keep friends.**
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## 2\. Social Media Fosters Empathy
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
@@ -58,6 +52,10 @@ The ultimate burning program for all your needs!</a>
  You'll also be able to see for yourself that they made it out of the other side, that this issue didn't derail them, and that they are perhaps better for the experience. Which is another reason why social media is good for you.
 
 **Social media can act as a kind of group therapy session.**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Social Media Allows for Speedy Communication
 
@@ -73,9 +71,17 @@ The ultimate burning program for all your needs!</a>
 
  **Social media allows you to live a life unhindered by small talk.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Social Media Makes the World Seem Smaller
 
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -89,9 +95,6 @@ The ultimate burning program for all your needs!</a>
 
 ## 5\. Social Media Helps You Build Relationships
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
@@ -104,20 +107,12 @@ The ultimate burning program for all your needs!</a>
 
  **Social media can help foster friendships and more besides.**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Social Media Helps News Travel Faster
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
@@ -132,15 +127,8 @@ The ultimate burning program for all your needs!</a>
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## 7\. Social Media Helps You Find Common Ground
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
@@ -157,14 +145,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +158,26 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-gaming-experience-samsung-ue590-freesync-screen/"><u>[New] Ultimate Gaming Experience Samsung UE590 FreeSync Screen</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-tech-savvy-tips-to-ensure-perfect-call-recording-on-facetime/"><u>[Updated] 2024 Approved Tech-Savvy Tips to Ensure Perfect Call Recording on FaceTime</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ond-stories-explained-well-in-2024/"><u>5-Second Stories Explained Well, In 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-extollos-lansocket-1500-featuring-swift-communication-and-low-delay/"><u>Comprehensive Review: Extollo's LANSocket 1500 Featuring Swift Communication and Low Delay</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exploring-corporate-benefits-of-gpt-technology/"><u>Exploring Corporate Benefits of GPT Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-into-harmony-protests-lead-to-a-drop-in-facebook-stardom/"><u>Hacked Into Harmony? Protests Lead to a Drop in Facebook Stardom</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-green-screen-journey-begins-on-yt-ideas-take-flight/"><u>In 2024, Green Screen Journey Begins on YT, Ideas Take Flight!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-vital-guide-to-cost-effective-video-and-photography-archives/"><u>In 2024, Vital Guide to Cost-Effective Video and Photography Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-livestream-audio-and-video-optional/"><u>Instagram Livestream: Audio & Video Optional</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/lgs-smart-tv-leap-discovering-the-bp550-update/"><u>LG's Smart TV Leap Discovering the BP550 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-myths-unveiled-beyond-facebooks-domain/"><u>Metaverse Myths Unveiled – Beyond Facebook's Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/metavision-usa-the-path-to-verified-status/"><u>Metavision USA: The Path to Verified Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/missing-message-photos-get-notified-via-messenger/"><u>Missing Message Photos: Get Notified via Messenger</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-advanced-fcpx-editing-l-cuts-j-cuts-and-expert-audio-tips/"><u>New Advanced FCPX Editing L-Cuts, J-Cuts, and Expert Audio Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevalence-of-hacking-on-digital-spaces/"><u>Prevalence of Hacking on Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-facebook-downtime-your-guide-to-check-backup/"><u>Spotting Facebook Downtime - Your Guide to Check Backup</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-choosing-the-best-facebook-profile-picture/"><u>The Art of Choosing the Best Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/unspoken-revolution-the-veiled-emergence-of-facebooks-smart-device/"><u>Unspoken Revolution: The Veiled Emergence of Facebook’s Smart Device</u></a></li>
+<li><a href="https://win-answers.techidaily.com/valorant-playback-woes-heres-how-to-solve-them/"><u>Valorant Playback Woes? Here's How to Solve Them !</u></a></li>
+</ul></div>
 

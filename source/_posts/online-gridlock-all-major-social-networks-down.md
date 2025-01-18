@@ -1,7 +1,7 @@
 ---
 title: "Online Gridlock: All Major Social Networks Down"
-date: 2025-01-04T04:42:36.338Z
-updated: 2025-01-06T07:21:33.737Z
+date: 2025-01-15T16:15:02.619Z
+updated: 2025-01-18T16:22:51.359Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
@@ -35,10 +39,6 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  That means other sites that rely on Facebook's login to provide secure access to their own services are also affected, potentially locking users out even if they're not attempting to access Facebook specifically.
 
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -109,20 +109,20 @@ thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-chords-to-chart-toppers-essential-musician-focused-youtube-content/"><u>[Updated] In 2024, From Chords to Chart-Toppers Essential Musician-Focused YouTube Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-mastering-facebook-hashtags-for-strategic-marketing/"><u>[Updated] In 2024, Mastering Facebook Hashtags for Strategic Marketing</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-strategies-for-downloading-twitter-video-content-to-mp3/"><u>2024 Approved Strategies for Downloading Twitter Video Content to MP3</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-unleash-calmness-asmr-titles-to-try-out/"><u>2024 Approved Unleash Calmness ASMR Titles to Try Out</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/aesir-clash-dawn-of-the-gods-for-2024/"><u>Aesir Clash Dawn of the Gods for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/eliminating-cyberpunk-2077-sound-glitches-for-a-smoother-gaming-experience/"><u>Eliminating Cyberpunk 2077 Sound Glitches for a Smoother Gaming Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-tecno-pop-8-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Tecno Pop 8 Android SIM Unlock APK</u></a></li>
-<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-your-secrets-skip-these-privacy-invasive-apps/"><u>Protect Your Secrets: Skip These Privacy Invasive Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/reestablishing-contact-post-blockage-on-fb/"><u>Reestablishing Contact Post-Blockage on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-admiration-how-to-conceal-like-counts-on-sites/"><u>Silent Admiration: How to Conceal Like Counts on Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-governance-right-to-suspend-trump-temporarily/"><u>Social Media Governance: Right to Suspend Trump Temporarily</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-strategies-with-8-powerful-crowdflower-capabilities/"><u>Streamline Strategies with 8 Powerful CrowdFlower Capabilities</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/understanding-and-leveraging-snapchat-spotlight-for-2024/"><u>Understanding and Leveraging Snapchat Spotlight for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-clearer-photos-with-blur-effects-apps/"><u>[New] Clearer Photos with Blur Effects Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-guide-to-purging-youtube-videos/"><u>[Updated] 2024 Approved The Ultimate Guide to Purging YouTube Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-nokia-c12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/1728472974732-aomei-backupper/"><u>AOMEI Backupperを使用した効果的なディスクバックアップ手順のガイド</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-deleting-your-fb-business-pages/"><u>Essential Steps for Deleting Your FB Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-digital-dimensions-to-metaverse-realities-6-key-differences/"><u>From Digital Dimensions to Metaverse Realities - 6 Key Differences</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-z-flip-5-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Samsung Galaxy Z Flip 5 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/image-input-ai-output-new-form-of-writing-experiment/"><u>Image Input, AI Output: New Form of Writing Experiment</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-a-thorough-evaluation-of-the-high-resolution-dell-p2715q-monitor/"><u>In 2024, A Thorough Evaluation of the High-Resolution Dell P2715Q Monitor</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-tecno-camon-20-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Tecno Camon 20 Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-metas-approved-content-worthiness/"><u>Investigating Meta’s Approved Content Worthiness</u></a></li>
+<li><a href="https://some-tips.techidaily.com/meta-aws-synergy-accelerates-pytorch-integration-promises-advanced-machine-learning-capabilities-technews-today/"><u>Meta-AWS Synergy Accelerates PyTorch Integration, Promises Advanced Machine Learning Capabilities | TechNews Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-visionary-crusade-for-ai-supremacy-at-lightning-speed/"><u>Meta's Visionary Crusade for AI Supremacy at Lightning Speed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/next-gen-key-smartwatch-opens-your-mac/"><u>Next-Gen Key Smartwatch Opens Your Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-glitch-restoring-active-facebook-status/"><u>Tackling the Glitch: Restoring Active Facebook Status</u></a></li>
 </ul></div>
 

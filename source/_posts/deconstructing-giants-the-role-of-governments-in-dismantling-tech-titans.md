@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Giants: The Role of Governments in Dismantling Tech Titans"
-date: 2024-07-29T07:36:27.249Z
-updated: 2024-07-30T07:36:27.249Z
+date: 2025-01-14T16:12:13.541Z
+updated: 2025-01-18T16:11:29.390Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
 ## Deconstructing Giants: The Role of Governments in Dismantling Tech Titans
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is Big Tech?
 
@@ -36,13 +40,11 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -54,14 +56,16 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Big Tech Fails to Catch Misleading Ads
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -81,14 +85,11 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
 
  Another recent case occurred when the[European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
@@ -96,14 +97,8 @@ No advertising on the website.
 
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Big Tech Can Impact Government Decisions and Operations
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -142,14 +137,11 @@ No advertising on the website.
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,4 +150,18 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-avoiding-zoom-call-blunders-smart-filters-usage/"><u>[New] 2024 Approved Avoiding Zoom Call Blunders Smart Filters Usage</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-richest-streamers-ever-caught/"><u>[New] In 2024, Richest Streamers Ever Caught</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boost-visibility-selecting-the-right-youtube-thumbnail-dimensions/"><u>[Updated] 2024 Approved Boost Visibility Selecting the Right YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-discover-why-hp-zbook-firefly-15-g8-is-a-mobile-marvel/"><u>Comprehensive Review: Discover Why HP ZBook Firefly 15 G8 Is a Mobile Marvel</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/engaging-with-audio-attenuation-procedures-in-audacity/"><u>Engaging with Audio Attenuation Procedures in Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-invisible-hand-of-shadowbanning-systems/"><u>Exposing the Invisible Hand of Shadowbanning Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-innovative-approach-for-enhanced-information-posting/"><u>Facebook's Innovative Approach for Enhanced Information Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nets-nuances-top-9-social-benefits-explored/"><u>Navigating the Net's Nuances: Top 9 Social Benefits Explored</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-geforce-experience-errors-restoring-access-to-user-preferences/"><u>Overcoming GeForce Experience Errors: Restoring Access to User Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-duality-of-using-facebook-for-event-organizing/"><u>The Duality of Using Facebook for Event Organizing</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-understanding-the-allure-of-indirectness-in-blogging/"><u>What Lies Beneath: Understanding the Allure of Indirectness in Blogging</u></a></li>
+</ul></div>
 

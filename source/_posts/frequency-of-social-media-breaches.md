@@ -1,7 +1,7 @@
 ---
 title: Frequency of Social Media Breaches
-date: 2025-01-09T22:43:50.180Z
-updated: 2025-01-12T23:58:38.301Z
+date: 2025-01-16T16:07:30.655Z
+updated: 2025-01-18T16:24:20.061Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 ![black iPhone with purple wallpaper and social media apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/iphone-with-purple-walpaper-and-apps.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It isn’t easy to pin down how many people get hacked via social media. Even so, it’s a genuine problem.
@@ -46,13 +46,13 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
  However, differences existed depending on a person’s country of residence. Individuals in Russia, Israel, Malaysia, and Turkey viewed account hacks as more likely than not.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Increases the Chances of a Social Media Hack?
 
 ![Woman in bedroom on bed lit by her laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-in-bed-in-dark-room-lit-by-laptop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Certain things can make you more or less likely to experience a social media account hack.
 
@@ -68,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 ![Woman sitting at desk with head in her hands in front of a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/woman-with-hands-in-head-sitting-in-front-of-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The consequences of a social media hack vary depending on how and why parties use these platforms. A hacker that breaks into a medical practice’s social media account and posts misleading health information could briefly hurt the organization’s reputation, for example.
 
  Alternatively, compromising the social media account of a public office candidate lets a hacker post controversial viewpoints or other damaging material that could give other political parties an advantage.
@@ -79,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Handle a Social Media Hack
@@ -87,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
  And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## You Can Avoid a Social Media Hack
 
@@ -121,20 +121,14 @@ thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-climbing-the-viewership-ladder-with-igtv-strategies-to-succeed-for-2024/"><u>[New] Climbing the Viewership Ladder with IGTV Strategies to Succeed for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-zoomed-in-filming-with-precision-and-clarity/"><u>[Updated] 2024 Approved Zoomed In Filming with Precision and Clarity</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-million-donation-boosts-worldwide-covid-19-fight/"><u>$5 Million Donation Boosts Worldwide COVID-19 Fight</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/1728477754424-windows-11/"><u>逆转Windows 11文件删除：免费恢复策略</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-preserving-your-digital-self-narrative-on-facebook/"><u>A Guide to Preserving Your Digital Self-Narrative on Facebook</u></a></li>
-<li><a href="https://fox-making.techidaily.com/access-the-most-recent-update-for-action-available-for-download/"><u>Access The Most Recent Update for 'Action!' Available For Download</u></a></li>
-<li><a href="https://facebook.techidaily.com/boost-your-social-media-fluency-shortcuts-mastery-guide/"><u>Boost Your Social Media Fluency: Shortcuts Mastery Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/content-dissemination-strategies-sending-reels-from-instagram-to-facebook/"><u>Content Dissemination Strategies: Sending Reels From Instagram to Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-unique-visionaries-on-your-fans-feeds-with-facebook-reels/"><u>Crafting Unique Visionaries on Your Fans' Feeds with Facebook Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/creators-get-richer-on-instagram-the-new-ways-to-cash-in/"><u>Creators Get Richer on Instagram: The New Ways to Cash In</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-vivo-t2-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Vivo T2 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-y56-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo Y56 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719147503681-is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-review-for-55lf711u20-how-the-toshiba-smart-tv-elevates-your-prime-viewing-experience/"><u>Top Review for 55LF711U20: How the Toshiba Smart TV Elevates Your Prime Viewing Experience</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhanced-stability-how-total-war-warhammer-iii-crash-issues-are-fixed-for-a-smoother-pc-gameplay/"><u>[ENHANCED STABILITY] How Total War: Warhammer III Crash Issues Are Fixed for a Smoother PC Gameplay</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-craft-the-perfect-blurred-photo-with-these-essentials/"><u>[New] Craft the Perfect Blurred Photo with These Essentials</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-be-a-ghost-in-the-social-media-crowd-live/"><u>[New] How to Be a Ghost in the Social Media Crowd - Live</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-personal-security-in-fb-settings/"><u>Ensuring Personal Security in FB Settings</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-tecno-camon-20-pro-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Tecno Camon 20 Pro 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-wisely-implementing-facebooks-breaks/"><u>Navigating Social Media Wisely: Implementing Facebook's Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisit-and-revive-past-online-encounters-on-facebook/"><u>Revisit and Revive Past Online Encounters on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-tomorrow-renaming-yourself-with-confidence-on-fb/"><u>Step Into Tomorrow: Renaming Yourself with Confidence on FB</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-fabrication-suite/"><u>Video Fabrication Suite</u></a></li>
 </ul></div>
 

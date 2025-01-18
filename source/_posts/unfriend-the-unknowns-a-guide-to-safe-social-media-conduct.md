@@ -1,7 +1,7 @@
 ---
 title: "Unfriend the Unknowns: A Guide to Safe Social Media Conduct"
-date: 2025-01-08T23:34:40.459Z
-updated: 2025-01-12T17:12:59.083Z
+date: 2025-01-14T16:05:48.215Z
+updated: 2025-01-18T16:10:18.886Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Risk of Identity Theft
@@ -44,19 +44,11 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
 
  Accepting requests from strangers not just gives them access to your content but also to specific information about your friends. Consider a situation where you and your friends tag each other in pictures, check-ins, and stories.
 
  This allows them to access all this information. It might create long-term problems and a series of trust issues if something wrong happens because of your habit of giving access to anyone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Access to Harmful Links
 
@@ -67,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
  Unless the links you receive are from people you know, there is no point in clicking them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Personal Safety at Risk
@@ -81,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 ## 5\. Become Habitual of Isolation From Family
 
 ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
@@ -96,9 +92,17 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Risk of Emotional Damage
 
 ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
 
@@ -124,10 +128,6 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Avoiding Strangers on Facebook Might Be a Good Idea
 
  Facebook is the most popular platform of all time. It allows you to interact with others and make friends online. Sometimes, interacting with strangers and adding them to your profile might not be as good as it sounds. Other than getting your personal space invaded, there is also a possibility of getting scammed.
@@ -149,18 +149,21 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-elevate-your-video-step-by-step-from-sdr-to-hdri-for-2024/"><u>[New] Elevate Your Video Step-by-Step From SDR to HDRI for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-deciphering-concealed-views-on-video-content/"><u>[Updated] 2024 Approved Deciphering Concealed Views on Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-mastering-youtube-notes-and-alerts-implementation-for-2024/"><u>[Updated] Mastering YouTube Notes & Alerts Implementation for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphers-for-digital-content-creators-youtubes-keyword-techniques/"><u>2024 Approved Deciphers for Digital Content Creators YouTube's Keyword Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-benefits-of-sleep-mode-in-messenger-kids/"><u>Deciphering the Benefits of Sleep Mode in Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-realities-await-3-concerns-of-facebooks-metaverse/"><u>Digital Realities Await - 3 Concerns of Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/does-shunning-facial-identification-compromise-facebook-user-protection/"><u>Does Shunning Facial Identification Compromise Facebook User Protection?</u></a></li>
-<li><a href="https://facebook.techidaily.com/double-tap-deception-verifying-profiles-authenticity/"><u>Double-Tap Deception: Verifying Profiles' Authenticity</u></a></li>
-<li><a href="https://facebook.techidaily.com/earn-prestige-point-paid-metas-badge/"><u>Earn Prestige Point: Paid Metas Badge</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortless-integration-of-new-users-in-fb-chat/"><u>Effortless Integration of New Users in FB Chat</u></a></li>
-<li><a href="https://some-tips.techidaily.com/enhancing-your-meta-quest-3-experience-is-it-essential-to-get-customized-lens-options-if-youre-an-eyeglass-user/"><u>Enhancing Your Meta Quest 3 Experience: Is It Essential to Get Customized Lens Options if You're an Eyeglass User?</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-features-of-the-latest-win11-release/"><u>In 2024, Innovative Features of the Latest Win11 Release</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/1725287954629-winx-dvd-ripper-platinum/"><u>パソコンを更新した後に、WinX DVD Ripper Platinumの再登録方法詳解</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-the-secrets-of-youtube-shorts-success/"><u>[New] Unveiling the Secrets of YouTube Shorts Success</u></a></li>
+<li><a href="https://win11.techidaily.com/efficient-file-handling-a-guide-to-python-servers-in-windows/"><u>Efficient File Handling: A Guide to Python Servers in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-assistance-hub-your-guide-to-usage/"><u>Facebook Assistance Hub: Your Guide to Usage</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-13-pro-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 13 Pro</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-double-the-joy-master-looping-of-youtube-media-on-televisions/"><u>In 2024, Double the Joy Master Looping of YouTube Media on Televisions</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-vivo-v27-pro-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Vivo V27 Pro Location Settings | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-light-and-dark-shades-in-tech-world/"><u>Leading Light and Dark Shades in Tech World</u></a></li>
+<li><a href="https://common-error.techidaily.com/pinpointing-and-resolving-windows-10-copypaste-errors/"><u>Pinpointing & Resolving Windows 10 Copy/Paste Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/shield-your-identity-silent-posting-tactics/"><u>Shield Your Identity: Silent Posting Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savings-and-serenity-the-9-reasons-to-be-online-for-life/"><u>Social Savings & Serenity: The 9 Reasons to Be Online for Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-commercial-value-of-watchfulness/"><u>The Commercial Value of Watchfulness</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quest-for-memory-lanes-first-facebook-step/"><u>The Quest for Memory Lane's First Facebook Step</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-6-retailers-where-youll-find-the-perfect-laptop/"><u>Top 6 Retailers Where You'll Find the Perfect Laptop</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-6-strong-reasons-to-stay-linked-to-facebook/"><u>Unlocking Potential: 6 Strong Reasons to Stay Linked to Facebook</u></a></li>
+<li><a href="https://common-error.techidaily.com/why-isnt-my-corsair-keyboard-lights-up-common-issues-and-repairs/"><u>Why Isn’t My Corsair Keyboard Lights Up? Common Issues and Repairs</u></a></li>
 </ul></div>
 

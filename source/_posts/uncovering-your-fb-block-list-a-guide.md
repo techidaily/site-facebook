@@ -1,7 +1,7 @@
 ---
 title: "Uncovering Your FB Block List: A Guide"
-date: 2025-01-07T20:39:01.384Z
-updated: 2025-01-12T19:35:31.769Z
+date: 2025-01-15T16:25:43.975Z
+updated: 2025-01-18T16:11:02.132Z
 tags:
   - facebook
 categories:
@@ -24,12 +24,16 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Facebook Blocked List on Mobile
 
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
@@ -37,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/8614a77f9e633f7b68cb429db560c3992306d2b5b
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -53,16 +57,12 @@ Close
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -74,7 +74,7 @@ Close
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
@@ -104,14 +104,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-customize-twitter-video-snapshot-for-2024/"><u>[Updated] Customize Twitter Video Snapshot for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-enhanced-motion-video-with-top-mics-for-cams-for-2024/"><u>[Updated] Enhanced Motion Video with Top Mics for Cams for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-smooth-privacy-tear-away-facial-features/"><u>[Updated] Smooth Privacy Tear Away Facial Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-social-bans-who-has-been-shut-out-by-you-on-facebook/"><u>Decoding Social Bans: Who Has Been Shut Out by You on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-past-conversations-in-fb-groups/"><u>Discovering Past Conversations in FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismantling-digital-dominance-the-governments-challenge-to-big-tech/"><u>Dismantling Digital Dominance: The Government's Challenge to Big Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-strategies-for-multi-group-facebook-group-posting/"><u>Efficient Strategies for Multi-Group Facebook Group Posting</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-itel-s23plus-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Itel S23+ Location by Number | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-fixing-discords-screen-sharing-audio-issues/"><u>Troubleshooting Guide: Fixing Discord's Screen Sharing Audio Issues</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-master-fades-with-ease-4-methods-unveiled/"><u>[New] Master Fades with Ease 4 Methods Unveiled</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-clarity-champions-top-10-smartphones-with-high-res-4k-cameras/"><u>[Updated] Clarity Champions Top 10 Smartphones with High-Res 4K Cameras</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-immediate-mastery-skilled-thumbnails-for-valorants-highlights/"><u>[Updated] Immediate Mastery - Skilled Thumbnails for Valorant's Highlights</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-professional-macbook-webcam-capture-techniques-guide/"><u>2024 Approved Professional MacBook Webcam Capture Techniques Guide</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-tricks-for-optimizing-windows-11/"><u>2024 Approved Top Tricks for Optimizing Windows 11</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/advanced-ai-techniques-for-seamless-frame-prediction-and-elevated-video-playback-speed/"><u>Advanced AI Techniques for Seamless Frame Prediction & Elevated Video Playback Speed</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-xiaomi-redmi-note-12-pro-4g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Xiaomi Redmi Note 12 Pro 4G</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevate-home-cooking-with-these-7-insider-tips-from-chatgpt/"><u>Elevate Home Cooking with These 7 Insider Tips From ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-meta-ai-in-social-media-landscape-should-we/"><u>Exploring Meta AI in Social Media Landscape - Should We?</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-influence-backs-who-aims-for-covid-19-success/"><u>Internet Influence Backs WHO, Aims for COVID-19 Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-safety-status-update-on-fb/"><u>Mastering Safety Status Update on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-genesis-of-facebooks-policy-governance-a-center-reveal/"><u>The Genesis of Facebook’s Policy Governance: A Center Reveal</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-metas-endorsed-content-on-brand-value/"><u>The Impact of Meta's Endorsed Content on Brand Value</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-benefits-why-facebook-remains-essential/"><u>Top 6 Benefits: Why Facebook Remains Essential</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlock-the-full-potential-of-windows-photos-app-with-visual-and-audio-tweaks-for-2024/"><u>Unlock the Full Potential of Windows Photos App with Visual & Audio Tweaks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-web-sites-discover-facebooks-banned-countries/"><u>Unseen Web Sites: Discover Facebook’s Banned Countries</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-consequences-the-negative-reality-of-online-relationships/"><u>Virtual Consequences: The Negative Reality of Online Relationships</u></a></li>
 </ul></div>
 

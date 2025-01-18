@@ -1,7 +1,7 @@
 ---
 title: "Disrupting Industry Norms: Social Media Inc.'s $5 Million Investment in Writers' Platforms"
-date: 2024-07-29T07:39:24.289Z
-updated: 2024-07-30T07:39:24.289Z
+date: 2025-01-17T16:02:23.430Z
+updated: 2025-01-18T16:13:34.133Z
 tags:
   - facebook
 categories:
@@ -18,9 +18,9 @@ thumbnail: https://thmb.techidaily.com/13632811731c559bc127701456401507af159186a
  In its efforts to compete against the burgeoning trend of email newsletters, epitomized by the success of Substack, Facebook is trying to recruit journalists to its platform to publish. According to[Reuters](https://www.reuters.com/technology/facebook-pay-5-mln-local-journalists-newsletter-push-2021-04-29/) , Facebook is spending $5 million paying local journalists in multi year deals.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Growing the Independent Creator Space
 
  The publishing platform was initially announced by Facebook in March. Among its features for writers is a free, self-publishing tool for creating and sending newsletters, integration with Facebook Pages, the ability for journalists to create Facebook Groups to grow community support, a dashboard to help writers understand how their content is performing, and more.
@@ -36,12 +36,9 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's News Drive
 
  Whether Facebook can make a success of this new venture remains to be seen. The social networking giant says that it will be investing $1 billion in news over the next three years, of which this current $5 million is just a tiny percentage.
@@ -50,14 +47,11 @@ No advertising on the website.
 
  Recently, Facebook clashed with the Australian government over whether it should be paying news outlets for content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -66,4 +60,18 @@ No advertising on the website.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-design-thinking-for-podcasters-constructing-efficient-rss-files-for-2024/"><u>[New] Design Thinking for Podcasters Constructing Efficient RSS Files for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-charting-the-differences-in-youtubes-ownership-and-cc-models-for-2024/"><u>[Updated] Charting the Differences in YouTube's Ownership and CC Models for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-best-ios-applications-for-gameplaying-iconic-psp-titles/"><u>[Updated] In 2024, Best iOS Applications for Gameplaying Iconic PSP Titles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-youtube-shorts-how-to-for-content-makers-for-2024/"><u>[Updated] Navigating YouTube Shorts How-To for Content Makers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-info-the-one-whistleblowing-to-fbs-secret-life/"><u>Inside Info: The One Whistleblowing to FB's Secret Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-creating-memorable-online-gatherings-on-facebook/"><u>Mastering the Art of Creating Memorable Online Gatherings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-messenger-kids-sleep-mode-for-smoother-experience/"><u>Navigating Through Messenger Kids' Sleep Mode for Smoother Experience</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-realme-c51-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Realme C51 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-digital-conversations-a-guide-to-a-prolific-facebook-clan/"><u>Thriving in Digital Conversations: A Guide to a Prolific Facebook Clan</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-chat-vibes-with-fbs-messenger-sounds/"><u>Transform Your Chat Vibes with FB's Messenger Sounds</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722873941003-unbeatable-apple-watch-offers-dont-miss-out-on-savings/"><u>Unbeatable Apple Watch Offers - Don't Miss Out on Savings</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook & Instagram Messages Remain Unsecured - Wait Until 2022
-date: 2025-01-05T03:01:25.428Z
-updated: 2025-01-05T18:08:21.020Z
+date: 2025-01-16T16:14:54.975Z
+updated: 2025-01-18T16:22:41.026Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Has Been Slow in Adding Default Chat Encryption
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
  Related: [What Is End-to-End Encryption?](https://www.makeuseof.com/what-is-end-to-end-encryption/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Messaging Apps With End-to-End Encryption Have Soared in Popularity
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/messenger-on-a-phone.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Messaging services with end-to-end encryption have surged in popularity in recent times. WhatsApp, iMessage, and Signal are among the major messaging platforms with end-to-end encryption support.
@@ -79,15 +79,24 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-a-quick-fix-for-quirky-content-mastering-meme-creation-at-9gag/"><u>[New] 2024 Approved A Quick Fix for Quirky Content Mastering Meme Creation at 9GAG</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-bridging-gaps-video-platforms-brands-and-collaborative-success/"><u>[New] In 2024, Bridging Gaps Video Platforms, Brands & Collaborative Success</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-digital-repository-open-source-game-tunes/"><u>[New] In 2024, Digital Repository Open Source Game Tunes</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-meerkat-experts-live-at-snapchat-spotlight-for-2024/"><u>[New] Meerkat Experts Live at Snapchat Spotlight for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/diving-deep-into-facebooks-policy-framework-at-launch/"><u>Diving Deep Into Facebook's Policy Framework at Launch</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-top-rated-free-wmv-video-cutters-2023-review/"><u>New Top-Rated Free WMV Video Cutters 2023 Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150243390-securing-communications-in-the-digital-age-facebook-introduces-advanced-end-to-end-encryption-on-direct-messaging-and-calls/"><u>Securing Communications in the Digital Age: Facebook Introduces Advanced End-to-End Encryption on Direct Messaging & Calls.</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-compre-cookie-guide-to-captivating-covers-on-fb/"><u>The Compre Cookie Guide to Captivating Covers on FB</u></a></li>
-<li><a href="https://article-helps.techidaily.com/the-new-era-of-capturing-life-with-updated-lg-360-cameras/"><u>The New Era of Capturing Life with Updated LG 360 Cameras</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-safety-on-social-selling-platforms-key-steps-to-take/"><u>Your Safety on Social Selling Platforms: Key Steps to Take</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-simplified-guide-to-mobile-video-capture/"><u>[New] Simplified Guide to Mobile Video Capture</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-latest-guide-adjusting-video-resolution-and-aspect-ratio-in-adobe-premiere-pro-cc-2020/"><u>1. Latest Guide: Adjusting Video Resolution and Aspect Ratio in Adobe Premiere Pro CC 2020</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mp4windows-11-2024/"><u>最新MP4再生技術：Windows 11におけるファイル再生方法と解析コツ - 2024年の応用</u></a></li>
+<li><a href="https://win11.techidaily.com/advancing-windows-experience-the-significance-of-16gb-ram/"><u>Advancing Windows Experience: The Significance of 16GB RAM</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-measures-for-fb-security-awareness/"><u>Essential Measures for FB Security Awareness</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-and-exploiting-the-benefits-of-sleep-mode-on-messenger-kids-app/"><u>Exploring and Exploiting the Benefits of Sleep Mode on Messenger Kids App</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oppo-a1x-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-your-online-persona-fb-pages-vs-unames/"><u>Insights Into Your Online Persona: FB Pages vs UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-young-users-encouraged-for-downtime/"><u>Instagram: Young Users Encouraged for Downtime</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-mobile-excellence-with-the-new-iphone-15-why-professionals-choose-it-expert-review-on-zdnet/"><u>Mastering Mobile Excellence with the New iPhone 15: Why Professionals Choose It | Expert Review on ZDNET</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-the-art-of-troubleshooting-revive-your-corsair-hs50-microphone-with-these-effective-techniques/"><u>Mastering the Art of Troubleshooting: Revive Your Corsair HS50 Microphone with These Effective Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/metrics-making-moolah-how-meta-supports-artists-in-their-monetary-endeavors/"><u>Metrics Making Moolah: How Meta Supports Artists in Their Monetary Endeavors</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/periscope-review-for-2024/"><u>Periscope Review for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-unplugged-the-positive-shift/"><u>Social Networks Unplugged: The Positive Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ceos-companion-goat-with-a-blockchain-twist/"><u>The CEO’s Companion: Goat with a Blockchain Twist.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-media-cryptocurrency-promos/"><u>The Future of Social Media: Cryptocurrency Promos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/unveiling-the-potential-of-your-future-thunderbolt-sharing-laptop-why-it-matters/"><u>Unveiling the Potential of Your Future Thunderbolt Sharing Laptop - Why It Matters</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-a-neater-more-engaging-feed/"><u>Your Guide to a Neater, More Engaging Feed</u></a></li>
 </ul></div>
 

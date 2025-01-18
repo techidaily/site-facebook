@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2025-01-10T19:46:40.078Z
-updated: 2025-01-13T00:13:37.763Z
+date: 2025-01-15T16:20:47.522Z
+updated: 2025-01-18T16:02:15.661Z
 tags:
   - facebook
 categories:
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -40,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 * **Personal Details:** Is there a picture of your driving license on the table in the background? Have you left your email account logged in on your computer screen? Is your car's license plate in the shot? Information like this is like gold dust to cyber-criminals.
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Facebook and Photo Privacy
 
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -68,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -80,7 +80,7 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
@@ -89,9 +89,17 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
@@ -113,17 +121,9 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Does Facebook Photo Privacy Concern You?
 
@@ -144,24 +144,24 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-unleash-the-full-potential-of-your-images-with-snapchat/"><u>[New] 2024 Approved Unleash the Full Potential of Your Images with Snapchat</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-platform-power-playout-which-streams-better-obs-or-twitch-studio/"><u>[New] In 2024, Platform Power Playout Which Streams Better - OBS or Twitch Studio?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-record-webcam-video-on-hp-laptops-and-chromebooks-in-2024/"><u>[Updated] How to Record Webcam Video on HP Laptops and Chromebooks, In 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-insiders-blueprint-for-finding-hidden-youtube-files/"><u>[Updated] The Insider's Blueprint for Finding Hidden YouTube Files</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-unlocking-the-secrets-of-integrating-online-videos-in-slides/"><u>[Updated] Unlocking the Secrets of Integrating Online Videos in Slides</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-15-cinematic-tools-for-gopro-videos-and-films/"><u>2024 Approved Top 15 Cinematic Tools for GoPro Videos and Films</u></a></li>
-<li><a href="https://facebook.techidaily.com/accelerated-access-to-different-accounts-on-facebook/"><u>Accelerated Access to Different Accounts on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-portions-from-facebooks-725m-settlement-windfall/"><u>Accessing Portions From Facebook’s 725M Settlement Windfall</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-system-for-invisible-message-pictures-on-messenger/"><u>Alert System for Invisible Message Pictures on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-tracking-iphone-users-rising-in-opposition/"><u>App Tracking: IPhone Users Rising in Opposition</u></a></li>
-<li><a href="https://facebook.techidaily.com/beware-of-phishing-schemes-in-your-news-feed/"><u>Beware of Phishing Schemes in Your News Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-goggles-and-gloves-6-key-divergences-between-metaverse-and-vr/"><u>Beyond Goggles & Gloves: 6 Key Divergences Between Metaverse & VR</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-brighter-future-with-facebook-rust-collaboration/"><u>Building a Brighter Future with Facebook-Rust Collaboration</u></a></li>
-<li><a href="https://facebook.techidaily.com/commerce-through-counterintelligence/"><u>Commerce Through Counterintelligence</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144966923-facebooks-unique-value-proposition-here-are-6-pivotal-points/"><u>Facebook's Unique Value Proposition – Here Are 6 Pivotal Points</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-lava-yuva-3-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Lava Yuva 3 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/how-to-revive-a-dormant-computer-solutions-for-windows-10-users-when-their-system-wont-wake-up-from-sleep-mode/"><u>How to Revive a Dormant Computer: Solutions for Windows 10 Users when Their System Won’t Wake up From Sleep Mode</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/phoenix-software-by-stellar-your-mac-based-jpeg-savior/"><u>Phoenix Software by Stellar - Your Mac-Based JPEG Savior</u></a></li>
-<li><a href="https://blog-min.techidaily.com/trasforma-i-video-mpe-into-mp4-online-e-gratis-movavi/"><u>Trasforma I Video MPE Into MP4 Online E Gratis - Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-your-virtual-identity-essential-tech-you-need-top-7/"><u>[New] Crafting Your Virtual Identity - Essential Tech You Need (Top 7)</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-easy-steps-for-exporting-videos-from-youtube-to-dailymotion/"><u>[Updated] 2024 Approved Easy Steps for Exporting Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-photoshops-stabilization-capabilities-real-advantage/"><u>[Updated] Photoshop's Stabilization Capabilities Real Advantage?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-amazon-facebook-group-admin-dispute/"><u>Exposing the Amazon-Facebook Group Admin Dispute</u></a></li>
+<li><a href="https://facebook.techidaily.com/faux-profile-alert-unraveling-social-shadows/"><u>Faux Profile Alert: Unraveling Social Shadows</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-social-media-platforms-privacy-policy-changed-for-me/"><u>Has Social Media Platforms' Privacy Policy Changed for Me?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-breaking-down-the-monetization-barriers/"><u>In 2024, Breaking Down the Monetization Barriers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Motorola Moto G34 5G? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-honor-90-lite-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Honor 90 Lite FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-exorcism-how-to-delete-unwanted-images/"><u>Instagram Exorcism: How to Delete Unwanted Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-online-spotlight-with-facebooks-privacy-restriction-list/"><u>Limit Online Spotlight with Facebook's Privacy Restriction List</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-add-stylish-text-to-videos/"><u>New 2024 Approved Add Stylish Text to Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-alert-the-potential-hazards-of-facebook-games/"><u>Security Alert: The Potential Hazards of Facebook Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-enlisted-in-joes-covid-19-quest/"><u>Social Platforms Enlisted in JOE'S COVID-19 Quest</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-how-to-perform-a-quick-refresh-on-your-excel-pivot-tables/"><u>Step-by-Step Guide: How to Perform a Quick Refresh on Your Excel Pivot Tables</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-chronicles-of-facebooks-5-fatal-errors-to-its-users/"><u>The Chronicles of Facebook's 5 Fatal Errors to Its Users</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-hdcp-issues-a-guide-on-identification-and-solutions/"><u>Understanding HDCP Issues: A Guide on Identification & Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-chats-a-guide-to-downloading-private-fb-messages/"><u>Unlocking Your Chats: A Guide to Downloading Private FB Messages</u></a></li>
 </ul></div>
 

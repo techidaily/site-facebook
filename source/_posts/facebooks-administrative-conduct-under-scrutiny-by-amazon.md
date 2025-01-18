@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Administrative Conduct Under Scrutiny by Amazon
-date: 2025-01-01T07:04:32.040Z
-updated: 2025-01-05T20:02:58.080Z
+date: 2025-01-13T16:24:50.616Z
+updated: 2025-01-18T16:08:28.852Z
 tags:
   - facebook
 categories:
@@ -25,12 +25,16 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Sues Facebook Group Admins
 
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
@@ -43,16 +47,12 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
@@ -63,7 +63,7 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -77,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -101,24 +101,19 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-choosing-a-screen-for-superior-4k-video/"><u>[New] The Ultimate Guide to Choosing a Screen for Superior 4K Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-footsteps-lead-to-pages-groups-in-fb/"><u>Digital Footsteps Lead to Pages, Groups in FB</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/get-to-know-apples-airpods-pro-and-max-releases-in-depth-models-and-specifications-overview-insights-from-zdnet/"><u>Get to Know Apple's AirPods Pro and Max Releases: In-Depth Models & Specifications Overview | Insights From ZDNET</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-to-converting-and-viewing-r3d-video-files-a-step-by-step-approach/"><u>Guide to Converting and Viewing R3D Video Files: A Step-by-Step Approach</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-halt-government-and-kidnap-alerts-on-iphone-for-a-peaceful-screen-experience/"><u>How to Halt Government and Kidnap Alerts on iPhone for a Peaceful Screen Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-read-between-the-lines-of-facebooks-chat-emoji-meanings/"><u>How to Read Between the Lines of Facebook's Chat Emoji Meanings</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-vivo-y17s-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Vivo Y17s Location Settings | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-xiaomi-14-ultra-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Xiaomi 14 Ultra? Fixed | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-every-shared-photo-permanent-archive/"><u>Is Every Shared Photo Permanent Archive?</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-second-life-poised-for-a-comeback-in-the-dawn-of-metaversal-worlds/"><u>Is Second Life Poised for a Comeback in the Dawn of Metaversal Worlds?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastery-over-windows-11s-zero-error-hurdle/"><u>Mastery over Windows 11'S Zero-Error Hurdle</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-authority-checks-right-to-suspend-trump-temporarily/"><u>Online Authority Checks: Right to Suspend Trump, Temporarily</u></a></li>
-<li><a href="https://facebook.techidaily.com/premium-metas-gain-verified-identity-badge/"><u>Premium Metas: Gain Verified Identity Badge</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-for-extracting-entire-facebook-records/"><u>Step-by-Step for Extracting Entire Facebook Records</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tempest-approaching-facebooks-troubling-forecast/"><u>The Tempest Approaching: Facebook's Troubling Forecast</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-itel-p55plus-by-drfone-android/"><u>Three Ways to Sim Unlock Itel P55+</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-anonymity-options-in-social-networks/"><u>Understanding Anonymity Options in Social Networks</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-prime-streaming-platforms-for-authors-for-2024/"><u>[New] Prime Streaming Platforms for Authors for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ielding-income-a-streamers-guide-to-earning-for-2024/"><u>[New] Yielding Income A Streamer's Guide to Earning for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-inability-to-load-facebook-alertsupdates/"><u>Fixing the Inability to Load Facebook Alerts/Updates</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-iphone-6-plus-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your iPhone 6 Plus in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-ultimate-list-free-online-video-conferencing-software/"><u>In 2024, The Ultimate List Free Online Video Conferencing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-your-social-circle-without-facebook-top-10-proposals-for-quitting/"><u>Reinventing Your Social Circle Without Facebook - Top 10 Proposals for Quitting</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tipping-point-apples-ios-145-and-its-impact-on-facebook/"><u>The Tipping Point: Apple's iOS 14.5 and Its Impact on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/theft-from-social-networks-how-often/"><u>Theft From Social Networks: How Often?</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-safe-social-networking-sites/"><u>Top: Safe Social Networking Sites?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/trouble-with-iphone-6s-plus-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>Trouble with iPhone 6s Plus Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/update-your-karaoke-mobile-experience-for-free-get-the-110-enhanced-version-today/"><u>Update Your Karaoke Mobile Experience for Free – Get the 1.1.0 Enhanced Version Today!</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-facebook-ditch-news-feed-in-favor-of-just-feed/"><u>Why Did Facebook Ditch 'News Feed' In Favor of Just 'Feed'?</u></a></li>
 </ul></div>
 

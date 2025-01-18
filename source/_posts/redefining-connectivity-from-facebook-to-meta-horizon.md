@@ -1,7 +1,7 @@
 ---
 title: "Redefining Connectivity: From Facebook to Meta Horizon"
-date: 2025-01-08T16:00:57.568Z
-updated: 2025-01-12T18:10:47.171Z
+date: 2025-01-15T16:10:20.674Z
+updated: 2025-01-18T16:10:33.218Z
 tags:
   - facebook
 categories:
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
  In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
@@ -61,16 +57,12 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
@@ -84,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
  To counter this, the platform introduced a new feature that allowed users to flag fake posts and pledged to improve the algorithm, but these efforts barely made any difference. The same year, Facebook also launched Reactions which allowed users to select from several emojis alongside the Like button.
@@ -94,16 +90,12 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2019–2021: Rebranding to Meta Backfires
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
@@ -120,6 +112,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
  Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
@@ -127,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee53
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -149,20 +149,14 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-best-days-to-unveil-a-podcast-series-for-2024/"><u>[New] Best Days to Unveil a Podcast Series for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ransforming-viewers-to-advocates-the-essential-top-5-youtube-strategies/"><u>[New] Transforming Viewers to Advocates The Essential #Top 5 YouTube Strategies</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-2023s-scarcity-pioneering-vr-content-shortcomings/"><u>[Updated] 2023’S Scarcity Pioneering VR Content Shortcomings</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-ignite-passion-the-top-10-inspirational-films/"><u>[Updated] Ignite Passion The Top 10 Inspirational Films</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-exciting-online-cam-challenges/"><u>[Updated] In 2024, Exciting Online Cam Challenges</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-live-tv-saving-made-simple-with-free-software-tools/"><u>2024 Approved Live TV Saving Made Simple with Free Software Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-game-changing-ways-to-make-money-on-social-media/"><u>5 Game-Changing Ways to Make Money on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-comprehensive-approach-to-creating-engaging-facebook-events/"><u>A Comprehensive Approach to Creating Engaging Facebook Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-clickbait-the-real-costs-of-social-sharing/"><u>Beyond Clickbait: The Real Costs of Social Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-rumor-and-fiction-understanding-the-true-essence-of-fb-papers/"><u>Beyond Rumor and Fiction: Understanding the True Essence of FB Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-streamlined-music-royalties-process/"><u>Breaking Down Facebook’s Streamlined Music Royalties Process</u></a></li>
-<li><a href="https://facebook.techidaily.com/cleanse-your-feed-a-guide-to-page-de-selection/"><u>Cleanse Your Feed: A Guide to Page De-Selection</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-private-online-presence-essential-tips-for-fb-users/"><u>Crafting a Private Online Presence: Essential Tips for FB Users</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-elite-list-8k-resolution-cameras-rated-high/"><u>In 2024, Elite List 8K Resolution Cameras Rated High</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-guide-burning-and-watching-dvd-films-directly-from-your-ultrabook/"><u>Ultimate Guide: Burning and Watching DVD Films Directly From Your Ultrabook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/azure-speech-to-text-a-quick-overview-for-developers/"><u>Azure Speech-to-Text A Quick Overview for Developers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/cutting-edge-e-learning-sites-that-dont-fit-udemy-for-2024/"><u>Cutting-Edge E-Learning Sites That Don't Fit Udemy for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/encyclopedia-of-psvr2-gaming-experiences-a-full-rundown-of-all-revealed-games-thusfar/"><u>Encyclopedia of PSVR2 Gaming Experiences - A Full Rundown of All Revealed Games Thusfar</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-followers-or-real-friends-unmask-deceit-online/"><u>Fake Followers or Real Friends? Unmask Deceit Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-rare-to-revelled-elevate-group-notoriety-on-fb/"><u>From Rare to Revelled: Elevate Group Notoriety on FB</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/multiple-strategies-for-moving-your-icloud-pictures-to-an-android-device/"><u>Multiple Strategies for Moving Your iCloud Pictures to an Android Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-pushers-unveiling-5-new-earning-strategies-on-fbig/"><u>Profit Pushers: Unveiling 5 New Earning Strategies on FB/IG</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-instructions-how-to-update-razer-naga-mouse-drivers-in-windows-1011/"><u>Step-by-Step Instructions: How to Update Razer Naga Mouse Drivers in Windows 10/11</u></a></li>
+<li><a href="https://facebook.techidaily.com/triumphant-comeback-trump-in-the-digital-age/"><u>Triumphant Comeback: Trump in the Digital Age</u></a></li>
 </ul></div>
 

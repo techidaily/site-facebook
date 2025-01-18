@@ -1,7 +1,7 @@
 ---
 title: Dissecting the Contentious Facebook Papers
-date: 2024-07-29T07:38:39.095Z
-updated: 2024-07-30T07:38:39.095Z
+date: 2025-01-15T16:10:48.880Z
+updated: 2025-01-18T16:01:53.643Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
  The documents provide unparalleled insight into Facebook's inner workings, detailing internal policies, arguments, complaints, worries about the direction of the platform, its involvement with spreading hatred and political violence, and much, much more.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Facebook Papers?
 
  In late September 2021, The Wall Street Journal began publishing a series of articles containing information from a series of internal Facebook documents.
@@ -39,9 +40,9 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
  The video below is Haugen's interview on 60 Minutes, where she details many of the revelations found in the Facebook Papers.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Zuckerberg Believes It's an Attack on the Company
 
  Despite the damning nature of the documents, Facebook CEO Mark Zuckerberg[described](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q3/FB-Q3-2021-Earnings-Call-Transcript.pdf) the leaked documents as a coordinated effort to attack the company.
@@ -51,8 +52,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  He goes on to talk about how the polarization of US politics and indeed, society at large, began long before he was born, and that Facebook will never solve these issues on its own.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is This the End for Facebook?
 
  Despite claims that Facebook ignores user safety, puts profits over everything else, contributes to political violence and civil unrest, and much more, there are very few indications that this is the end of Facebook.
@@ -61,14 +63,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The wider backdrop might see even more users leave the platform, with Facebook already struggling to attract the younger audience who view the platform as outdated and full of misinformation. Despite Facebook's enormous clout, massive revelations like this will hurt its image in the long run, especially with a younger audience growing up in a socially aware world.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,4 +76,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://hardware-tips.techidaily.com/affordable-tech-deal-high-performance-hp-touch-laptop-with-mouse-and-free-microsoft-office-subscription-for-just-400-featured/"><u>Affordable Tech Deal: High-Performance HP Touch Laptop with Mouse & Free Microsoft Office Subscription for Just $400 - Featured</u></a></li>
+<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo S17t? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fading-audio-tips-for-better-mixes-in-ableton/"><u>In 2024, Fading Audio Tips for Better Mixes in Ableton</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-p55-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Itel P55 5G Bootloader Easily</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/r-youtube-management-a-detailed-plan-for-watch-later-and-playlists/"><u>Master YouTube Management A Detailed Plan for Watch Later and Playlists</u></a></li>
+<li><a href="https://facebook.techidaily.com/nearly-all-iphones-dodging-app-data-collection/"><u>Nearly All iPhones Dodging App Data Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-an-invalidated-facebook-login-attempt/"><u>Recovering an Invalidated Facebook Login Attempt</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-sound-experience-spotify-on-facebook-tips/"><u>Streamline Your Sound Experience: Spotify on Facebook Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reemergence-of-second-life-metaverse-trends-examined/"><u>The Reemergence of Second Life: Metaverse Trends Examined</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-f14-5g-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy F14 5G Phone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-notch-laptop-cooler-for-high-performance-users-keep-your-system-chilled-with-our-picks-featured/"><u>Top Notch Laptop Cooler for High-Performance Users: Keep Your System Chilled with Our Picks | Featured</u></a></li>
+</ul></div>
 

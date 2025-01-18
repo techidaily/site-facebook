@@ -1,7 +1,7 @@
 ---
 title: "Efficient on the Go: 10 Lightweight Android Essentials"
-date: 2024-07-29T07:37:57.758Z
-updated: 2024-07-30T07:37:57.758Z
+date: 2025-01-12T16:00:58.281Z
+updated: 2025-01-18T16:17:02.220Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/16d13254afac9149dce0a2e443b3fbb7f20249bb6
 
  Here are the lite versions of some of the popular apps that are worth installing.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Skype Lite
 
 ![Skype Lite - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Skype-Lite---Home.png)
@@ -40,16 +37,25 @@ Close
 
 **Download:** [Skype Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.skype.m2&hl=en&gl=CN) (Free)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Facebook Lite
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![Facebook Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Lite---Main.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Lite - News Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Lite---News-Feed.png)
 
 ![Facebook Lite - Dark Mode](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Lite---Dark-Mode.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -63,19 +69,17 @@ Close
 
 **Download:** [Facebook Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.facebook.lite) (Free)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## 3\. Messenger Lite
 
 ![Messenger Lite - Chat](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Messenger-Lite---Chat.png)
 
 ![Messenger Lite - Search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Messenger-Lite---Search.png)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Messenger Lite - Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Messenger-Lite---Menu.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -86,21 +90,15 @@ Close
 **Download:** [Messenger Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.facebook.mlite) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Instagram Lite
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Instagram Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Instagram-Lite---Sign-Up.png)
 
 ![Instagram Lite - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Instagram-Lite---Home.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Instagram Lite - Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Instagram-Lite---Settings.png)
 
 Close
@@ -116,19 +114,20 @@ Close
 **Download:** [Instagram Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.instagram.lite) (Free)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. LinkedIn Lite
 
 ![LinkedIn Lite - Registration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/LinkedIn-Lite---Registration.png)
 
 ![LinkedIn Lite - Profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/LinkedIn-Lite---Profile.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![LinkedIn Lite - Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/LinkedIn-Lite---Feed.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -140,14 +139,8 @@ Close
 
 ## 6\. Twitter Lite
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Twitter Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Lite---Sign-Up.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Twitter Lite - Search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Lite---Search.png)
 
 ![Twitter Lite - Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Lite---Menu.png)
@@ -162,15 +155,8 @@ Close
 
 **Download:** [Twitter Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.twitter.android.lite) (Free)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Spotify Lite
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Spotify Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Spotify-Lite---Sign-Up.png)
 
 ![Spotify Lite - Album](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Spotify-Lite---Album.png)
@@ -191,14 +177,8 @@ Close
 
 ![ParallellSpace Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ParallellSpace-Lite---Main.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ParallelSpace Lite - Cloning Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ParallelSpace-Lite---Cloning-Menu.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![ParalleSpace Lite - Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ParalleSpace-Lite---Storage.png)
 
 Close
@@ -212,20 +192,15 @@ The Lite version lacks the incognito feature of Parallel Space.
 **Download:** [Parallel Space Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.parallel.space.lite) (Free, in-app purchases available)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 9\. Pinterest Lite
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pinterest Lite - Registration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Pinterest-Lite---Registration.png)
 
 ![Pinterest Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Pinterest-Lite---Main.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Pinterest Lite - Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Pinterest-Lite---Feed.png)
 
 Close
@@ -236,16 +211,21 @@ Close
 
 **Download:** [Pinterest Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.pinterest.twa) (Free)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 10\. Go Versions of Google Apps
 
 ![Google Go - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Google-Go---Home.png)
 
 ![Maps Go - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Maps-Go---Main.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Maps Go - Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Maps-Go---Menu.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -263,14 +243,11 @@ Close
 
 So, go ahead and try these apps to put new life into your old phone.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -279,4 +256,26 @@ So, go ahead and try these apps to put new life into your old phone.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-can-a-64gb-drive-manage-large-video-files-in-2024/"><u>[New] Can a 64GB Drive Manage Large Video Files, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-action-cam-faceoff-the-best-of-both-worlds-hero5-black-and-hero4-silver/"><u>[New] In 2024, Action Cam Faceoff The Best of Both Worlds – Hero5 Black & Hero4 Silver</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhance-your-shorts-appeal-with-personalized-thumbnails/"><u>[New] In 2024, Enhance Your Shorts' Appeal with Personalized Thumbnails</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-affordable-storage-solutions-top-30-free-services-with-massive-1tbplus-space-capacity/"><u>[Updated] 2024 Approved Affordable Storage Solutions Top 30 Free Services with Massive (1TB+) Space Capacity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/convert-mpeg-video-files-to-3gpp-3gp-for-free-using-movavis-user-friendly-tool/"><u>Convert MPEG Video Files to 3GPP (3GP) for Free Using Movavi's User-Friendly Tool</u></a></li>
+<li><a href="https://games-able.techidaily.com/discover-pimax-crystal-virtual-clearness-tainted-by-bugs/"><u>Discover Pimax Crystal - Virtual Clearness Tainted by Bugs</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-personal-time-management-facebooks-daily-notification-feature/"><u>Enhance Personal Time Management: Facebook’s Daily Notification Feature</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/essential-logitech-t630-mouse-drivers-for-windows-users-windows-7-8-and-10/"><u>Essential Logitech T630 Mouse Drivers for Windows Users (Windows 7, 8, and 10)</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-roi-of-meta-verified-accounts/"><u>Evaluating the ROI of Meta Verified Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-guide-to-chat-apps-not-facebooks-messenger/"><u>Exclusive Guide to Chat Apps, Not Facebook's Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-depth-of-facebooks-security-system/"><u>Exploring the Depth of Facebook’s Security System</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-shared-social-spaces-unlinking-fb-and-instagram/"><u>Freedom From Shared Social Spaces: Unlinking FB & Instagram</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-realme-narzo-60-pro-5g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Realme Narzo 60 Pro 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-password-and-access-code-challenges-on-facebook/"><u>Overcoming Password and Access Code Challenges on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/recalling-the-day-that-transformed-my-social-interactions-online/"><u>Recalling the Day that Transformed My Social Interactions Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-social-memories-fb-imagevideo-save-techniques/"><u>Securing Your Social Memories: FB Image/Video Save Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-views-into-a-following/"><u>Transforming Views Into a Following</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/unlocking-bitlocker-expert-guide-on-retrieving-encrypted-drive-contents/"><u>Unlocking BitLocker: Expert Guide on Retrieving Encrypted Drive Contents</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-mobile-animation-made-easy-best-free-3d-apps-for-android-and-ios/"><u>Updated In 2024, Mobile Animation Made Easy Best Free 3D Apps for Android and iOS</u></a></li>
+</ul></div>
 

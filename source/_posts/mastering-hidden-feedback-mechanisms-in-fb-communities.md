@@ -1,7 +1,7 @@
 ---
 title: Mastering Hidden Feedback Mechanisms in FB Communities
-date: 2024-10-13T06:44:20.196Z
-updated: 2024-10-15T03:25:20.710Z
+date: 2025-01-15T16:22:11.843Z
+updated: 2025-01-18T16:04:49.734Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/aa2122a37a5989c0b8e6135c848a9b094e794d7aa
 
 ![An anonymous person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/01/teams-anonymous-update-featured.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Shuttershock](https://www.shutterstock.com/image-photo/girl-holding-sheet-paper-question-mark-1673490064)
 
  The anonymous posting feature is only available for groups set as Parenting. So, if your group is set to another group type, you’d need to change this.
@@ -44,7 +48,15 @@ thumbnail: https://thmb.techidaily.com/aa2122a37a5989c0b8e6135c848a9b094e794d7aa
 
 ![facebook group settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-settings-page.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![facebook group type](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -61,10 +73,7 @@ Close
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
@@ -76,10 +85,7 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
@@ -103,24 +109,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-comprehensive-solution-for-srt-not-working-in-premiere-for-2024/"><u>[New] Comprehensive Solution for SRT Not Working in Premiere for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-slide-swivel-and-shift-the-instagram-way-to-rotating-images-with-finesse/"><u>[New] In 2024, Slide, Swivel and Shift The Instagram Way to Rotating Images with Finesse</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-fast-track-converting-your-srt-files-to-text-format-today-for-2024/"><u>[Updated] Fast Track Converting Your SRT Files to Text Format Today for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-watching-outdated-facebook-chronicles-mobilelaptop/"><u>[Updated] Watching Outdated Facebook Chronicles (Mobile/Laptop)</u></a></li>
-<li><a href="https://fox-that.techidaily.com/mastering-your-device-a-guide-to-fixing-common-icloud-issues-for-iphone-and-ipad-users/"><u>Mastering Your Device: A Guide to Fixing Common iCloud Issues for iPhone and iPad Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/mobile-momentum-speedy-lite-android-apps-ranking/"><u>Mobile Momentum: Speedy Lite Android Apps Ranking</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-longer-tracked-eliminating-your-facebook-history/"><u>No Longer Tracked: Eliminating Your Facebook History</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-net-no-ease-assessing-post-social-impact/"><u>No Net, No Ease? Assessing Post-Social Impact</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/re-boot-your-windows-11-to-fix-anydesk/"><u>Re-Boot Your Windows 11 to Fix AnyDesk</u></a></li>
-<li><a href="https://facebook.techidaily.com/reassessing-your-internet-interaction-and-cutting-down-on-chats/"><u>Reassessing Your Internet Interaction and Cutting Down on Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-lost-access-post-facebook-disconnections-unpredictably/"><u>Regaining Lost Access Post Facebook Disconnections Unpredictably</u></a></li>
-<li><a href="https://facebook.techidaily.com/report-protocol-for-child-created-accounts-on-fb/"><u>Report Protocol for Child-Created Accounts on FB</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-audio-hiccups-a-guide-to-restoring-zoom-microphone-functionality-on-windows/"><u>Solving Audio Hiccups: A Guide to Restoring Zoom Microphone Functionality on Windows</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-encyclopedia-of-hands-on-detection-for-2024/"><u>The Encyclopedia of Hands-On Detection for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-role-of-social-platforms-in-mitigating-scam-advertisements/"><u>The Role of Social Platforms in Mitigating Scam Advertisements</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-for-sharing-in-various-languages-on-facebook/"><u>Tips for Sharing in Various Languages on Facebook</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-selection-top-video-editors-for-webcams/"><u>Ultimate Selection Top Video Editors for Webcams</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-permanent-delete-feature-in-messenger/"><u>Understanding the Permanent Delete Feature in Messenger</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/journey-to-stylish-vlogging-a-beginners-guide-mac-edition-for-2024/"><u>Your Journey to Stylish Vlogging A Beginner's Guide, Mac Edition for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-an-overview-and-comparative-study-of-googles-augmented-reality-stickers/"><u>[Updated] An Overview and Comparative Study of Google's Augmented Reality Stickers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-reel-revolution-top-tech-for-brightening-videos/"><u>[Updated] In 2024, Reel Revolution Top Tech for Brightening Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>[Updated] Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/1728489179609-windows-11/"><u>深入解構 Windows 11 - 順利下載、安装與配置的完美方法</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1726027753523-clipchamp/"><u>Clipchampでビデオからオーディオクリッピングのステップバイステップガイド</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/designing-revolutionary-conversations-via-gpt-crafted-chatgpts/"><u>Designing Revolutionary Conversations via GPT-Crafted ChatGPTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-timeline-to-cache-a-full-archive-journey-on-facebook/"><u>From Timeline to Cache: A Full Archive Journey on Facebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-ideal-15-color-filters-for-improving-gopro-shots/"><u>In 2024, Ideal 15 Color Filters for Improving GoPro Shots</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/jumpstarting-your-virtual-reality-experience-with-3d-photos/"><u>Jumpstarting Your Virtual Reality Experience with 3D Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/pruning-pertinent-post-chatter-from-facebook/"><u>Pruning Pertinent Post Chatter From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-budget-identifying-and-evading-facebook-marketplace-scams/"><u>Safeguarding Your Budget: Identifying and Evading Facebook Marketplace Scams</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/standard-ps5-vs-ps5-slim-which-sony-playstation-model-is-right-for-you/"><u>Standard PS5 Vs. PS5 Slim: Which Sony PlayStation Model Is Right for You?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/step-by-step-guide-to-utilizing-agentgpt-for-ai-agent-deployment-in-your-browser/"><u>Step-by-Step Guide to Utilizing AgentGPT for AI Agent Deployment in Your Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainable-use-of-technology-with-facebooks-break-reminder/"><u>Sustainable Use of Technology with Facebook's Break Reminder</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-restoring-non-loading-of-fb-messages/"><u>Techniques for Restoring Non-Loading of FB Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-battles-five-instances-where-facebook-fumbled/"><u>The Unseen Battles: Five Instances Where Facebook Fumbled</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebooks-online-mysteries-what-to-expect/"><u>Unravel Facebook's Online Mysteries – What to Expect</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-seven-step-path-to-secure-your-profile/"><u>Unveiling the Seven-Step Path to Secure Your Profile</u></a></li>
 </ul></div>
 

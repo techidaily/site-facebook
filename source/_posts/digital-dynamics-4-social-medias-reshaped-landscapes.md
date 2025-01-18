@@ -1,7 +1,7 @@
 ---
 title: "Digital Dynamics: 4 Social Media's Reshaped Landscapes"
-date: 2024-07-29T07:36:08.923Z
-updated: 2024-07-30T07:36:08.923Z
+date: 2025-01-17T16:06:10.030Z
+updated: 2025-01-18T16:14:32.722Z
 tags:
   - facebook
 categories:
@@ -19,14 +19,8 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
  Here is a look back at a few ways that different social media giants changed in 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Facebook’s Increased Focus on the Metaverse
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
 
  Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to[CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
@@ -34,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
  This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Elon Musk Took Over Twitter
 
 [Elon Musk bought Twitter](https://www.makeuseof.com/how-elon-musk-bought-twitter-timeline/) in October 2022, and it has been chaos at Twitter ever since. From pausing Twitter Blue to re-offering it and changing the price, the social media platform’s financial future has never been more uncertain.
@@ -45,15 +40,24 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Reels, Reels, Reels
 
 ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
  Reels are Instagram’s answer to TikTok gaining popularity. TikTok isn’t the only social media that Instagram copied in 2022 though.[Instagram also tested Candid Stories](https://www.makeuseof.com/instagram-candid-challenges-test-bereal-feature/) in 2022 which are the same concept as new social media app BeReal, where a notification at a random time each day prompts you to immediately post a picture of whatever you are doing at that moment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. The Rise of BeReal
 
@@ -61,28 +65,23 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
 
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Social Media in 2022
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
  Were the changes we saw in 2022 for the better or did they make things worse? Many of them were controversial or unpopular, but others will help us remember 2022 positively. It will be exciting to see how these changes will shape the future of the social media world.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,4 +90,20 @@ thumbnail: https://thmb.techidaily.com/f35b950c7a8f4cdd1989c1e04c70b04dbfa6ce641
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-filmmaking-made-simple-crafting-an-impactful-youtube-subscribe-button/"><u>[New] 2024 Approved Filmmaking Made Simple Crafting an Impactful YouTube Subscribe Button</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-your-edits-with-these-top-5-tools-no-youtube/"><u>[New] Elevate Your Edits with These Top 5 Tools (No Youtube)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-snapshot-speaks-the-leading-captioning-apps-iosandroid/"><u>[New] Snapshot Speaks The Leading Captioning Apps (iOS/Android)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-extended-scope-camera-platforms/"><u>[Updated] Extended Scope Camera Platforms</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-game-changer-review-dji-mavic-air-takes-on-spark-for-2024/"><u>[Updated] Game Changer Review DJI Mavic Air Takes on Spark for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-fix-youtube-shorts-thumbnail-not-showing-problem-for-2024/"><u>[Updated] How to Fix YouTube Shorts Thumbnail Not Showing Problem for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/cultivation-of-a-connected-crowd-the-subscriber-surge-strategy-for-2024/"><u>Cultivation of a Connected Crowd The Subscriber Surge Strategy for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-a-leap-into-visual-communication-on-facebooks-messenger/"><u>Experience a Leap Into Visual Communication on Facebook's Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-formulation-for-fb-groups-rule-adaptation/"><u>Framework Formulation for FB Groups' Rule Adaptation</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-has-changed-our-lives-for-better-or-worse/"><u>How Facebook Has Changed Our Lives for Better or Worse</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-the-framework-behind-fbs-moderation-entity/"><u>Inspecting the Framework Behind FB's Moderation Entity</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-random-disappearances-in-social-networking-realms/"><u>Overcoming Random Disappearances in Social Networking Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-your-account-without-mobile-after-facebook-theft/"><u>Reactivating Your Account Without Mobile After Facebook Theft</u></a></li>
+</ul></div>
 

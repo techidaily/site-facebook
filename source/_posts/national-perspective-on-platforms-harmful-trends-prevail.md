@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2025-01-08T17:23:18.947Z
-updated: 2025-01-12T20:51:22.096Z
+date: 2025-01-13T16:17:31.550Z
+updated: 2025-01-18T16:00:24.726Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## US Adults Use Social Media Despite Believing It Divides People
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -67,13 +67,13 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -99,24 +99,18 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-ideation-to-implementation-a-comprehensive-approach-for-quality-edu-videos/"><u>[Updated] 2024 Approved From Ideation to Implementation A Comprehensive Approach for Quality Edu-Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-a-practical-guide-to-using-vsco-for-professionals/"><u>[Updated] A Practical Guide to Using VSCO for Professionals</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-smartphone-security-systems-apples-x-vs-samsungs-facial-tech-for-2024/"><u>[Updated] Smartphone Security Systems Apple’s X Vs. Samsung's Facial Tech for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-premiere-pro-exposure-corrections-to-fix-overlit-iphone-videos/"><u>2024 Approved Premiere Pro Exposure Corrections to Fix Overlit iPhone Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-synergistic-campaigns-brands-and-youtube-hand-in-hand/"><u>2024 Approved Synergistic Campaigns Brands & YouTube Hand in Hand</u></a></li>
-<li><a href="https://games-able.techidaily.com/correcting-debit-card-validation-mistakes-on-ps5/"><u>Correcting Debit Card Validation Mistakes on PS5</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-brings-an-abrupt-thread-halt-on-insta/"><u>December Brings an Abrupt Thread Halt on Insta</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-hangs-up-on-instagram-thread-feature/"><u>December Hangs Up on Instagram Thread Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-photodnas-role-in-digital-security/"><u>Deciphering PhotoDNA's Role in Digital Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-upcoming-us-antitrust-reforms-and-impact-on-tech-titans/"><u>Decoding Upcoming US Antitrust Reforms & Impact on Tech Titans</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-downpour-all-social-apps-mia-today/"><u>Digital Downpour: All Social Apps MIA Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-lifesavers-the-guide-to-saving-fb-content/"><u>Digital Lifesavers: The Guide to Saving FB Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-default-user-tag-on-facebook/"><u>Disabling Default User Tag on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-the-top-5-technological-missteps-of-recent-times/"><u>Dissecting the Top 5 Technological Missteps of Recent Times</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-strategies-for-decreasing-individualized-media-plays/"><u>Efficient Strategies for Decreasing Individualized Media Plays</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-unitys-initialization-problem-with-graphics-step-by-step-guide/"><u>Fixing Unity's Initialization Problem with Graphics - Step by Step Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/guida-facile-scambia-video-wmv-per-formato-mp4-gratis-garantendo-uneccellente-qualita-del-98/"><u>Guida Facile: Scambia Video WMV per Formato MP4 Gratis, Garantendo Un'Eccellente Qualità Del 98%</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-on-iphone-15-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud on iPhone 15 Safe and Legal</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-mp4-converters-top-picks-and-reviews/"><u>Ultimate Guide to MP4 Converters: Top Picks & Reviews</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cquire-high-quality-sounds-for-media-creators-in-2024/"><u>[New] Acquire High-Quality Sounds for Media Creators, In 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-apex-play-exclusively-how-to-disable-cross-play-feature/"><u>[New] In 2024, Mastering Apex Play Exclusively How to Disable Cross-Play Feature</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-backtracking-in-twitch-broadcasts/"><u>[Updated] Mastering Backtracking in Twitch Broadcasts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-top-10-mobile-apps-for-enhancing-youtube-shorts-videos/"><u>[Updated] Top 10 Mobile Apps for Enhancing YouTube Shorts Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nubia-red-magic-9-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/download-and-install-latest-media-player-upgrade-on-windows-10-step-by-step-guide/"><u>Download & Install Latest Media Player Upgrade on Windows 10: Step-by-Step Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/essential-virtual-road-racers-guide/"><u>Essential Virtual Road Racers Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-intervention-halts-facebooks-intrusion-on-whatsapp-user-privacy/"><u>German Intervention Halts Facebook's Intrusion on WhatsApp User Privacy</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-metas-intentions-postponing-end-to-end-encryption-until-23/"><u>Insight Into Meta’s Intentions: Postponing End-to-End Encryption Until '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-go-rooting-by-facebook-empowerment-or-concern/"><u>Oculus Go Rooting by Facebook - Empowerment or Concern?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-entry-into-metas-centralized-user-command-center/"><u>Tactical Entry Into Meta’s Centralized User Command Center</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-f15-5g-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy F15 5G Phone</u></a></li>
 </ul></div>
 

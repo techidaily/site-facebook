@@ -1,7 +1,7 @@
 ---
 title: Guiding You Through Unlinking Spotify and FB Accounts
-date: 2025-01-03T05:42:08.717Z
-updated: 2025-01-05T18:40:05.469Z
+date: 2025-01-12T16:27:47.162Z
+updated: 2025-01-18T16:00:31.622Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/270179364474a44da1eaeda7613c10f10260fff7a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What You Should Do Before Unlinking Your Spotify Account From Facebook
 
  You could decide to unlink Facebook from your Spotify account for any number of reasons. Perhaps you're not interested in Spotify's social features and don't wish to be found by others this way. Perhaps you no longer use Facebook and want to make sure you can still access your Spotify account without it. Perhaps you just prefer not to chain platforms together this way.
@@ -41,7 +37,7 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Disconnect Your Spotify Account From Facebook
@@ -51,7 +47,7 @@ Here's what you should do to unlink Facebook from Spotify.
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
@@ -66,7 +62,7 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
@@ -80,13 +76,17 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Settings and Privacy menu on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9601.jpg)
 
-![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
+
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -113,18 +113,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-screen-replayer-for-high-impact-youtubing-experience/"><u>[New] 2024 Approved Best Screen Replayer for High-Impact YouTubing Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-eras-endwatchers-top-youtube-viewership/"><u>[New] In 2024, Era's Endwatchers Top YouTube Viewership</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-optimizing-audio-and-visuals-in-mobile-broadcasting-via-obs/"><u>[New] Optimizing Audio & Visuals in Mobile Broadcasting via OBS</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-crystal-clear-play-top-5-ultra-hd-gaming-pcmonitor-screens/"><u>[Updated] 2024 Approved Crystal Clear Play Top 5 Ultra HD Gaming PC/Monitor Screens</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-beginners-blueprint-for-online-content-simple-straightforward-video-projects-for-2024/"><u>[Updated] Beginner's Blueprint for Online Content Simple, Straightforward Video Projects for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-humorous-interactions-on-facebook/"><u>Avoiding Pitfalls: Humorous Interactions on Facebook</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/combat-king-t5-vs-heavy-duty-sjcam-s6-showdown/"><u>Combat King T5 Vs Heavy Duty SJCAM S6 Showdown</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-netgear-nighthawk-c7000-exceptional-wireless-router-uncovered/"><u>Comprehensive Evaluation of the Netgear Nighthawk C7000 - Exceptional Wireless Router Uncovered</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-your-facebook-outage-rationale/"><u>Decoding Your Facebook Outage Rationale</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-new-beats-with-miniplayer-spotify-meets-facebook/"><u>Discover New Beats with Miniplayer: Spotify Meets Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-hide-your-facebook-friends-list/"><u>How To Hide Your Facebook Friends List</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-digital-personas-set-to-revolutionize-vr/"><u>Tailored Digital Personas Set to Revolutionize VR</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723210533097-troubleshoot-overwatch-voice-chatting-fast-and-effective-solutions/"><u>Troubleshoot Overwatch Voice Chatting: Fast & Effective Solutions.</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-metaverse-ranking-best-8-vr-headsets/"><u>[New] Exploring Metaverse Ranking Best 8 VR Headsets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-innovative-10-solutions-for-seamless-video-background-swapping/"><u>[Updated] In 2024, Innovative 10 Solutions for Seamless Video Background Swapping</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-gain-ground-by-generating-earnings-on-your-youtube-channel-like-ajay/"><u>2024 Approved Gain Ground by Generating Earnings on Your Youtube Channel Like Ajay</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/blue-yeti-not-working-here-are-the-best-fixes-to-get-it-recognized-again/"><u>Blue Yeti Not Working? Here Are the Best Fixes to Get It Recognized Again</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-access-where-you-cant-join-facebook/"><u>Exclusive Access: Where You Can't Join Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-what-facebooks-updated-page-labels-indicate/"><u>Exploring What Facebook's Updated Page Labels Indicate</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-your-facebook-ban-list/"><u>Exploring Your Facebook Ban List</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-good-to-great-transforming-your-professional-persona-on-facebook/"><u>From Good to Great: Transforming Your Professional Persona on Facebook</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-the-challenges-of-arise-strategies-to-prevent-and-fix-crashes/"><u>Mastering the Challenges of Arise – Strategies to Prevent and Fix Crashes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-oppo-a38-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Oppo A38</u></a></li>
+<li><a href="https://win-online.techidaily.com/step-by-step-guide-modifying-control-panel-languages-with-yl-computing-tools/"><u>Step-by-Step Guide: Modifying Control Panel Languages with YL Computing Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-troubles-why-chat-and-sharing-platforms-stalled/"><u>Tech Troubles: Why Chat & Sharing Platforms Stalled?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reality-of-fbcta-what-it-means-for-you/"><u>The Reality of FBCTA: What It Means for You</u></a></li>
 </ul></div>
 

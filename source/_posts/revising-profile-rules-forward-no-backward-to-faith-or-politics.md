@@ -1,7 +1,7 @@
 ---
 title: "Revising Profile Rules: Forward, No Backward to Faith or Politics"
-date: 2025-01-06T19:48:09.481Z
-updated: 2025-01-12T23:06:29.316Z
+date: 2025-01-12T16:11:33.357Z
+updated: 2025-01-18T16:12:21.513Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook to Remove Sensitive Information
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
  But the new update seems to take a step further, removing this information from profiles completely.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Say Goodbye to Sensitive Information Fields on Facebook
@@ -75,20 +75,24 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/onetization-magic-geek-channels/"><u>[New] Monetization Magic Geek Channels</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-backtrack-fabricator-set/"><u>[Updated] In 2024, Backtrack Fabricator Set</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-snap-up-humor-kapwings-meme-mastery-tool/"><u>[Updated] In 2024, Snap Up Humor - Kapwing’s Meme Mastery Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-subtle-cues-in-the-art-of-friend-requesting-on-fb/"><u>Decoding Subtle Cues in the Art of Friend Requesting on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-vk-understanding-russias-virtual-sphere/"><u>Demystifying VK: Understanding Russia's Virtual Sphere</u></a></li>
-<li><a href="https://facebook.techidaily.com/designing-your-social-media-identity-icon/"><u>Designing Your Social Media Identity Icon</u></a></li>
-<li><a href="https://facebook.techidaily.com/despite-ban-facebook-celebrates-its-vaccine-dissenters/"><u>Despite Ban, Facebook Celebrates Its Vaccine Dissenters</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-from-facebook-android-instructions/"><u>Disconnecting From Facebook (Android) Instructions</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-facebooks-matchmaking-portal-initiation-steps/"><u>Discovering Facebook's Matchmaking Portal: Initiation Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismantling-facebook-observation-via-off-fb-workflow/"><u>Dismantling Facebook Observation via Off-FB Workflow</u></a></li>
-<li><a href="https://fox-info.techidaily.com/explore-the-finest-iosdesktop-video-to-file-converters-for-2024/"><u>Explore the Finest iOS/Desktop Video to File Converters for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/gopro-hero5-black-evolution-from-hero4-silver/"><u>GoPro Hero5 Black Evolution From Hero4 Silver</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-huawei-nova-y71-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Huawei Nova Y71 FRP In 3 Different Ways</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-oppo-find-n3-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Oppo Find N3</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unlock-full-potential-of-zoom-in-windows-10-for-2024/"><u>Unlock Full Potential of Zoom in Windows 10 for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-instant-subtitling-hacks-for-all-your-facebook-videos/"><u>[New] 2024 Approved Instant Subtitling Hacks for All Your Facebook Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-essential-guide-to-video-spinning-in-vlc-media-player/"><u>[New] 2024 Approved The Essential Guide to Video Spinning in VLC Media Player</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-advanced-palette-tweaks-by-professionals/"><u>[New] Advanced Palette Tweaks by Professionals</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-from-phones-to-cameras-a-guide-to-diy-video-capturing/"><u>[Updated] In 2024, From Phones to Cameras A Guide to DIY Video Capturing</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-avoiding-pitfalls-common-mistakes-in-instagram-filmmaking/"><u>2024 Approved Avoiding Pitfalls Common Mistakes in Instagram Filmmaking</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breaking-down-the-features-and-performance-of-asus-zenwifi-6e-xt8-ax6600-mesh-wi-fi-system-reviewed/"><u>Breaking Down the Features and Performance of Asus ZenWiFi 6E (XT8) AX6600 Mesh Wi-Fi System Reviewed</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/conversion-libre-de-mxf-a-avi-al-instante-usando-el-servicio-on-line-de-movavi/"><u>Conversión Libre De MXF a AVI Al Instante - Usando El Servicio On-Line De Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-facebook-traits-boosting-collaboration-in-teams/"><u>Essential Facebook Traits Boosting Collaboration in Teams</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-freeze-unfreezing-the-frozen-features/"><u>Facebook Freeze: Unfreezing the Frozen Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-adolescent-security-in-the-world-of-social-media/"><u>Fortifying Adolescent Security in the World of Social Media</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-vivo-g2-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Vivo G2 Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-user-friendly-mac-gadget-visuals-and-voices-recorded/"><u>In 2024, User-Friendly Mac Gadget Visuals & Voices Recorded</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-detect-facebook-banned-friends/"><u>Navigating to Detect Facebook Banned Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-profile-a-streamlined-approach/"><u>Optimize Your Profile: A Streamlined Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-identity-update-made-simple/"><u>Social Media Identity Update Made Simple</u></a></li>
+<li><a href="https://win11.techidaily.com/solutions-for-win-reestablishing-google-drive-syncs/"><u>Solutions for Win: Reestablishing Google Drive Syncs</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-marking-self-as-safe-on-fb/"><u>Steps for Marking Self as Safe on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-blueprint-to-master-message-spaces/"><u>The Beginner's Blueprint to Master Message Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/theories-on-the-impending-shift-in-facebooks-name/"><u>Theories on the Impending Shift in Facebook’s Name</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "When Big Brother Goes Wrong: Facebook's User Missteps"
-date: 2025-01-09T18:37:46.376Z
-updated: 2025-01-12T22:19:00.597Z
+date: 2025-01-12T16:19:36.201Z
+updated: 2025-01-18T16:09:03.049Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Facebook Beacon Tracking
@@ -38,19 +38,19 @@ thumbnail: https://thmb.techidaily.com/f0dbd5a21adf0257efb4cfc535a5b1745bbe68be5
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Copying Competitors and Not Offering Something New
 
 ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -78,13 +78,13 @@ Close
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. The Spread of Fake News
 
 ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 
@@ -93,7 +93,7 @@ Close
  Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Failure to Moderate in Developing Countries
@@ -131,20 +131,22 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-hilarityhub-online-tool-for-funny-image-crafting-for-2024/"><u>[New] HilarityHub Online Tool for Funny Image Crafting for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-androids-photo-editor-showdown-can-pickup-claim-victory/"><u>[New] In 2024, Android's Photo Editor Showdown Can PickUp Claim Victory?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-perfecting-pics-a-full-guide-to-facetune-mastery/"><u>[Updated] Perfecting Pics - A Full Guide to Facetune Mastery</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-secrets-to-enjoying-authentic-cricket-games-in-real-time-for-2024/"><u>[Updated] Secrets to Enjoying Authentic Cricket Games in Real-Time for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/300-rifts-as-key-to-unlocking-post-hack-credentials/"><u>$300 Rifts as Key to Unlocking Post-Hack Credentials</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-latest-evolution-2023s-samsung-bd-j5900-review/"><u>2024 Approved The Latest Evolution 2023'S Samsung BD-J5900 Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/30-social-media-abbreviations-every-user-should-know/"><u>30 Social Media Abbreviations Every User Should Know</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/windows-1-0-5/"><u>修復 Windows 1 0 在更新後不斷重啟的狀況，5 項可靠解決方案</u></a></li>
-<li><a href="https://facebook.techidaily.com/activism-affects-apps-groups-seek-to-lower-social-media-stars/"><u>Activism Affects Apps: Groups Seek to Lower Social Media Stars</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/anaxonic-neurons-have-no-clear-axon-but-multiple-dendrites-for-local-circuitry-within-the-brain/"><u>Anaxonic Neurons Have No Clear Axon but Multiple Dendrites for Local Circuitry Within the Brain.</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-social-fallout-exiting-virtual-gatherings-wisely/"><u>Avoiding Social Fallout: Exiting Virtual Gatherings Wisely</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-facebooks-new-sonic-connectivity-feature/"><u>Breaking: Facebook's New Sonic Connectivity Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-worlds-or-converging-the-metaverse-and-virtual-reality-split/"><u>Bridging Worlds or Converging? The Metaverse & Virtual Reality Split</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-custom-viewability-in-social-media-sphere/"><u>Crafting Custom Viewability in Social Media Sphere</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-itel-p55-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Itel P55 5G</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-what-every-youtuber-should-know-about-live-thumbnails/"><u>[New] 2024 Approved What Every YouTuber Should Know About Live Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-engaging-tactics-for-increased-subscriber-count/"><u>[Updated] 2024 Approved Engaging Tactics for Increased Subscriber Count</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-advanced-guide-to-virtual-backgrounds-in-videography/"><u>[Updated] In 2024, Advanced Guide to Virtual Backgrounds in Videography</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-no-expense-high-quality-topping-chromebook-screen-capture-apps/"><u>2024 Approved No Expense, High Quality – Topping Chromebook Screen Capture Apps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-xbox-wireless-controller-drivers-fast-step-by-step-guide/"><u>Download Xbox Wireless Controller Drivers Fast: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-online-presence-facebooks-security-wisdom/"><u>Enhancing Your Online Presence: Facebook's Security Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-marketplace-a-guide-to-secure-shopping-habits/"><u>FB Marketplace: A Guide to Secure Shopping Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/friend-or-foe-how-to-tell-if-your-fb-is-compromised/"><u>Friend or Foe? How to Tell if Your FB Is Compromised</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-does-android-system-intelligence-work-exploring-advanced-tech-features/"><u>How Does Android System Intelligence Work? Exploring Advanced Tech Features</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-cultivate-creativity-youtubes-top-inspirational-videos/"><u>In 2024, Cultivate Creativity YouTube's Top Inspirational Videos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-narzo-60x-5g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme Narzo 60x 5G Phone FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-memory-how-to-delete-facebook-watch-history/"><u>Mastery Over Memory: How to Delete Facebook Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponement-in-play-facebook-oversight-body-rests/"><u>Postponement in Play: Facebook Oversight Body Rests</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-restoring-your-lost-facebook-account-access/"><u>Steps for Restoring Your Lost Facebook Account Access</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-best-police-scanners-of-2024/"><u>The Best Police Scanners of 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-spotify-on-a-miniplayer-inside-facebook/"><u>Unleash Spotify on a Miniplayer Inside Facebook!</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-eyes-opening-disclosures-in-recent-fb-papers/"><u>What Are The Eyes-Opening Disclosures in Recent FB Papers?</u></a></li>
 </ul></div>
 

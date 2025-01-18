@@ -1,7 +1,7 @@
 ---
 title: Don't Link, Stay Off the Facebook Record List
-date: 2024-07-29T07:38:58.281Z
-updated: 2024-07-30T07:38:58.281Z
+date: 2025-01-14T16:14:56.973Z
+updated: 2025-01-18T16:04:18.467Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 * [How to Check if You've Opted In to Facebook's Link History](#how-to-check-if-you-39-ve-opted-in-to-facebook-39-s-link-history)
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Enabling Link History in the Facebook app will allow Meta to track your data.
@@ -32,9 +29,9 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -45,9 +42,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -58,22 +52,27 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Menu section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/menu-section-of-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -86,11 +85,12 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
@@ -101,14 +101,11 @@ Close
 
 [Meta is notorious for tracking its users](https://www.makeuseof.com/tag/facebook-tracking-stop/) , so if you don't want the company to track the websites you visit while using Facebook, it's best not to enable Link History. However, if you'd rather see ads relevant to you than completely unrelated ones that are of no value, then you should opt in. The key is knowing what the feature does and what implications that has for your privacy and security.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,4 +114,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-essential-screen-recorders-for-todays-windows-users/"><u>[New] In 2024, Essential Screen Recorders for Today's Windows Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-perfect-your-skills-applying-radial-blur-in-photoshop-easily/"><u>[New] In 2024, Perfect Your Skills Applying Radial Blur in Photoshop Easily</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-leading-the-pack-2023s-8-facebook-movie-downloads-for-2024/"><u>[New] Leading the Pack 2023'S #8 Facebook Movie Downloads for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-guide-to-the-best-photovideo-makers-with-harmonized-sounds/"><u>2024 Approved In-Depth Guide to the Best Photo/Video Makers with Harmonized Sounds</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-art-of-superior-images-for-free/"><u>2024 Approved Unlocking the Art of Superior Images for Free</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-to-downloading-and-installing-amd-radeon-rx-590-drivers-on-windows/"><u>Easy Guide to Downloading and Installing AMD Radeon RX 590 Drivers on Windows</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-guide-to-installing-new-dell-wifi-drivers-on-windows-7-machines/"><u>Easy Guide to Installing New Dell WiFi Drivers on Windows 7 Machines</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-cellular-mechanisms-to-therapeutics-charting-the-course-for-cancer-fighting-cannabinoids/"><u>From Cellular Mechanisms to Therapeutics: Charting the Course for Cancer-Fighting Cannabinoids</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/phoney-pages-identifying-social-swindlers/"><u>Phoney Pages: Identifying Social Swindlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+</ul></div>
 

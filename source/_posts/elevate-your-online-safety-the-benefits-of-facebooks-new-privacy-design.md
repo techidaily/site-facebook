@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your Online Safety: The Benefits of Facebook's New Privacy Design"
-date: 2024-07-29T07:36:28.881Z
-updated: 2024-07-30T07:36:28.881Z
+date: 2025-01-16T16:04:46.092Z
+updated: 2025-01-18T16:00:51.055Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/2cb7f310cfa40bade9f97a206c11fec1a7936d92f
  To this end, it has launched a Privacy Center, a central location that now houses most of the information you need to know about your privacy and how its parent company Meta stores and uses your personal data.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Access the New Facebook Privacy Center
 
  The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
@@ -30,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/2cb7f310cfa40bade9f97a206c11fec1a7936d92f
 
 Here's how:
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
 ![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
@@ -43,9 +45,6 @@ Here's how:
 
  Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## Facebook's Privacy Center at a Glance
 
  The Facebook Privacy Center provides helpful information on five major categories, each containing specific information about Meta's privacy policy.
@@ -59,22 +58,28 @@ Here's how:
  Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use Facebook's Privacy Center
 
  To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
 
 ![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
 
  To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
 
@@ -96,23 +101,17 @@ Here's how:
 
  Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## Protect Your Privacy
 
  Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
 
  Considering Facebook’s privacy history and its recent objections to iOS ad tracking changes, the new Privacy Center appears to be a small step in the right direction. We can only hope that it gets better.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +120,26 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-help.techidaily.com/new-shake-the-sound-mobile-beats-best-ripplers/"><u>[New] Shake the Sound Mobile Beats' Best Ripplers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-navigating-the-world-of-video-timestamps-on-youtube-for-2024/"><u>[Updated] Navigating the World of Video Timestamps on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-your-iphones-mp3-fix-6-free-tools-to-convert-youtube-audio/"><u>[Updated] Your iPhone's MP3 Fix 6 Free Tools to Convert YouTube Audio</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210381484-9781945169632-emotional-wholeness/"><u>Emotional Wholeness | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-impactful-disclosures-in-whistleblowers-report/"><u>Exploring The Impactful Disclosures in Whistleblower's Report</u></a></li>
+<li><a href="https://win11.techidaily.com/fine-tuning-windows-11-a-compreenas-list-of-must-have-modifications/"><u>Fine-Tuning Windows 11: A Compreenas List of Must-Have Modifications</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-iphone-12-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-best-top-picks-for-samsung-gear-vr/"><u>In 2024, Unveiling the Best Top Picks for Samsung Gear VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-the-most-of-facebooks-3d-feature/"><u>Making the Most of Facebook's 3D Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nuggets-todays-most-popular-virtual-gatherings/"><u>Network Nuggets: Today's Most Popular Virtual Gatherings</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-announcement-of-third-gen-oculus-quest-this-year/"><u>No Announcement of Third-Gen Oculus Quest This Year</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-techniques-to-perfect-pets-eyes-in-images/"><u>Step-by-Step Techniques to Perfect Pets' Eyes in Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-minimalism-in-digital-friendships/"><u>The Art of Minimalism in Digital Friendships</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-professional-online-identity-on-facebook/"><u>The Art of Professional Online Identity on Facebook</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ubuntu-guide-setting-up-auto-gpt-automation/"><u>Ubuntu Guide: Setting up Auto-GPT Automation</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-internal-design-strategy/"><u>Unveiling Facebook's Internal Design Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-illusion-assessing-true-users-of-facebook/"><u>Unveiling The Illusion: Assessing True Users of Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whens-the-ideal-time-for-a-social-media-visual-update/"><u>When's the Ideal Time for a Social Media Visual Update?</u></a></li>
+</ul></div>
 

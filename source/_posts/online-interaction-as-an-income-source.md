@@ -1,7 +1,7 @@
 ---
 title: Online Interaction as an Income Source
-date: 2025-01-12T00:28:48.459Z
-updated: 2025-01-12T19:48:22.863Z
+date: 2025-01-12T16:00:45.589Z
+updated: 2025-01-18T16:13:57.693Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Venture capital is a form of private financing and it's how a lot of social media companies get their start.
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
@@ -60,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
  Another big source of income for social media platforms, and a controversial one, is through collecting and selling user data.
@@ -71,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Premium Memberships
@@ -79,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
@@ -108,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## You Can Make Money on Social Media
 
  There's a saying that "if something is free, you are the product." That's especially true in the case of social media. It's not necessarily a bad thing, but it's good to be aware.
@@ -133,22 +133,22 @@ thumbnail: https://thmb.techidaily.com/41ecffa399c4641eb478bbc9a56d686246cf56f42
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhance-your-video-meetings-with-snap-shots-on-zoom-for-2024/"><u>[New] Enhance Your Video Meetings with Snap Shots on Zoom for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-enhancing-digital-presence-with-vimeo-sharing/"><u>[New] Enhancing Digital Presence with Vimeo Sharing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unveiling-prodigy-strategies-for-enthusiasts-in-seo/"><u>[Updated] Unveiling Prodigy Strategies for Enthusiasts in SEO</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-and-its-boundaries-a-look-into-the-reasons-behind-inaccessible-jailbreaks/"><u>ChatGPT and Its Boundaries: A Look Into the Reasons Behind Inaccessible Jailbreaks</u></a></li>
-<li><a href="https://facebook.techidaily.com/deactivate-2fa-on-facebook-after-losing-phone-access-quickly/"><u>Deactivate 2FA on Facebook After Losing Phone Access Quickly</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-on-your-facebook-echo-show/"><u>Deciding on Your Facebook Echo Show</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-metas-decision-postponing-full-e2e-encryption-rollout/"><u>Delving Into Meta’s Decision: Postponing Full E2E Encryption Rollout</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-wellbeing-maintaining-balance-with-reduced-network-usage/"><u>Digital Wellbeing: Maintaining Balance with Reduced Network Usage</u></a></li>
-<li><a href="https://facebook.techidaily.com/discerning-honesty-from-hoodwinked-havens-online/"><u>Discerning Honesty From Hoodwinked Havens Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/diving-into-facebooks-home-and-feed-redesign/"><u>Diving Into Facebook's Home and Feed Redesign</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficiently-managing-downtinas-in-social-media-apps/"><u>Efficiently Managing Downtinas in Social Media Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-social-identity-with-a-new-page-title/"><u>Elevate Social Identity with a New PAGE Title</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/expert-guide-to-resolving-steam-vr-error-code-308/"><u>Expert Guide to Resolving Steam VR Error Code 308</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-ultimate-2023-tweet-video-roundup/"><u>In 2024, Ultimate 2023 Tweet Video Roundup</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-rocket-league-wont-open-effective-fixes-and-tips/"><u>Overcoming 'Rocket League Won't Open': Effective Fixes & Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/y-guide-image-to-youtube-thumbnail-conversion-made-easy/"><u>Snappy Guide Image to YouTube Thumbnail Conversion Made Easy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-perfect-accompaniments-for-your-sj4000-journey/"><u>2024 Approved Perfect Accompaniments for Your SJ4000 Journey</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-honor-x9a-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor X9a Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-most-cost-effective-webcams-zdnets-ultimate-guide/"><u>Discover the Most Cost-Effective Webcams – ZDNet's Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-facebook-visibility-hide-from-randoms/"><u>Enhancing Facebook Visibility: Hide From Randoms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-elegant-and-compact-lenovo-ideapad-320-a-testament-to-lenovos-legendary-keyboard-design/"><u>Exploring the Elegant and Compact Lenovo Ideapad 320 - A Testament to Lenovo's Legendary Keyboard Design</u></a></li>
+<li><a href="https://win-net.techidaily.com/how-to-modify-page-colors-in-your-flipbooks-with-flipbuilder-a-comprehensive-guide/"><u>How to Modify Page Colors in Your Flipbooks with FlipBuilder - A Comprehensive Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme V30T? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/maximize-efficiency-using-the-same-phone-number-on-laptop-tablet-and-smartphone/"><u>Maximize Efficiency: Using the Same Phone Number on Laptop, Tablet & Smartphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-user-id-setup-email-and-number-changes/"><u>New User ID Setup: Email & Number Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-security-breaches-by-the-numbers/"><u>Online Security Breaches by the Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-destinations-where-freelancers-converge/"><u>Prime Destinations Where Freelancers Converge</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagined-conversation-on-facebook-with-sonic-additions/"><u>Reimagined Conversation on Facebook with Sonic Additions</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-the-world-of-online-influence/"><u>Thriving in the World of Online Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-core-structure-of-facebooks-system/"><u>Unraveling the Core Structure of Facebook’s System</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-s18e-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo S18e Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionalities-stay-unaltered-with-policy-non-compliance/"><u>WhatsApp Functionalities Stay Unaltered with Policy Non-Compliance</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/1728476998700-pc4/"><u>ファイルをPCから無残に削除:復元困難な方法4選手</u></a></li>
 </ul></div>
 

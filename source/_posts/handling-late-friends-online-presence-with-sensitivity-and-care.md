@@ -1,7 +1,7 @@
 ---
 title: Handling Late Friends' Online Presence with Sensitivity and Care
-date: 2025-01-11T22:34:58.142Z
-updated: 2025-01-12T22:12:42.063Z
+date: 2025-01-12T16:12:25.578Z
+updated: 2025-01-18T16:22:51.818Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Get a Facebook Account Memorialized
@@ -40,16 +40,12 @@ To get a Facebook account memorialized, follow these steps:
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
 4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
@@ -62,6 +58,10 @@ To get a Facebook account memorialized, follow these steps:
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -84,7 +84,7 @@ To get a Facebook account memorialized, follow these steps:
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
@@ -97,7 +97,7 @@ To get a Facebook account memorialized, follow these steps:
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
@@ -123,22 +123,18 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-clip-courage-embracing-twitters-viral-vanguard/"><u>[New] 2024 Approved Clip Courage Embracing Twitter's Viral Vanguard</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-polaroid-xs-100i-action-camera-review/"><u>[New] Polaroid XS 100I Action Camera Review</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-from-novice-to-expert-navigating-telegram-web/"><u>[Updated] 2024 Approved From Novice to Expert Navigating Telegram Web</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-best-8-free-editing-programs-to-streamline-your-youtube-projects/"><u>[Updated] The Best 8 Free Editing Programs to Streamline Your YouTube Projects</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-persuasive-arguments-for-keeping-facebook-in-your-life/"><u>6 Persuasive Arguments for Keeping Facebook in Your Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-armistice-social-media-worldwide-standstill/"><u>App Armistice: Social Media Worldwide Standstill</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/approach-discuss-the-role-of-aggregates-in-determining-the-properties-of-concrete/"><u>Approach: Discuss the Role of Aggregates in Determining the Properties of Concrete.</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-the-case-should-you-rely-on-fb-events/"><u>Assessing the Case: Should You Rely on FB Events?</u></a></li>
-<li><a href="https://facebook.techidaily.com/bidens-digital-offensive-fb-tweet-snap-campaign-against-covid/"><u>Biden's Digital Offensive: Fb, Tweet, Snap Campaign Against COVID</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-income-5-must-try-fbig-methods/"><u>Boosting Income: 5 Must-Try FB/IG Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-quest-profiles-pages-and-facebook-group-links/"><u>Connectivity Quest: Profiles, Pages & Facebook Group Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/crypto-marketing-the-next-big-thing-on-social-networks/"><u>Crypto Marketing: The Next Big Thing on Social Networks?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-smooth-techniques-painless-ios-screen-recordings/"><u>In 2024, Smooth Techniques Painless iOS Screen Recordings</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-unlock-the-secret-of-youtube-to-gif-conversion-begin-here/"><u>In 2024, Unlock the Secret of YouTube-to-GIF Conversion - Begin Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719153627799-initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-for-windows-10-to-11-transition/"><u>The Ultimate Guide for Windows 10 to 11 Transition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-limited-time-dji-drone-visual-enhancements-no-pay-required/"><u>[New] Limited-Time DJI Drone Visual Enhancements No Pay Required</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-the-ultimate-2023-checklist-for-camstudio-video-recording/"><u>[Updated] In 2024, The Ultimate 2023 Checklist for CamStudio Video Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-steady-yourself-against-oculus-nausea-for-2024/"><u>[Updated] Steady Yourself Against Oculus Nausea for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/effective-strategies-to-fetch-latest-drivers-for-your-hp-envy-20-laptop/"><u>Effective Strategies to Fetch Latest Drivers for Your HP Envy 20 Laptop</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-brand-visibility-the-real-impact-of-hashtags-on-fb/"><u>Enhancing Brand Visibility: The Real Impact of #Hashtags on FB</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>How to Detect and Remove Spyware on Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-install-the-latest-epson-ds-sle-for-windows-pcs-complete-step-by-step-instructions/"><u>How to Install the Latest Epson DS-ˈsɪlə for Windows PCs: Complete Step-by-Step Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-entry-facebook-without-previous-codes/"><u>How to Regain Entry: Facebook Without Previous Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-social-ties-accessing-old-fb-relationships/"><u>Revisiting Social Ties: Accessing Old FB Relationships</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/social-platforms-smartbots-which-ai-fits-your-needs/"><u>Social Platforms, Smartbots: Which AI Fits Your Needs?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-six-biggest-blunders-with-chatgpt-prompts-and-how-to-fix-them/"><u>The Six Biggest Blunders with ChatGPT Prompts & How to Fix Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-6-shifts-that-swapped-forums-for-social-platforms/"><u>The Top 6 Shifts That Swapped Forums for Social Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-honor-magic5-ultimate-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Honor Magic5 Ultimate Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

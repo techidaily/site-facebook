@@ -1,7 +1,7 @@
 ---
 title: Is Participating in FB Quizzes Risky for Privacy?
-date: 2025-01-07T16:39:42.889Z
-updated: 2025-01-12T22:58:42.401Z
+date: 2025-01-15T16:21:25.598Z
+updated: 2025-01-18T16:14:09.700Z
 tags:
   - facebook
 categories:
@@ -30,9 +30,17 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -47,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Analyze the Quiz
@@ -58,25 +66,17 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -89,7 +89,7 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Change Your Security Question Answers
@@ -119,24 +119,24 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-instagram-writers-and-broadcasters-podcast-sharing-explained/"><u>[New] 2024 Approved Instagram’ Writers & Broadcasters Podcast Sharing Explained</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-photo-editing-unveiling-clear-images-with-photopea/"><u>[Updated] 2024 Approved Mastering Photo Editing Unveiling Clear Images with Photopea</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-perfect-your-presence-masterful-morphvox-techniques/"><u>2024 Approved Perfect Your Presence Masterful MorphVOX Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-alarms-for-metas-social-colossus/"><u>3 Alarms for Meta's Social Colossus</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-motives-to-break-free-from-the-social-media-giant/"><u>6 Motives to Break Free From the Social Media Giant</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-ways-to-use-facebook-for-career-growth/"><u>6 Ways to Use Facebook for Career Growth</u></a></li>
-<li><a href="https://facebook.techidaily.com/annual-2022-in-depth-analysis-of-popular-podcasts/"><u>Annual 2022: In-Depth Analysis of Popular Podcasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-direct-be-quick-understanding-3-tagging-techniques-for-fb-friends/"><u>Be Direct, Be Quick: Understanding 3 Tagging Techniques for FB Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/become-a-digital-content-wizard-with-these-proven-techniques-for-facebook-video-creation/"><u>Become a Digital Content Wizard with These Proven Techniques for Facebook Video Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/converting-connectivity-into-corp-achievements-via-top-sites/"><u>Converting Connectivity Into Corp Achievements via Top Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/could-facebooks-reels-disrupt-tiktoks-dominance/"><u>Could Facebook’s Reels Disrupt TikTok's Dominance?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fix-your-frozen-save-solving-persistent-frostpunk-game-crashing-concerns/"><u>Fix Your Frozen Save: Solving Persistent Frostpunk Game Crashing Concerns</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149877934-hidden-stories-that-could-change-your-perception-of-tech-today/"><u>Hidden Stories That Could Change Your Perception of Tech Today</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-infographic-top-insights-into-fifa-football-videos-on-youtube/"><u>In 2024, Infographic - Top Insights Into FIFA Football Videos On YouTube</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/navigating-the-setup-how-to-enable-and-use-chatgpts-innovative-plug-in-features/"><u>Navigating the Setup: How To Enable and Use ChatGPT's Innovative Plug-In Features</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/resolve-your-apple-iphone-11-pro-max-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your Apple iPhone 11 Pro Max Keeps Asking for Outlook Password</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-overlooked-elements-of-success-with-instagram-reels-for-2024/"><u>The Overlooked Elements of Success with Instagram Reels for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-elevating-your-video-projects-with-audio-synchronization-in-magix-pro/"><u>Updated 2024 Approved Elevating Your Video Projects with Audio Synchronization in Magix Pro</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-velocity-for-the-visionary-quick-frame-android-tools/"><u>[Updated] Velocity for the Visionary Quick-Frame Android Tools</u></a></li>
+<li><a href="https://techtrends.techidaily.com/f4v-in-avi-converter-vrije-onlinetool-voor-format-omzetting/"><u>F4V in AVI Converter - Vrije Onlinetool Voor Format Omzetting</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendless-no-more-resuming-online-relationships/"><u>Friendless No More: Resuming Online Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-your-child-through-safe-data-edits-on-messenger/"><u>Guiding Your Child Through Safe Data Edits on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-security-codes-not-sent-by-facebook/"><u>How to Reset Security Codes Not Sent by Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Motorola G24 Power? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Oppo Reno 9A? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-or-minimizing-the-real-story-of-expat-facebook-groups/"><u>Maximizing or Minimizing? The Real Story of Expat Facebook Groups</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-the-challenges-of-effective-gpt-communication/"><u>Navigating the Challenges of Effective GPT Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policy-temporal-suspension-of-trump-a-step-forward/"><u>Platform Policy: Temporal Suspension of Trump, a Step Forward</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-access-to-remote-connections-in-win-11/"><u>Quick Access to Remote Connections in Win 11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-13-mini-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone 13 mini Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-sending-stunning-3d-photos-via-facebook/"><u>The Art of Sending Stunning 3D Photos via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-strategy-for-securing-an-e-commerce-refund-on-fb/"><u>The Essential Strategy for Securing an E-Commerce Refund on FB</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-key-to-earning-on-youtube-in-depth-ad-revenue-guidebook-for-2024/"><u>The Key to Earning on YouTube In-Depth Ad Revenue Guidebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-using-safety-features-on-fb/"><u>Understanding and Using Safety Features on FB</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-the-full-potential-of-windows-11s-video-production-suite-for-2024/"><u>Unlocking the Full Potential of Windows 11'S Video Production Suite for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-privacy-matters-more-than-followers-a-list-of-10-reasons-to-drop-facebook/"><u>Why Privacy Matters More Than 'Followers' - A List of 10 Reasons to Drop Facebook</u></a></li>
 </ul></div>
 

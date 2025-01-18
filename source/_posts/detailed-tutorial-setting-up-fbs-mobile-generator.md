@@ -1,7 +1,7 @@
 ---
 title: "Detailed Tutorial: Setting Up FB's Mobile Generator"
-date: 2024-07-29T07:36:29.801Z
-updated: 2024-07-30T07:36:29.801Z
+date: 2025-01-14T16:18:53.944Z
+updated: 2025-01-18T16:06:33.242Z
 tags:
   - facebook
 categories:
@@ -31,28 +31,24 @@ thumbnail: https://thmb.techidaily.com/7fed1c054c54c404a50983c16bd1d7d403eb3f6cb
 
  That said, you can also enable login alerts and have them sent to your email address, Facebook, or Messenger account. In your Facebook mobile app, tap the**hamburger menu** , expand**Settings & Privacy** , select **Settings > Password and Security > Get alerts about unrecognized logins** , and enable your preferred login alerts. We highly recommend enabling email notifications.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Mobile Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Mobile Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Setting-Up-Extra-Security.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![Set up Login Alerts on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Login-Alerts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## How to Set Up Two-Factor Authentication
 
 [Facebook's two-factor authentication](https://www.makeuseof.com/tag/use-2fa-facebook-without-phone-number/) requires a mobile phone number or an authentication app. If you'd like to use a phone number for two-factor authentication, note that you can no longer use that same number to reset your password.
@@ -69,7 +65,15 @@ Close
 
 ![Facebook Mobile Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Mobile Personal and Account Information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Personal-and-Account-Information.jpg)
 
@@ -77,18 +81,23 @@ Close
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Enable Two-Factor Authentication on Facebook
 
  To enable two-factor authentication, navigate to **Settings > Password and Security > Use two-factor authentication** , choose whether you want to use an**Authentication App** ,**Text Message (SMS)** , or**Security key** and follow the on-screen instructions to set up your choice.
 
 ![Facebook Mobile Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Facebook Mobile Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Settings-and-Privacy.jpg)
 
 ![Facebook Mobile Two-Factor Authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Two-Factor-Authentication.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Facebook Mobile Help Protect Your Account Select a Security Method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Help-Protect-Your-Account-Select-a-Security-Method.jpg)
 
@@ -103,21 +112,18 @@ Close
 ![Select your phone number while setting up two-factor authentication in the Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![Add a new phone number for two-factor authentication on the Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![explanation of what Facebook can do with a phone number provided for two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-via-Phone-Number-3.jpg)
 
 ![Enter a 6-digit code to confirm your phone number for two-factor authentication in Facebook Mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![Confirmation that two-factor authentication was enabled for a specific phone number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-5.jpg)
 
@@ -129,30 +135,18 @@ Close
 
  We went with the third-party app, and it was all done in a matter of seconds. Note that when you return to Facebook, you'll have to enter a confirmation code from the app to finalize the setup.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Mobile Help Protect Your Account Select a Security Method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Help-Protect-Your-Account-Select-a-Security-Method.jpg)
 
 ![Facebook Two Factor Authentication Scan Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-7-Edited.png)
 
 ![Facebook Set Up Authenticator Choose App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-8-Blurred.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![Enter Confirmation Code to authenticate authenticator app on Facebook for Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![Facebook MObile Two-Factor Authentication Is On](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-MObile-Two-Factor-Authentication-Is-On.jpg)
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Always Set Up Backup Facebook Recovery Methods
 
  After you've turned on two-factor authentication, be sure to keep your phone number(s) up to date and always have an authorized device as a backup to log in or change your settings. Most importantly, however, set up the following backup security methods:
@@ -172,33 +166,21 @@ Close
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up Code Generator
 
  While you can set up and access most features described above from Facebook in your browser, Code Generator is a feature exclusive to the Facebook mobile app. If you had the app installed all along, Code Generator should be available already.
 
  When you first log into the Facebook mobile app and have already set up two-factor authentication, you will need a security code to complete your login. Inside the Facebook app, open the**hamburger menu** , head to**Settings > Password and Security > Code Generator** , and**Activate** it. That's it.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![Facebook Mobile Password and Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Password-and-Security.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![Activate Code Generator for offline two-factor authentication](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Mobile-Two-Factor-Authentication-Activate.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Mobile Code Generator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Code-Generator.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Mobile Code Generator Code Copied](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-Mobile-Code-Generator-Code-Copied.jpg)
 
 Close
@@ -208,22 +190,20 @@ Close
  Should you ever[lose access to Facebook Code Generator](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) (for example, if your phone was stolen), you can log into Facebook from a recognized device, log out on your phone, and remove Code Generator. Until you get your phone back, you can also set up a third-party app to generate codes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Keep Your Facebook Account Secure
 
  Once you have straightened out your personal information, security settings, and backup recovery methods, you should never struggle to recover your Facebook account login. If you want to verify that you've sufficiently protected your Facebook account, try[Facebook's Privacy Checkup tool](https://www.facebook.com/privacy/checkup) and see if you can make any other improvements to keep your account secure.
 
  If you're ever concerned that your account is compromised, check whether anyone accessed your Facebook account and from where. You can also log them out of your account straight from the Facebook interface.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -232,4 +212,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-crafting-stories-excellence-among-8-film-categories/"><u>[New] In 2024, Crafting Stories Excellence Among 8 Film Categories</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-enhancing-vimeo-videos-with-effective-end-credits/"><u>[New] In 2024, Enhancing Vimeo Videos with Effective End Credits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-how-to-resolve-delayed-video-posts-in-facebook-messenger-for-iosandroid-users/"><u>[Updated] 2024 Approved How to Resolve Delayed Video Posts in Facebook Messenger for iOS/Android Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-oneplus-nord-ce-3-lite-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from OnePlus Nord CE 3 Lite 5G</u></a></li>
+<li><a href="https://win-blog.techidaily.com/end-the-frustration-fixed-guide-for-persistent-modern-warfare-s-crashing-problems-in-pc-gaming/"><u>End the Frustration! Fixed Guide for Persistent Modern Warfare S Crashing Problems in PC Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpretive-insights-understanding-and-using-facebook-icons-correctly/"><u>Interpretive Insights: Understanding and Using Facebook Icons Correctly</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-security-implications-of-online-surveys/"><u>Investigating the Security Implications of Online Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-limitations-for-whatsapp-account-with-disregard-for-updated-policies/"><u>No Limitations for WhatsApp Account with Disregard for Updated Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-insists-on-suggestive-engagement/"><u>Why Facebook Insists on Suggestive Engagement</u></a></li>
+</ul></div>
 

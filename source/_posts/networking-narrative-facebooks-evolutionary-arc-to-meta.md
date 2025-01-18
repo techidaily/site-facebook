@@ -1,7 +1,7 @@
 ---
 title: "Networking Narrative: Facebook's Evolutionary Arc to Meta"
-date: 2025-01-03T20:52:02.916Z
-updated: 2025-01-06T00:42:06.437Z
+date: 2025-01-14T16:27:53.691Z
+updated: 2025-01-18T16:14:43.637Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
 ![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Mark Zuckerberg and his friends came up with an idea for a new website that connects all Harvard students. Their inspiration? Harvard's online student directory's "Face books." The technical insights came from his previous project Facemash—a "hot or not" website that compared female Harvard students side by side.
 
  On February 4, 2004, Zuckerberg launched "TheFacebook" with his friends (they eventually dropped "The" in 2005). In the beginning, only Harvard students were allowed to create profiles on the site. But later, the site expanded to allow students from other colleges, with its user count reaching one million by September 2004.
@@ -40,17 +36,9 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2007–2009: The Inception of the Facebook Like Button
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
@@ -62,15 +50,27 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
 ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
  By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
@@ -98,10 +98,6 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
  Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
@@ -113,7 +109,7 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
@@ -127,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/26ea0e5365722a01980097a318d774f00c8708e1d
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -149,20 +149,18 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-solution-for-stopping-youtube-video-previews/"><u>[New] The Ultimate Solution for Stopping YouTube Video Previews</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-techniques-to-archivalize-chat-communication-in-whatsapp/"><u>[Updated] 2024 Approved Techniques to Archivalize Chat Communication in WhatsApp</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-nubia-red-magic-8s-proplus-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Nubia Red Magic 8S Pro+</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-vs-hugtingchat-an-in-depth-analysis-of-two-leading-llms/"><u>ChatGPT Vs. HugtingChat: An In-Depth Analysis of Two Leading LLMs</u></a></li>
-<li><a href="https://win-able.techidaily.com/comprehensive-solutions-overcoming-technical-glitches-in-phasmophobia-for-an-optimal-vr-experience/"><u>Comprehensive Solutions: Overcoming Technical Glitches in Phasmophobia for an Optimal VR Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-guide-to-discovering-facebook-pages-and-groups-links/"><u>Essential Guide to Discovering Facebook Pages & Groups Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-the-portal-go-making-the-portal-portable-for-the-first-time/"><u>Facebook Launches the Portal Go, Making the Portal Portable for the First Time</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-users-on-friend-activity-sharing-controls/"><u>Guiding Users on Friend Activity Sharing Controls</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-honor-100-pro-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-digital-defense-against-private-pictures-spread/"><u>Meta's Digital Defense Against Private Pictures Spread</u></a></li>
-<li><a href="https://facebook.techidaily.com/misinformers-among-top-social-media-influencers/"><u>Misinformers Among Top Social Media Influencers</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-stop-motion-made-easy-best-apps-for-mobile-animation-for-2024/"><u>New Stop Motion Made Easy Best Apps for Mobile Animation for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/s-top-animation-software-10-best-2d-tools-for-beginners-and-pros-for-2024/"><u>S Top Animation Software 10 Best 2D Tools for Beginners and Pros for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-clear-of-integrated-facebook-exploration/"><u>Steering Clear of Integrated Facebook Exploration</u></a></li>
-<li><a href="https://facebook.techidaily.com/unboxing-facebook-and-instagrams-latest-ad-ventures/"><u>Unboxing Facebook & Instagram's Latest Ad Ventures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-using-youtube-to-boost-classroom-engagement/"><u>[Updated] Strategies for Using YouTube to Boost Classroom Engagement</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-future-of-titles-an-innovators-playbook-for-videos/"><u>[Updated] The Future of Titles An Innovator's Playbook for Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-vivo-s17-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/cod-mw3-update-troubles-how-to-solve-the-sudden-crash-in-modern-warfare-3/"><u>COD MW3 Update Troubles? How to Solve the Sudden Crash in Modern Warfare 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-upgrades-text-based-interaction-with-new-messaging-innovations-in-messenger-and-instagram/"><u>FB Upgrades Text-Based Interaction with New Messaging Innovations in Messenger & Instagram</u></a></li>
+<li><a href="https://win-docs.techidaily.com/fixing-windows-save-game-error-no-suitable-reader-detected-explore-three-reliable-solutions/"><u>Fixing Windows Save Game Error: No Suitable Reader Detected - Explore Three Reliable Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-up-uncover-these-top-6-social-advantages/"><u>Group Up! Uncover These Top 6 Social Advantages</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-motorola-edge-40-pro-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Motorola Edge 40 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 Plus Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-rewinds-time-for-trumps-profile/"><u>Meta Rewinds Time for Trump's Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/recognizing-9-flaws-that-suggest-hacked-profiles/"><u>Recognizing 9 Flaws That Suggest Hacked Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundscapes-of-socialization-facebooks-latest-features/"><u>Soundscapes of Socialization: Facebook's Latest Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-propel-engagement-in-fb-discussions/"><u>The Ultimate Guide to Propel Engagement in FB Discussions</u></a></li>
 </ul></div>
 

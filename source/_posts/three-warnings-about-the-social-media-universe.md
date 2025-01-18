@@ -1,7 +1,7 @@
 ---
 title: Three Warnings About the Social Media Universe
-date: 2025-01-05T16:08:28.484Z
-updated: 2025-01-12T18:17:40.842Z
+date: 2025-01-16T16:21:36.376Z
+updated: 2025-01-18T16:01:27.977Z
 tags:
   - facebook
 categories:
@@ -44,13 +44,13 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -65,16 +65,12 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -88,12 +84,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
@@ -107,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
@@ -133,24 +133,16 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-pro-fishing-visionaries-discovering-our-5-best-cameras-for-2024/"><u>[New] Pro-Fishing Visionaries Discovering Our 5 Best Cameras for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-altering-mac-screenshot-format-on-the-fly/"><u>[Updated] 2024 Approved Altering Mac Screenshot Format on the Fly</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unveiling-the-top-10-video-editing-apps-for-instagram-magic/"><u>[Updated] In 2024, Unveiling the Top 10 Video Editing Apps for Instagram Magic</u></a></li>
-<li><a href="https://facebook.techidaily.com/9-red-flags-in-your-digital-presences-security/"><u>9 Red Flags in Your Digital Presence's Security</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/average-profit-per-million-youtube-viewers/"><u>Average Profit per Million YouTube Viewers</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-senior-friendly-digital-network-spots/"><u>Best Senior-Friendly Digital Network Spots</u></a></li>
-<li><a href="https://facebook.techidaily.com/breathe-life-back-into-vanished-facebook-interactions/"><u>Breathe Life Back Into Vanished Facebook Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/choosing-the-optimal-moment-to-revamp-fb-look/"><u>Choosing the Optimal Moment to Revamp FB Look</u></a></li>
-<li><a href="https://facebook.techidaily.com/compiling-googles-landmark-news-moments-in-a-nutshell/"><u>Compiling Google's Landmark News Moments in a Nutshell</u></a></li>
-<li><a href="https://facebook.techidaily.com/cross-platform-connectivity-for-xbox-players-with-social-links/"><u>Cross-Platform Connectivity for Xbox Players with Social Links</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-honor-x50iplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Honor X50i+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/how-to-establish-your-nintendo-online-presence-with-a-3ds-network-id/"><u>How to Establish Your Nintendo Online Presence with a 3DS Network ID</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-best-online-hubs-sky-high-dynamic-range-photography/"><u>In 2024, Best Online Hubs Sky High Dynamic Range Photography</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-oneplus-ace-2v-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your OnePlus Ace 2V Face Lock?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-revealing-the-quintessential-5-titling-visionaries-online/"><u>In 2024, Revealing the Quintessential 5 Titling Visionaries Online</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-infinix-hot-40-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Infinix Hot 40 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151524514-overlooked-high-impact-tech-developments-top-4-hidden-gems/"><u>Overlooked High-Impact Tech Developments - Top 4 Hidden Gems!</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144840090-should-you-harness-facebooks-power-for-your-events-heres-why-not/"><u>Should You Harness Facebook's Power for Your Events? Here's Why Not</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150501428-which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-key-methods-to-customize-song-speed-on-spotify/"><u>[Updated] 2024 Approved Key Methods to Customize Song Speed on Spotify</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-optimal-pick-the-top-ten-phone-and-pc-video-calls/"><u>[Updated] 2024 Approved Optimal Pick The Top Ten Phone & PC Video Calls</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-stabilizer-unmatched-smartphone-tracking/"><u>2024 Approved The Ultimate Stabilizer Unmatched Smartphone Tracking</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/from-web-to-window-the-superior-features-of-chatgpt-as-a-desktop-application/"><u>From Web to Window: The Superior Features of ChatGPT as a Desktop Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-harmony-with-facebooks-modern-group-management-functionalities/"><u>Harnessing Harmony with Facebook's Modern Group Management Functionalities</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-fix-the-required-privilege-is-not-held-by-client-error-0x80070522-in-windows-1110/"><u>How to Fix the “Required Privilege Is Not Held by Client” Error 0X80070522 in Windows 11/10</u></a></li>
+<li><a href="https://facebook.techidaily.com/pretender-on-linkedin-check-for-copycat-profiles/"><u>Pretender on LinkedIn: Check for Copycat Profiles</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/rechargeable-vs-battery-powered-why-the-romer-outdoor-searchlight-leads-in-performance/"><u>Rechargeable Vs. Battery-Powered: Why the Romer Outdoor Searchlight Leads in Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-digital-districts-with-facebook-written-content/"><u>Redefining Digital Districts with Facebook' Written Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-who-sees-you-on-social-grids/"><u>Steering Who Sees You on Social Grids</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-numbers-facebook-users-leaving/"><u>Uncovering the Numbers: Facebook Users Leaving</u></a></li>
 </ul></div>
 

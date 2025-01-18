@@ -1,7 +1,7 @@
 ---
 title: "Digital Responsibility: Essential Non-Shareables for Personal Security"
-date: 2024-07-29T07:39:39.725Z
-updated: 2024-07-30T07:39:39.725Z
+date: 2025-01-17T16:05:54.627Z
+updated: 2025-01-18T16:00:11.515Z
 tags:
   - facebook
 categories:
@@ -16,8 +16,9 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
 ## Digital Responsibility: Essential Non-Shareables for Personal Security
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Key Takeaways
 
 * Don't share your travel plans or photos while on a trip to avoid advertising that you're away from home and potentially inviting theft.
@@ -44,6 +45,10 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
 
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. Personally-Identifying Information
 
  Sites like Facebook are full of valuable data for people who use social engineering to steal your identity on social media. You should always avoid sharing information that can be used to verify your identity, such as your full date of birth. Never share photos of your driver's license, passport, or credit card, which contain personal information that you don't want to make public.
@@ -63,8 +68,9 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -76,8 +82,9 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Expensive New Purchases
 
  Many people love to share pictures of their new "toys" on social media. Whether you just got a new phone, laptop, car, TV, piece of jewelry, or anything else, you shouldn't make the purchase public on social media.
@@ -86,9 +93,6 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Personal Advice
 
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
@@ -99,10 +103,6 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## 8\. Scammy Giveaways and Contests
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
@@ -113,14 +113,15 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10\. Anything You Don't Want to Make Public
 
@@ -130,23 +131,17 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What You Shouldn't Share Online
 
  While social media can be a fun way to share with friends you don't see in person, sharing online has many downsides compared to talking in person. It's easy to overshare, not realize the audience that could see your posts, or make other mistakes.
 
  Sharing information online voluntarily lessens your privacy and can open you up to attacks on your security, too. It's wise to be intentional about what you share.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,4 +150,21 @@ thumbnail: https://thmb.techidaily.com/f29016c0fce2f518937f68251a2431a5f707a01cf
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-a-comprehensive-look-at-securing-background-visuals-for-2024/"><u>[New] A Comprehensive Look at Securing Background Visuals for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-a-new-era-of-creativity-pinpointing-the-best-10-budget-friendly-video-art-communities-on-youtube-for-2024/"><u>[New] A New Era of Creativity Pinpointing the Best 10 Budget-Friendly Video Art Communities on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beginners-guide-to-choosing-lenses-and-cameras-for-youtube-vloggers/"><u>[Updated] In 2024, Beginner's Guide to Choosing Lenses and Cameras for YouTube Vloggers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-no-money-all-fcp-unveiled-methods/"><u>[Updated] No Money, All FCP – Unveiled Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/p-by-step-manual-on-repetitive-watch-experiences-in-yt-for-2024/"><u>A Step-by-Step Manual on Repetitive Watch Experiences in YT for 2024</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/clearing-out-iphones-library-effective-ways-to-remove-audiobooks-in-just-three-steps/"><u>Clearing Out iPhone's Library: Effective Ways to Remove Audiobooks in Just Three Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-cues-to-trigger-an-avatar-transformation/"><u>Essential Cues to Trigger an Avatar Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefines-e-commerce-with-individualized-app-payment-links/"><u>Facebook Redefines E-Commerce with Individualized App Payment Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-leaked-insights-a-public-discussion/"><u>Facebook's Leaked Insights: A Public Discussion</u></a></li>
+<li><a href="https://article-files.techidaily.com/hardware-insights-with-expert-tom-top-picks-and-analysis/"><u>Hardware Insights with Expert Tom - Top Picks & Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-instagramfacebook-with-meta-ai-integration/"><u>The Future of Instagram/Facebook with Meta AI Integration?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-shortcut-to-instagram-video-connectivity-for-2024/"><u>The Ultimate Shortcut to Instagram Video Connectivity for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-solving-your-ipads-wi-fi-connection-issues/"><u>Troubleshooting Guide: Solving Your iPad's Wi-Fi Connection Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-unfollow-functionality/"><u>Understanding Facebook's Unfollow Functionality</u></a></li>
+</ul></div>
 

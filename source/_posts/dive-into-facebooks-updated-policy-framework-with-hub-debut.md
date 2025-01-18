@@ -1,7 +1,7 @@
 ---
 title: Dive Into Facebook’s Updated Policy Framework with Hub Debut
-date: 2024-07-29T07:39:31.062Z
-updated: 2024-07-30T07:39:31.062Z
+date: 2025-01-11T16:14:58.936Z
+updated: 2025-01-18T16:03:47.843Z
 tags:
   - facebook
 categories:
@@ -18,16 +18,18 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
  Facebook isn't necessarily known for being the most transparent of brands, but it seems that it wants to change this. The company has launched a new online Transparency Center to provide more insight on its policies.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Launches a Transparency Center to Explain Policies
 
  Facebook has launched an online Transparency Center to explain a little more about its policies. The company has a bit of a reputation for not always being too transparent, so this new addition is set to change that.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Screenshot of Facebook's Transparency Center website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Transparency-Center-Screenshot.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook announced it would release the Transparency Center back in February 2021.
 
@@ -42,22 +44,20 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
  A spokesperson for Facebook said "We’ll continue to add more information and build out the Transparency Center as our integrity efforts continue to evolve". From this, it seems clear that Facebook is taking the Center seriously and will continue to update it over time.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's New Focus on Transparency
 
  With the release of the Transparency Center, it appears that Facebook has a new focus on transparency and is taking it seriously.
 
  The Center doesn't give too much away too much information regarding privacy and data, which is what many users will likely look for. But it's great to see this new approach from the company.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -66,4 +66,16 @@ thumbnail: https://thmb.techidaily.com/f00def1c04cb418f21da5c60f199b078da943127e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-steps-to-adobe-audition-fade-in/"><u>[New] In 2024, Steps to Adobe Audition Fade In</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-oculus-game-collection-top-8-popular-picks/"><u>[New] Oculus Game Collection Top 8 Popular Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-under-fire-protests-lead-to-decrease-in-app-ratings/"><u>Facebook Under Fire: Protests Lead to Decrease in App Ratings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/learn-the-simple-steps-for-removing-blank-spaces-on-your-pc-drive/"><u>Learn the Simple Steps for Removing Blank Spaces on Your PC Drive</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-professional-engagement-and-growth/"><u>Leveraging Facebook for Professional Engagement & Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-evade-these-3-spying-apps/"><u>Privacy First: Evade These 3 Spying Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/protests-push-1-star-rating-sour-social-networks-reputation/"><u>Protests Push 1-Star Rating, Sour Social Network's Reputation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unleash-potential-in-media-production-via-xp/"><u>Unleash Potential in Media Production via XP</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mp3-snd-movavi/"><u>무료 MP3 역화: SND 콘텐츠를 위해 Movavi의 인터넷 서비스</u></a></li>
+</ul></div>
 

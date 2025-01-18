@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Presence Is a Frightening Reality
-date: 2025-01-05T03:47:58.080Z
-updated: 2025-01-05T16:49:54.076Z
+date: 2025-01-12T16:02:32.486Z
+updated: 2025-01-18T16:20:21.481Z
 tags:
   - facebook
 categories:
@@ -26,13 +26,13 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. An Entrapping Social Media Monopoly
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
@@ -52,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
  Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
@@ -65,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. A Privacy Dilemma
@@ -82,10 +78,6 @@ thumbnail: https://thmb.techidaily.com/1fa3b9714516519d17cdc00ae160f98cb4b200553
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ​​​​​​
 
  From your music players, browsers, game apps, eBook readers to caller ID apps, most of the software installed on your device is probably sharing your data with Meta. This means the company can determine with frightening precision your taste in music, books, games, the websites you visit, what you do online, and how you interact with technology as a whole.
@@ -100,9 +92,17 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -111,7 +111,7 @@ Close
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay Conscious of Meta's Influence
@@ -137,24 +137,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-visualizing-your-vision-incorporating-new-fonts-into-after-effects/"><u>[New] In 2024, Visualizing Your Vision Incorporating New Fonts Into After Effects</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-pip-feature-in-youtube-app-for-iphones/"><u>[New] Mastering PIP Feature in YouTube App for iPhones</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-examining-the-new-evolution-of-sonys-s6500-player-for-2024/"><u>[Updated] Examining the New Evolution of Sony's S6500 Player for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-complete-methodology-for-sharing-srt-content-on-instagram-and-youtube/"><u>2024 Approved Complete Methodology for Sharing SRT Content on Instagram and YouTube</u></a></li>
-<li><a href="https://facebook.techidaily.com/activist-attack-one-star-campaign-against-digital-app-store-ratings/"><u>Activist Attack: One Star Campaign Against Digital App Store Ratings</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/are-advanced-language-models-poised-to-overtake-conventional-search-engine-algorithms/"><u>Are Advanced Language Models Poised to Overtake Conventional Search Engine Algorithms?</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-arena-vying-for-the-top-in-verified-metas-and-blue-ticks/"><u>Authenticity Arena: Vying for the Top in Verified Metas and Blue Ticks</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-gear-choosing-cameras-for-live-dynamic-music-visuals-in-hd/"><u>Best Gear Choosing Cameras for Live, Dynamic Music Visuals in HD</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhance-user-engagement-via-cookiebot-technology/"><u>Enhance User Engagement via Cookiebot Technology</u></a></li>
-<li><a href="https://facebook.techidaily.com/finding-out-how-old-my-virtual-persona-really-is/"><u>Finding Out: How Old My Virtual Persona Really Is</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-vivo-y200e-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Vivo Y200e 5G Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-fbs-mtfc-for-extra-protection/"><u>Implementing FB's MTFC for Extra Protection</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor 100 Pro | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/movand/"><u>MOV形式のデジタルビデオを別の形式に簡単に変換するスキル&ツール集</u></a></li>
-<li><a href="https://facebook.techidaily.com/no-more-locked-out-mastering-password-resets-on-facebook/"><u>No More Locked Out! Mastering Password Resets on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-for-refreshing-info-on-your-little-ones-messengers/"><u>Steps for Refreshing Info on Your Little One’s Messengers</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-securing-your-facebook-pics/"><u>Strategies for Securing Your Facebook Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/where-to-avoid-facebook-websites-top-3-places/"><u>Where to Avoid Facebook Websites: Top 3 Places</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-personal-cybersecurity-roadmap-on-facebook/"><u>Your Personal Cybersecurity Roadmap on Facebook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-tech-savvy-guide-to-excellent-recording-apps/"><u>[New] 2024 Approved Tech-Savvy Guide to Excellent Recording Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-mastering-dimming-audio-with-audacity/"><u>[Updated] 2024 Approved Mastering Dimming Audio with Audacity</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-filmora-fusion-a-comprehensible-comparative-guide/"><u>[Updated] In 2024, Filmora Fusion A Comprehensible Comparative Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/classic-cinema-revisited-step-by-step-video-guide-for-2024/"><u>Classic Cinema Revisited Step-by-Step Video Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-content-governance-an-examination-of-its-panel/"><u>Facebook's Content Governance: An Examination of Its Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/fear-the-rise-of-meta-in-digital-spaces/"><u>Fear the Rise of Meta in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-ios-145-could-pave-the-way-to-a-privacy-revolution/"><u>How iOS 14.5 Could Pave the Way to a Privacy Revolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-speed-why-meta-is-building-a-lightning-fast-ai-giant/"><u>Innovating Speed: Why Meta Is Building a Lightning-Fast AI Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-governance-appropriate-ban-of-trump-but-with-a-time-frame/"><u>Network Governance: Appropriate Ban of Trump but with a Time Frame</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-behind-upcoming-instagram-thread-cessation/"><u>Reasons Behind Upcoming Instagram Thread Cessation</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/seafaring-slang-survival-kit-mastering-piratical-vernacular/"><u>Seafaring Slang Survival Kit: Mastering Piratical Vernacular</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/top-reasons-for-sluggish-performance-on-your-pc-insights-from-yl-software/"><u>Top Reasons for Sluggish Performance on Your PC: Insights From YL Software</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-from-camera-to-screen-how-to-edit-nikon-video-files-like-a-pro/"><u>Updated 2024 Approved From Camera to Screen How to Edit Nikon Video Files Like a Pro</u></a></li>
 </ul></div>
 

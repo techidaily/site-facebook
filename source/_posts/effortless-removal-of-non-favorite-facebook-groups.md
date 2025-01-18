@@ -1,7 +1,7 @@
 ---
 title: Effortless Removal of Non-Favorite Facebook Groups
-date: 2024-07-29T07:36:48.942Z
-updated: 2024-07-30T07:36:48.942Z
+date: 2025-01-14T16:11:08.347Z
+updated: 2025-01-18T16:01:08.289Z
 tags:
   - facebook
 categories:
@@ -23,16 +23,21 @@ thumbnail: https://thmb.techidaily.com/1f3c8cd99c8239124d3f11907b2c70b41c033994f
 
 [Facebook's "Suggested for You" content](https://www.makeuseof.com/facebook-suggested-for-you-explained/) and other suggestions are directly influenced by the type of pages you follow. Therefore, it is imperative to keep the list of liked pages clean. The Facebook website offers four main ways to unfollow a page. Some are convenient for unfollowing a single page, while others are helpful for unfollowing pages in bulk.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Unfollow a Facebook Page From Your News Feed
 
  The quickest way to unfollow a Facebook page is directly from your news feed. When you see a post from a page you no longer want to receive updates from, this method comes in handy.
 
  To unfollow a Facebook page from your news feed, click the**three horizontal dots** in the post's top-right corner and click**Unfollow <pagename>** from the context menu.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Unfollowing a Facebook Page From a Post in the News Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/1-unfollowing-a-facebook-page-from-a-post-in-the-news-feed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Unfollow a Facebook Page Directly From the Page
 
@@ -46,19 +51,17 @@ Here's how to unfollow a Facebook page using this method:
 4. In the**Follow settings** window, check the circle next to**Unfollow** .
 5. Finally, click**Update** .
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Unfollowing a Facebook Page From the Follow Settings Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/2-unfollowing-a-facebook-page-from-the-follow-settings-window.jpg)
 
 ### 3\. Unfollow Facebook Pages From the Pages Tab
 
  If you want to unfollow multiple pages simultaneously, unfollowing them from the Pages tab is a great option. To unfollow Facebook pages in bulk: first select the**Pages** tab on the left. If you don't see it, expand the**See More** menu and select the**Pages** tab.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Opening the Pages Tab From the Facebook Homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/3-opening-the-pages-tab-in-the-facebook-homepage-tab.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now:
 
@@ -68,9 +71,6 @@ Now:
 4. Tap on the**Following** button to unfollow it.
 5. Alternatively, click the**three horizontal dots** below a page to open the**Follow settings** window.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Opening the Follow Settings window for a page from the Liked Pages tab](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/4-opening-the-follow-settings-window-for-a-page-in-the-liked-pages-window.jpg)
 
  From there, turn on the toggle next to**Unfollow this page** and click the**Update** button to unfollow the page successfully.
@@ -80,24 +80,21 @@ Now:
 Follow the same procedure for all the pages you want to unfollow.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Unfollow Facebook Pages From Your Feed Preferences
 
  This method also allows you to unfollow pages in bulk to[clean up your Facebook account](https://www.makeuseof.com/ways-to-clean-up-facebook-account/) . However, compared to the above, unfollowing several pages at once is faster with this method. Follow these steps to unfollow pages using this method: first, click your**profile icon** in the top right corner. Go to**Settings and Privacy** and select**Feed** to open the**Manage Your Feed** window.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Opening the Feed Settings from the Settings and Privacy Menu on Facbeook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/6-opening-the-feed-settings-from-the-settings-and-privacy-window-on-facbeook.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  From there, select**Unfollow people and groups** .
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Opening the Feed Preference to Unfollow People and Groups in the Manage Your Feed Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/7-opening-the-feed-preference-to-unfollow-people-and-groups-in-the-manage-your-feed-window.jpg)
 
  Select**Pages Only** from the sort menu in the top right to see only the pages you follow. Click the**Following icon** next to the pages you want to unfollow.
@@ -108,14 +105,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Similar to the Facebook website, unfollowing a page from Facebook's mobile app is also straightforward. There are four ways to unfollow a Facebook page from your phone, all of which work the same for Android and iOS devices.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,4 +118,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-zoom-like-a-pro-avoiding-common-snaps-mistakes/"><u>[Updated] 2024 Approved Zoom Like a Pro Avoiding Common Snaps Mistakes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gptplus-new-horizon-key-enhancements-to-watch/"><u>GPT+ New Horizon: Key Enhancements to Watch</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratuit-nef-naar-jpeg-konverteren-direct-online-in-zeeland/"><u>Gratuit Nef-Naar-Jpeg-Konverteren - Direct Online in Zeeland</u></a></li>
+<li><a href="https://facebook.techidaily.com/hack-proofing-your-life-on-social-platform-fb-with-these-7-rules/"><u>Hack-Proofing Your Life on Social Platform (FB) with These 7 Rules</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-honor-magic-v2-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Honor Magic V2 online without jailbreak</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-zte-axon-40-lite-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass ZTE Axon 40 Lite FRP Without Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/refusing-new-whatsapp-policies-account-functionality-unchanged/"><u>Refusing New WhatsApp Policies: Account Functionality Unchanged</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-breakdown-of-facebooks-new-privacy-interface/"><u>The Complete Breakdown of Facebook's New Privacy Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-features-for-data-driven-decision-making/"><u>Top 8 CrowdFlower Features for Data-Driven Decision Making</u></a></li>
+</ul></div>
 

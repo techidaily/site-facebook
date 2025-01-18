@@ -1,7 +1,7 @@
 ---
 title: Understanding the Role of Telegram in Facebook's Down-Time
-date: 2025-01-06T22:34:15.009Z
-updated: 2025-01-12T18:35:44.745Z
+date: 2025-01-16T16:13:15.607Z
+updated: 2025-01-18T16:09:01.237Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/cd6606343976e20cf388b00d45efaf1c0dc2657ac
 But why did Telegram benefit so much more than any of its rivals?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Did People Choose Telegram When WhatsApp Went Down?
@@ -49,7 +49,7 @@ But why did Telegram benefit so much more than any of its rivals?
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
@@ -59,7 +59,7 @@ But why did Telegram benefit so much more than any of its rivals?
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Important Is This for Telegram?
@@ -74,10 +74,6 @@ But why did Telegram benefit so much more than any of its rivals?
 
  It is arguably the first time that any WhatsApp competitor has been able to make that claim, and it suddenly makes the Facebook-owned app's hegemony look a lot less secure.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## It Wasn't All Perfect for Telegram
 
  While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
@@ -89,6 +85,10 @@ But why did Telegram benefit so much more than any of its rivals?
  In that time, Telegram's reputation as an alternative has continued to grow, as too has the number of people using WhatsApp every day. When WhatsApp is not available, Telegram is now the primary backup for most people.
 
  Breaking WhatsApp's dominance is already a herculean task. If Telegram's app is not functioning when people need it, the progress it has been enjoying recently could be irrevocably damaged.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Can Telegram Continue Its Momentous Rise?
 
@@ -111,22 +111,18 @@ But why did Telegram benefit so much more than any of its rivals?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-professional-workshop-embedding-countdown-features-in-obs/"><u>[New] 2024 Approved Professional Workshop Embedding Countdown Features in OBS</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-crafting-powerful-narratives-with-these-30-video-plans/"><u>[New] Crafting Powerful Narratives with These 30 Video Plans</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-constructing-visually-captivating-photo-collections/"><u>[Updated] Constructing Visually Captivating Photo Collections</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-audiovisual-harmony-adding-sounds-to-instagram-clips/"><u>2024 Approved Audiovisual Harmony Adding Sounds to Instagram Clips</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-elite-selections-top-rated-mac-video-recording-apps/"><u>2024 Approved Elite Selections Top-Rated Mac Video Recording Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-ways-to-boost-engagement-through-a-facebook-circle/"><u>6 Ways to Boost Engagement Through a Facebook Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/app-apocalypse-facebook-whatsapp-offline/"><u>App Apocalypse: Facebook, WhatsApp Offline</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-in-broadcast-facebook-updates-platform/"><u>Breaking Barriers in Broadcast: Facebook Updates Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/calm-down-people-reality-check-on-fb-user-trends/"><u>Calm Down, People! Reality Check on FB User Trends</u></a></li>
-<li><a href="https://facebook.techidaily.com/communication-controverny-whatsapp-legal-battle-with-indian-authorities/"><u>Communication Controverny: WhatsApp Legal Battle with Indian Authorities</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-personalized-facebook-profile-photo/"><u>Crafting a Personalized Facebook Profile Photo</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ely-transforming-youtube-videos-top-3-reliable-methods-for-2024/"><u>Securely Transforming YouTube Videos Top 3 Reliable Methods for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/smart-considerations-for-buying-the-perfect-printer-what-you-need-to-know-first/"><u>Smart Considerations for Buying the Perfect Printer: What You Need to Know First</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150058146-social-media-preference-poll-here/"><u>Social Media Preference Poll Here!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-resolving-color-inaccuracies-and-visual-warping-of-your-display/"><u>Step-by-Step Guide: Resolving Color Inaccuracies & Visual Warping of Your Display</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solved-sea-of-thieves-stuck-on-loading-screen/"><u>[Solved] Sea of Thieves Stuck On Loading Screen</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-clearer-chrome-tips-to-improve-facebook-playback/"><u>[Updated] 2024 Approved Clearer Chrome Tips to Improve Facebook Playback</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-add-music-to-a-video-on-iphone-3-free-ways/"><u>[Updated] In 2024, How to Add Music to a Video on iPhone [3 FREE WAYS]</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-srt-resource-for-complete-understanding/"><u>[Updated] The Ultimate SRT Resource for Complete Understanding</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/building-tailored-chatbot-solutions-with-custom-data-integration/"><u>Building Tailored Chatbot Solutions with Custom Data Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-unleash-your-creativity-running-video-editing-apps-from-any-platform-on-chromebook/"><u>Updated In 2024, Unleash Your Creativity Running Video Editing Apps From Any Platform on Chromebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1724766246388-18/"><u>デジアーティー18周年メモリアルスペシャルプログラム - 鑑賞感動の一夜</u></a></li>
 </ul></div>
 

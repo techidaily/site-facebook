@@ -1,7 +1,7 @@
 ---
 title: Decoding My Selection in FB's Custom Ads
-date: 2024-07-29T07:38:16.297Z
-updated: 2024-07-30T07:38:16.297Z
+date: 2025-01-13T16:03:49.344Z
+updated: 2025-01-18T16:09:24.535Z
 tags:
   - facebook
 categories:
@@ -21,33 +21,17 @@ thumbnail: https://thmb.techidaily.com/26300a30b40be91fd1403de278cb19bb64bc0cc7c
 
  Facebook’s**Why am I seeing this ad** option can be useful, but if you really want to learn more about ads on Facebook and how to adjust them to your interests, continue reading.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ## How Does Facebook Know What Ads to Show You?
 
  The way Facebook decides which ads to show you is simply based on the information that you provide, both online and offline.
 
  By using information such as your age, location, app use, page likes, and data from the sites you browse, Facebook is able to learn which advertisements could get your attention.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
 
@@ -57,20 +41,22 @@ Key features:
 
  Related:[Why Targeted Ads Are a Serious Threat to Your Privacy](https://www.makeuseof.com/tag/targeted-ads-threat-privacy/)  This category includes posts users share on their timeline, pages that they “Like,” and apps that they use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Behaviors
 
  This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Demographics
 
  This subcategory will reach people by carefully considering certain details, such as their employment, finance, income, household, education, language, and lifestyle.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Learn More About the Ads You See
 
  The easiest way to learn why you are seeing a certain post or ad on Facebook is to use its feature “Why am I seeing this ad?”. This will provide you with specific insight as to why that certain ad or post appeared on your feed.
@@ -83,6 +69,10 @@ Key features:
 
  However, since[Facebook’s News Feed](https://www.facebook.com/help/1155510281178725) is still a mystery to many, it has provided a detailed explanation of how all of this works.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Adjust Your Ad Preferences on Facebook
 
  Did you know that you can easily adjust your ad preferences on Facebook?
@@ -91,18 +81,16 @@ Key features:
 
 ![Facebook Settings & Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings-And-Privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  After that, click**Settings** .
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
 
  You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Ad Options In Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Click-On-Ads.jpg)
 
  The**Advertisers** section shows you the advertisers you’ve recently been getting ads from.
@@ -121,14 +109,11 @@ Key features:
 
  That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +122,24 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://program-issues.techidaily.com/days-gone-the-ultimate-survival-horror-game-drops-today-get-ready-to-ride-on-your-pc/"><u>'Days Gone': The Ultimate Survival Horror Game Drops Today – Get Ready to Ride on Your PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/imelight-rhythms-the-creme-de-la-crop-of-yt-short-scores-for-2024/"><u>[New] Limelight Rhythms The Crème De La Crop of YT Short Scores for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-achieving-flawless-gameplay-optimizing-your-switch-pro-experience-on-steam/"><u>[Updated] 2024 Approved Achieving Flawless Gameplay Optimizing Your Switch Pro Experience on Steam</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-windows-10-cant-be-installed-error-code-80240020-a-complete-walkthrough/"><u>Fixing 'Windows 10 Can't Be Installed' Error Code 80240020: A Complete Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unfollow-facebook-pages-youre-no-longer-interested-in/"><u>How to Unfollow Facebook Pages You’re No Longer Interested In</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-lava-blaze-2-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Lava Blaze 2 for Parents | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-web-tools-to-harvest-your-private-facebook-data/"><u>Invisible Web Tools to Harvest Your Private Facebook Data</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/listen-and-write-the-gratis-method/"><u>Listen and Write – The Gratis Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-tales-how-far-does-facebook-reach/"><u>Metaverse Tales: How Far Does Facebook Reach?</u></a></li>
+<li><a href="https://win11.techidaily.com/methods-to-restart-stuck-windows-task-bar/"><u>Methods to Restart Stuck Windows Task Bar</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-through-mobile-gaming-my-affinity-for-apple-arcade/"><u>Navigating Through Mobile Gaming: My Affinity for Apple Arcade</u></a></li>
+<li><a href="https://facebook.techidaily.com/respectful-recovery-of-your-unseen-online-facebook-items/"><u>Respectful Recovery of Your Unseen Online Facebook Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-the-thread-compreehensive-download-of-social-media-feed/"><u>Retrieving the Thread: Compreehensive Download of Social Media Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-socializing-on-social-networks-avoiding-harm/"><u>Safe Socializing on Social Networks: Avoiding Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamlessly-integrating-sleep-mode-for-a-more-efficient-messenger-kids-use/"><u>Seamlessly Integrating Sleep Mode for a More Efficient Messenger Kids Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-and-how-to-embrace-facebooks-latest-privacy-controls/"><u>Why and How to Embrace Facebook's Latest Privacy Controls</u></a></li>
+</ul></div>
 

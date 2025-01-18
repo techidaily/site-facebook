@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2025-01-10T17:51:22.841Z
-updated: 2025-01-12T17:33:50.410Z
+date: 2025-01-14T16:04:34.233Z
+updated: 2025-01-18T16:15:26.262Z
 tags:
   - facebook
 categories:
@@ -28,10 +28,6 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Are All Facebook Services Down?
 
  At around 11:45ET, users worldwide began flooding in with reports that Facebook is down. The outage is affecting all of Facebook's services, taking Instagram, WhatsApp, Facebook Messenger, and any other Facebook-controlled service with it.
@@ -41,13 +37,13 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 ![facebook outage chart downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-outage-chart-downdetector.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -61,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Related:[Fastly CDN Issue Forces Reddit, Twitch, PayPal, & Amazon Offline in Worldwide Internet Outage](https://www.makeuseof.com/fastly-cnd-issue-forces-reddit-twitch-paypal-amazon-offline-in-worldwide-internet-outage/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### What Are BGP Routes?
@@ -74,19 +70,23 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
 
@@ -109,24 +109,16 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-compreenas-guide-to-seamless-time-marking-in-youtube-videos-desktopmobile/"><u>[New] In 2024, The Compreenas Guide to Seamless Time Marking in YouTube Videos (Desktop/Mobile)</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-showcase-spectacatives-the-best-ice-artistry-22/"><u>2024 Approved Showcase Spectacatives The Best Ice Artistry '22</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-choosing-a-great-fb-pic/"><u>A Step-by-Step Guide to Choosing a Great Fb Pic</u></a></li>
-<li><a href="https://facebook.techidaily.com/activate-the-fortress-facebooks-personal-safety-toolkit/"><u>Activate the Fortress: Facebook's Personal Safety Toolkit</u></a></li>
-<li><a href="https://facebook.techidaily.com/ai-powered-narration-bring-life-to-your-social-media-images/"><u>AI-Powered Narration: Bring Life to Your Social Media Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-boosts-lifes-true-value-without-social-apps/"><u>Beyond the Boosts: Life's True Value Without Social Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-post-fb-existence/"><u>Beyond the Newsfeed: Post-FB Existence</u></a></li>
-<li><a href="https://facebook.techidaily.com/bonding-to-buying-online-income-insights/"><u>Bonding to Buying: Online Income Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/choosing-the-right-networking-realm-casual-vs-career-communities/"><u>Choosing the Right Networking Realm: Casual Vs. Career Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/complete-uncoupling-from-the-social-media-giant/"><u>Complete Uncoupling From the Social Media Giant</u></a></li>
-<li><a href="https://facebook.techidaily.com/concealing-your-trail-stealthy-download-tactics-for-social-media-files/"><u>Concealing Your Trail: Stealthy Download Tactics for Social Media Files</u></a></li>
-<li><a href="https://games-able.techidaily.com/exclusive-gadgets-and-mods-for-the-best-ps5-experience/"><u>Exclusive Gadgets and Mods for the Best PS5 Experience</u></a></li>
-<li><a href="https://win-top.techidaily.com/how-to-set-up-automatic-windows-server-sync-with-network-drive-for-easy-backups/"><u>How to Set Up Automatic Windows Server Sync with Network Drive for Easy Backups</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/navigating-network-growth-strategies-for-instagram-success/"><u>Navigating Network Growth Strategies for Instagram Success</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-what-is-emoji-and-what-does-it-mean/"><u>New In 2024, What Is Emoji and What Does It Mean?</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-apple-watch-ultra-2-how-its-features-make-it-a-top-choice-for-me-now-at-100-off-expert-review-by-zdnet/"><u>The Apple Watch Ultra 2: How Its Features Make It a Top Choice for Me, Now at $100 Off - Expert Review by ZDNET</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/616665-9781770704572-the-big-book-of-ufos/"><u>The Big Book of UFOs | Free Book</u></a></li>
-<li><a href="https://win-latest.techidaily.com/troubleshooting-guide-overcoming-inaccessible-d-drive-problems-in-windows-11/"><u>Troubleshooting Guide: Overcoming Inaccessible D-Drive Problems in Windows 11</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unlocking-ultra-clear-video-in-zoom-meetings-for-2024/"><u>Unlocking Ultra-Clear Video in Zoom Meetings for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-elevating-your-macro-videos-a-comprehensive-checklist-for-2024/"><u>[Updated] Elevating Your Macro Videos A Comprehensive Checklist for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/banishing-the-black-screen-specter-on-your-iphone-with-ease/"><u>Banishing the Black Screen Specter on Your iPhone with Ease</u></a></li>
+<li><a href="https://program-issues.techidaily.com/bypassing-startup-problems-for-helldivers-2-on-steam-effective-strategies-and-fixes/"><u>Bypassing Startup Problems for Helldivers 2 on Steam: Effective Strategies and Fixes</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-clip-courage-embracing-twitters-viral-vanguard/"><u>In 2024, Clip Courage Embracing Twitter's Viral Vanguard</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-essentials-of-apple-podcast-catalog-integration/"><u>In 2024, Essentials of Apple Podcast Catalog Integration</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/low-cost-strategies-5-tips-for-efficient-fb-update-planning/"><u>Low-Cost Strategies: 5 Tips for Efficient FB Update Planning</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-discretion-concealing-likes-on-fb/"><u>Mastering Discretion: Concealing Likes on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-safety-on-fb-marketplace-essential-nine-steps/"><u>Mastering Safety on FB Marketplace: Essential Nine Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-facebook-interaction-maximizing-impact-responsibly/"><u>The Art of Facebook Interaction: Maximizing Impact Responsibly</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-tips-fixing-your-samsung-blu-ray-player-issues/"><u>Troubleshooting Tips: Fixing Your Samsung Blu-Ray Player Issues</u></a></li>
 </ul></div>
 

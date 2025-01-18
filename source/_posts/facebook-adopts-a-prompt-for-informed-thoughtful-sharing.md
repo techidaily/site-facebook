@@ -1,7 +1,7 @@
 ---
 title: Facebook Adopts a Prompt for Informed, Thoughtful Sharing
-date: 2025-01-01T00:48:14.944Z
-updated: 2025-01-05T16:49:32.959Z
+date: 2025-01-16T16:27:06.796Z
+updated: 2025-01-18T16:25:54.870Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Prods Users to Read Before Sharing
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Twitter Already Unveiled a Similar Prompt
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
  While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Will Facebook Ever Be Free of Misinformation?
@@ -73,18 +73,20 @@ thumbnail: https://thmb.techidaily.com/bbd20210fc5074f713b02b244d2b1993bd6b418ee
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-exclusive-list-of-top-hd-video-player-apps-android/"><u>[New] Exclusive List of Top HD Video Player Apps, Android</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-pros-best-top-8-tripods-excelling-at-4k-video-capture/"><u>[New] Pro's Best Top 8 Tripods Excelling at 4K Video Capture</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-basic-routines-preserving-google-voice-conversations-for-2024/"><u>[Updated] Basic Routines Preserving Google Voice Conversations for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/10-must-have-luts-to-transform-your-lightroom-images-for-2024/"><u>10 Must-Have LUTs to Transform Your LightRoom Images for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-the-mirage-of-masks-on-modern-networks/"><u>Avoiding the Mirage of Masks on Modern Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-recent-design-shift/"><u>Breaking Down Facebook's Recent Design Shift</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-the-driver-not-found-error-on-windows-solutions-and-guides/"><u>Fixing the 'Driver Not Found' Error on Windows: Solutions and Guides</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-post-a-job-ad-on-facebook/"><u>How to Post a Job Ad on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-invisible-facebook-world/"><u>Navigating the Invisible Facebook World</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-facebook-update-integrating-reels-and-rooms-in-stories/"><u>Potential Facebook Update: Integrating Reels & Rooms in Stories</u></a></li>
-<li><a href="https://media-tips.techidaily.com/quick-guide-streamline-your-messages-with-top-3-whatsapp-audio-compression-tips/"><u>Quick Guide: Streamline Your Messages with Top 3 WhatsApp Audio Compression Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-hiccups-a-closer-look-at-disruptions/"><u>Social Networking Hiccups: A Closer Look at Disruptions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-11x-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme 11X 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-live-broadcasting-uncovered-master-platform-selection/"><u>[New] 2024 Approved Live Broadcasting Uncovered Master Platform Selection</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>[New] A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-craft-memes-for-comedy-using-adobe/"><u>[New] Craft Memes for Comedy Using Adobe</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-curated-array-of-chat-catalyzing-queries-for-podcasters/"><u>[Updated] Curated Array of Chat-Catalyzing Queries for Podcasters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhance-your-content-utilizing-the-green-screen-on-instagram/"><u>[Updated] In 2024, Enhance Your Content Utilizing the Green Screen on Instagram</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-step-by-step-save-gifs-from-fb-on-different-devices/"><u>[Updated] In 2024, Step-by-Step Save GIFs From FB on Different Devices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-next-gen-options-to-record-high-quality-gaming-footage-for-2024/"><u>[Updated] Next Gen Options to Record High-Quality Gaming Footage for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-yuva-2-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Yuva 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-to-end-encryption-on-the-horizon-for-meta-set-for-23-implementation/"><u>End-to-End Encryption on the Horizon for Meta, Set for '23 Implementation</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-major-shifts-in-user-behavior-leading-to-decline-on-facebook/"><u>Four Major Shifts in User Behavior Leading to Decline on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/scheduling-for-maximum-fb-traffic/"><u>Scheduling for Maximum Fb Traffic</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-main-takeaways-whistleblowers-leak-on-fb/"><u>The 7 Main Takeaways: Whistleblower's Leak on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-facebook-from-2004-to-meta/"><u>The Evolution of Facebook: From 2004 to Meta</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-guide-complete-steps-to-perform-a-full-reset-on-your-iphoneipad/"><u>Ultimate Guide: Complete Steps to Perform a Full Reset on Your iPhone/iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-viral-posts-via-ripl/"><u>Unlocking the Secrets of Viral Posts via Ripl</u></a></li>
 </ul></div>
 

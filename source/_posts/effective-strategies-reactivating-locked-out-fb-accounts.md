@@ -1,7 +1,7 @@
 ---
 title: "Effective Strategies: Reactivating Locked-Out Fb Accounts"
-date: 2024-07-29T07:37:34.867Z
-updated: 2024-07-30T07:37:34.867Z
+date: 2025-01-11T16:10:09.733Z
+updated: 2025-01-18T16:08:54.820Z
 tags:
   - facebook
 categories:
@@ -22,8 +22,9 @@ This makes you vulnerable to losing access to your account.
  Let us show you how you can secure your Facebook account right now while you can still log in. Should you forget your password, lose your phone, or get hacked, you'll have multiple ways to recover and secure your Facebook account.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Check Your Important Security Settings
 
 ![Facebook Check Your Important Security Settings Guide](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Check-Your-Important-Security-Settings-Guide.jpg)
@@ -34,9 +35,17 @@ This makes you vulnerable to losing access to your account.
 
  Ideally, your password should be OK, two-factor authentication enabled, and login alerts turned on. The tool will help you close those three particular security gaps, but we'll also show you how to double-check everything manually too.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Update Your Contact Information
 
 ![Facebook General Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-General-Account-Settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A fairly easy way to recover your Facebook password is through alternative contact information, such as email addresses and mobile phone numbers.
 
@@ -46,9 +55,6 @@ This makes you vulnerable to losing access to your account.
 
 Here are the contact details you can update and how to do so...
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### Email Address
 
 ![Facebook Add Another Email Address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Add-Another-Email-Address.jpg)
@@ -61,14 +67,8 @@ Here are the contact details you can update and how to do so...
 
  In other words, having a working email address on record is an extra layer of security, as you will be notified of changes and can prevent them, while at the same time being able to use that address to recover access to your account.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Mobile Phone Number
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Confirm Your Number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Confirm-Your-Number.jpg)
 
  Now let's check the phone numbers attached to your Facebook account. Switch to the[**Mobile** settings](https://www.facebook.com/settings?tab=account&section=email&view) screen and review the phone numbers listed here.
@@ -81,18 +81,6 @@ Here are the contact details you can update and how to do so...
 
  Related:[How to Recover Your Facebook Account When You Can't Log In](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Update Your Password
 
 ![Facebook Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Change-Password.jpg)
@@ -119,11 +107,12 @@ Here are the contact details you can update and how to do so...
 
  Be sure to click**Save changes** when you're done.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Enable Two-Factor Authentication
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Two-Factor Authentication and Authorized Logins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Two-Factor-Authentication-and-Authorized-Logins.jpg)
 
  Two-factor authentication makes it more difficult for someone else to log into your Facebook account. Every time anyone (even you) wants to log into your Facebook account from an unauthorized device, they will need to provide a security code.
@@ -147,22 +136,20 @@ We highly recommend that you set up the following security methods:
  Related:[How to Use Facebook Two-Factor Authentication](https://www.makeuseof.com/tag/how-to-use-facebook-login-approvals-code-generator-android/)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your Facebook Account Saved
 
  It goes without saying that you should log out of your Facebook account after you are finished using it. You should also be very careful with Facebook apps and where you use Facebook to log into other services.
 
  Generally, if you follow some common-sense practices, have a strong password that you never share, and update frequently, your account should be safe.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,4 +158,26 @@ We highly recommend that you set up the following security methods:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-clear-up-cloudy-captures-uncover-the-best-10-web-enhancers-ranked/"><u>[New] In 2024, Clear Up Cloudy Captures Uncover the Best 10 Web Enhancers Ranked</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-ignite-a-sensation-how-to-have-your-video-go-viral/"><u>[Updated] 2024 Approved Ignite a Sensation How to Have Your Video Go Viral</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-mobile-identification-showdown-iphone-x-and-galaxy/"><u>[Updated] In 2024, Mobile Identification Showdown IPhone X and Galaxy</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-unlocking-the-power-of-multiframe-views-in-edge/"><u>[Updated] In 2024, Unlocking the Power of Multiframe Views in Edge</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-no-one-is-forgotten-group-membership-inclusivity-on-fb/"><u>Ensuring No One Is Forgotten: Group Membership Inclusivity on FB</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722965621359-get-your-lenovo-x220-up-and-running-efficient-driver-downloads/"><u>Get Your Lenovo X220 Up and Running - Efficient Driver Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-cyberquake-fb-whatsapp-and-instagram-offline/"><u>Global Cyberquake: FB, WhatsApp & Instagram Offline</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/identifying-fake-gpt-binco-coins-a-guide-to-recognizing-scams/"><u>Identifying Fake GPT-Binco Coins: A Guide to Recognizing Scams</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-tecno-pova-5-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Tecno Pova 5 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-gesture-based-interface-transforming-user-experience-on-facebook/"><u>Is Gesture-Based Interface Transforming User Experience on Facebook?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/playing-fb-videos-on-your-apple-device/"><u>Playing FB Videos on Your Apple Device</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/power-up-storage-ultimate-ps5-hard-drives-compared-for-2024/"><u>Power Up Storage Ultimate PS5 Hard Drives Compared for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/revealing-the-smarts-of-z2-play-mobile-for-2024/"><u>Revealing the Smarts of Z2 Play Mobile for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelation-or-hoax-dissecting-60-minutes-findings/"><u>Revelation or Hoax?: Dissecting 60 Minutes' Findings</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-profile-on-facebook-activating-protection-system/"><u>Safeguarding Your Profile on Facebook: Activating Protection System</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-reimagined-from-facebook-to-meta/"><u>The Social Fabric Reimagined: From Facebook to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-champions-of-facebook/"><u>Today's Champions of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-the-implications-of-linking-on-facebook/"><u>Unravel the Implications of Linking on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-could-kill-the-dominant-social-platforms-metas-eu-gambit/"><u>What Could Kill the Dominant Social Platforms: Meta's EU Gambit</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Does Clearing Faceprints Endanger Social Media Privacy for FB Users?
-date: 2024-07-29T07:39:56.898Z
-updated: 2024-07-30T07:39:56.898Z
+date: 2025-01-11T16:04:30.154Z
+updated: 2025-01-18T16:13:44.343Z
 tags:
   - facebook
 categories:
@@ -20,19 +20,21 @@ thumbnail: https://thmb.techidaily.com/fe5ef092604af77627e37eb91892932d5bd09d30f
  So what does this mean for you? And how might it affect your security?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Did Facebook Facial Recognition Do?
 
 ![A woman sitting at desk in front of a laptop while holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-front-of-laptop-holding-phone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Facebook used facial recognition for several purposes. For example, the technology helped generate image descriptions for people who are blind or visually impaired, helping them to know if a college classmate or co-worker was in a picture.
 
  There’s also a longtime Facebook feature that gave users automatic notifications when friends posted photos featuring them. Similarly, it suggested who people should tag when uploading photos. Facial recognition worked in the background in those cases.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ## What’s Changing With Facebook Facial Recognition?
 
  The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying[templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
@@ -40,8 +42,9 @@ thumbnail: https://thmb.techidaily.com/fe5ef092604af77627e37eb91892932d5bd09d30f
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will Facebook Still Use Facial Recognition?
 
  In short,[Facebook says](http://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/) it will no longer rely on facial recognition technology to detect when people appear in the site’s content. However, the company is not leaving facial recognition behind. Instead, it intends to keep using the technology in certain instances.
@@ -51,8 +54,9 @@ thumbnail: https://thmb.techidaily.com/fe5ef092604af77627e37eb91892932d5bd09d30f
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Will This Change Affect Facebook’s Public Perception?
 
  Numerous damaging allegations about Facebook’s algorithms and how they encourage engagement have put the company in the spotlight for all the wrong reasons.
@@ -67,16 +71,13 @@ thumbnail: https://thmb.techidaily.com/fe5ef092604af77627e37eb91892932d5bd09d30f
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## No Major Security Improvements Here
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -84,14 +85,11 @@ thumbnail: https://thmb.techidaily.com/fe5ef092604af77627e37eb91892932d5bd09d30f
 
  Since people will still opt in to future facial recognition features, it’s critical they read the details before activating anything new on their profiles.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -100,4 +98,16 @@ thumbnail: https://thmb.techidaily.com/fe5ef092604af77627e37eb91892932d5bd09d30f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-ace-your-marketing-game-top-5-youtube-techniques-unveiled/"><u>[Updated] Ace Your Marketing Game Top 5 YouTube Techniques Unveiled</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-social-media-sensations-tiktoks-top-10-tweets/"><u>2024 Approved Social Media Sensations TikTok's Top 10 Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-introduces-weekend-live-shop-experience/"><u>Facebook Introduces Weekend Live Shop Experience</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-syncing-scenes-merging-pc-and-cloud-images/"><u>In 2024, Syncing Scenes Merging PC & Cloud Images</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-why-does-itools-virtual-location-not-work-for-apple-iphone-13ipad-solved-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Does iTools Virtual Location Not Work For Apple iPhone 13/iPad? Solved | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-the-trade-of-troves-meta-vs-inappropriate-images/"><u>Tackling the Trade of Troves: Meta Vs. Inappropriate Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-followingunfollowing-on-facebook/"><u>The Do's and Don'ts of Following/Unfollowing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-unraveled-a-cosmic-collision/"><u>The Metaverse Unraveled: A Cosmic Collision</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/upgrade-to-samsung-galaxy-a35-and-get-a-complimentary-pair-of-galaxy-buds-fe-exclusive-tips-and-tricks/"><u>Upgrade to Samsung Galaxy A35 and Get a Complimentary Pair of Galaxy Buds FE | Exclusive Tips & Tricks</u></a></li>
+</ul></div>
 

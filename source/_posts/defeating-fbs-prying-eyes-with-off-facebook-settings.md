@@ -1,7 +1,7 @@
 ---
 title: Defeating Fb's Prying Eyes with Off-Facebook Settings
-date: 2024-07-29T07:36:34.942Z
-updated: 2024-07-30T07:36:34.942Z
+date: 2025-01-16T16:07:32.405Z
+updated: 2025-01-18T16:07:18.559Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11
 
 ![looking at facebook on iphone alongside a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-app-smartphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Facebook has been the subject of significant criticism about its approach to privacy. Now the company is trying to rebuild trust with its users. One way it is doing this is by introducing tools that let users[see their own Facebook data](https://www.makeuseof.com/tag/everything-facebook-recording/) and take more control over this data. The Off-Facebook Activity tool allows users to control what data Facebook receives from other apps and services.
 
  There are two ways that Facebook gathers data about you. Firstly, through the information you give Facebook directly. This is information such as your name and the interests which you enter into the Facebook website or app.
@@ -31,23 +35,14 @@ thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11
 
  The Off-Facebook Activity tool gives you more control over this second type of data. It lets you see a summary of the data that Facebook has collected from other apps and websites and disconnect this information from your Facebook account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## What Kind of Data Does Facebook Collect?
 
  The answer to this question will likely depend on how much you use Facebook and how many other apps and websites you use that are connected to Facebook.
 
  In general, Facebook collects data about your activity on other websites and apps in order to show you more relevant ads. This data includes information such as the types of products you've viewed, the website or app you were using, and whether or not you made a purchase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## How to Use the Off-Facebook Activity Tool to Stop Tracking
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Women Working on Facebook on a Laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Women-Working-on-Facebook-on-a-Laptop.jpg)
 
  To use the Off-Facebook Activity tool, start by logging in to the Facebook app on your device. Then go to**Settings & privacy** \>**Settings** \>**Privacy** \>**Your Facebook Information** . Here, in the**Your Facebook Information** section there should be an option for**Off-Facebook Activity** . Click this to bring up the tool.
@@ -62,14 +57,23 @@ thumbnail: https://thmb.techidaily.com/bbb97d5449382acc8b92ab96bfb70e5ca97a93f11
 
  To clear all this information so it is no longer linked to your Facebook account, click the**Clear History** button. Next you can also go to the**Disconnect future activity** (from the Off-Facebook activity page) section and set the slider for**Future Off-Facebook Activity** to**off** to[stop Facebook tracking your activities](https://www.makeuseof.com/tag/facebook-tracking-stop/) in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![screenshot showing manage off-facebook activity page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-off-facebook-activity-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![screenshot showing manage facebook activity toggle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-facebook-activity-toggle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Data the Will the Tool Remove?
 
@@ -80,13 +84,9 @@ Close
  While this is certainly an improvement in terms of privacy, it still means that Facebook has access to vast quantities of data about your internet activities from apps and sites across the web. Even if you don't have a Facebook account, Facebook can still collect information about you from any site using features like the Facebook Like button or the Facebook Pixel.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Can You Secure Your Facebook Data?
 
 ![Desktop Monitor Placed on a Table Showing Image of a Man Viewing From a Binocular Covered With Facebook Logo Icons](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Desktop-Monitor-Placed-on-a-Table-Showing-Image-of-a-Man-Viewing-From-a-Binocular-Covered-With-Facebook-Logo-Icons.jpg)
@@ -95,23 +95,17 @@ Close
 
  The very best way to remove your data from Facebook, however, is to delete your account. If you deactivate your account, it won't erase your personal data. Deleting your account will remove most but not all of your data. To learn more about what happens when you delete your account, see our guide to[what deactivating or deleting Facebook really means for privacy](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Take Control of Your Facebook Data
 
  The Off-Facebook activity tool gives you some measure of control over how your data is shared with Facebook. However, it won't actually delete your data. So if you want to be sure your data isn't being misused, it's best to remove it from Facebook altogether.
 
  Controlling the data that Facebook collects about you isn't only important for your personal privacy and security. It can also have a big effect on society as a whole.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,4 +114,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tips-for-youtube-thumbnail-design-for-2024/"><u>[New] Essential Tips for YouTube Thumbnail Design for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-professional-screen-grabber-for-modern-win11/"><u>[Updated] In 2024, Professional Screen Grabber for Modern Win11</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ultimate-obs-recording-guide-for-gaming-enthusiasts/"><u>[Updated] The Ultimate OBS Recording Guide for Gaming Enthusiasts</u></a></li>
+<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-vivo-y78plus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Vivo Y78+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-how-copilot-utilizes-gpt-4-turbo-accessing-premium-ai-assistance-at-no-cost/"><u>Discover How Copilot Utilizes GPT-4 Turbo: Accessing Premium AI Assistance at No Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-secrecy-in-fb-messaging-system/"><u>Evaluating Secrecy in Fb Messaging System</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-oppo-a1x-5g-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Oppo A1x 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-deceptive-duplicate-account-practices/"><u>Identifying Deceptive Duplicate Account Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-reasons-for-multiple-personal-profiles-being-allowed-on-one-facebook-account/"><u>Investigating the Reasons for Multiple Personal Profiles Being Allowed on One Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/llifes-comeback-amidst-expanding-virtual-realities/"><u>LLife's Comeback Amidst Expanding Virtual Realities</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-gear-on-facebook-intro-to-ray-ban-stories-and-their-price-tag/"><u>New Gear on Facebook: Intro to Ray-Ban Stories and Their Price Tag</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-10-unveiled-beginners-guide-to-messaging-prowess/"><u>Room 10 Unveiled: Beginner’s Guide to Messaging Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls.</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-commendations-on-social-media-hidden-likes-strategy/"><u>Silent Commendations on Social Media: Hidden Likes Strategy</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-unmatched-excel-mastery-gap-across-ai-dialogue-systems/"><u>The Unmatched Excel Mastery Gap Across AI Dialogue Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-a2-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi A2 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+</ul></div>
 

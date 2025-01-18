@@ -1,7 +1,7 @@
 ---
 title: Survey Highlights Distrust Toward Major Internet Companies
-date: 2024-12-30T01:49:14.296Z
-updated: 2025-01-05T22:00:45.705Z
+date: 2025-01-17T16:31:49.294Z
+updated: 2025-01-18T16:29:58.284Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Does the Poll Say?
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -67,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -109,16 +109,18 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-hidden-potential-how-to-use-video-filters-on-zoom/"><u>[New] 2024 Approved Unlocking Hidden Potential How To Use Video Filters on Zoom</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-expert-tips-for-navigating-youtubes-comprehensive-comments-section/"><u>[Updated] 2024 Approved Expert Tips for Navigating YouTube's Comprehensive Comments Section</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-inside-the-innovative-world-of-intova-x-for-2024/"><u>[Updated] Inside the Innovative World of Intova X for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
-<li><a href="https://fox-access.techidaily.com/best-showcasing-book-trailers/"><u>Best Showcasing Book Trailers</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-post-security-how-to-manage-who-sees-your-fb-content/"><u>Elevate Post Security: How to Manage Who Sees Your FB Content</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-vivo-y17s-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Vivo Y17s to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-effects-of-pausing-on-facebook/"><u>The Effects of Pausing on Facebook</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ultimate-guide-to-the-finest-mobile-vpns-of-2024-expert-evaluations-and-ratings-pcmag/"><u>Ultimate Guide to the Finest Mobile VPNs of 2024 - Expert Evaluations & Ratings | PCMag</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-should-you-change-your-facebook-profile-picture/"><u>When Should You Change Your Facebook Profile Picture?</u></a></li>
-<li><a href="https://common-error.techidaily.com/win-11-and-chrome-woes-heres-how-you-can-overcome-the-plugin-loading-error-effortlessly/"><u>Win 11 and Chrome Woes? Here’s How You Can Overcome the Plugin Loading Error Effortlessly</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-entryway-investments-cost-effective-channels-for-newbies/"><u>[New] Entryway Investments Cost-Effective Channels for Newbies</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-make-a-difference-youtubes-quick-thumbnail-guide/"><u>[New] In 2024, Make a Difference YouTube's Quick Thumbnail Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhancing-user-experience-and-tracking-success-on-your-website/"><u>Cookiebot: Enhancing User Experience & Tracking Success on Your Website</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mov-movies-on-samsung-galaxy-m34-by-aiseesoft-video-converter-play-mov-on-android/"><u>Failed to play MOV movies on Samsung Galaxy M34</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/harnessing-artificial-intelligence-for-flawless-talks/"><u>Harnessing Artificial Intelligence for Flawless Talks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211412924-9798330278442-living-heaven-on-earth-now/"><u>Living Heaven on Earth Now | Free Book</u></a></li>
+<li><a href="https://howto.techidaily.com/poco-m6-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Poco M6 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-hidden-usage-in-your-tech-environment/"><u>Spotting Hidden Usage in Your Tech Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-plans-retrieving-a-disabled-facebook-profile/"><u>Strategic Plans: Retrieving a Disabled Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-scams-how-to-protect-your-online-presence/"><u>Understanding Scams: How to Protect Your Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-filter-bubble-transparency-act-and-how-will-it-affect-you/"><u>What Is the Filter Bubble Transparency Act and How Will It Affect You?</u></a></li>
+<li><a href="https://facebook.techidaily.com/winning-a-share-of-the-725-million-facebook-settlement/"><u>Winning a Share of the $725 Million Facebook Settlement</u></a></li>
 </ul></div>
 

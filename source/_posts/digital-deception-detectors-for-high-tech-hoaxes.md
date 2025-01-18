@@ -1,7 +1,7 @@
 ---
 title: Digital Deception Detectors for High-Tech Hoaxes
-date: 2024-07-29T07:34:50.103Z
-updated: 2024-07-30T07:34:50.103Z
+date: 2025-01-14T16:09:27.728Z
+updated: 2025-01-18T16:07:26.502Z
 tags:
   - facebook
 categories:
@@ -21,10 +21,11 @@ thumbnail: https://thmb.techidaily.com/20c1b79c602928e68eb827f2805a2d6c02102230f
 
 ## 1\. Instragam Celebrity Scam
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
 
@@ -52,14 +53,11 @@ There are some simple things you can do to avoid this kind of scam:
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Telegram Cryptocurrency Scam
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
@@ -85,14 +83,16 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Facebook Dating Scams
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
@@ -119,8 +119,9 @@ Of course, that's all fake.
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -129,14 +130,11 @@ Of course, that's all fake.
 
  According to the US's[Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +143,21 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-ice-dance-showcase-olympic-winter-2022-for-2024/"><u>[New] Ice Dance Showcase Olympic Winter 2022 for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-your-first-step-in-advanced-photo-editing-snapseed/"><u>[New] Your First Step in Advanced Photo Editing Snapseed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-earning-potential-with-youtube-shorts-crucial-elements-possible-returns/"><u>[Updated] 2024 Approved Unlocking Earning Potential with Youtube Shorts Crucial Elements, Possible Returns</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-audiovisual-synchronization-your-path-to-perfect-fb-videos/"><u>[Updated] In 2024, Audiovisual Synchronization Your Path to Perfect FB Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-amplify-your-content-speedy-instagram-fame/"><u>2024 Approved Amplify Your Content Speedy Instagram Fame</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-break-your-instagram-bond-with-facebook/"><u>How to Break Your Instagram Bond with Facebook</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-motorola-moto-g-5g-2023-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Motorola Moto G 5G (2023) If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-xs-max-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone XS Max Without Previous Owner?</u></a></li>
+<li><a href="https://facebook.techidaily.com/joes-plan-leveraging-fb-tweet-and-snap-for-health/"><u>JOE'S PLAN: Leveraging FB, Tweet & Snap for Health</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-emoji-language-with-ease/"><u>Navigating Facebook Emoji Language with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/procedure-to-inform-about-teen-behavior-on-digital-platforms/"><u>Procedure to Inform About Teen Behavior on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-the-real-facebook-defections/"><u>Sifting Through the Real Facebook Defections</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/step-by-step-guide-converting-mp4-video-files-to-mov-format-on-your-mac/"><u>Step-by-Step Guide: Converting MP4 Video Files to MOV Format on Your Mac</u></a></li>
+</ul></div>
 

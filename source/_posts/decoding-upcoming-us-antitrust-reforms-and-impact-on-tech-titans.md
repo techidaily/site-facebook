@@ -1,7 +1,7 @@
 ---
 title: Decoding Upcoming US Antitrust Reforms & Impact on Tech Titans
-date: 2024-07-29T07:35:01.827Z
-updated: 2024-07-30T07:35:01.827Z
+date: 2025-01-11T16:03:56.461Z
+updated: 2025-01-18T16:11:37.366Z
 tags:
   - facebook
 categories:
@@ -21,33 +21,37 @@ thumbnail: https://thmb.techidaily.com/eeef901d1f6e0f72044944aeb5612974e0f0cbfc3
 
  Marketplace owners, Amazon being one very clear example, will no longer be allowed to promote their own products over others using their platform. Other concerns, such as the eradication of nascent competition by winner-take-all acquisition, are also on the table for discussion.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/eeef901d1f6e0f72044944aeb5612974e0f0cbfc3
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -93,9 +101,6 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
@@ -112,23 +117,17 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,21 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/stay-tuned-demystifying-the-factors-for-facebooks-longevity/"><u>'Stay Tuned': Demystifying the Factors for Facebook's Longevity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-discover-how-to-get-sounds-from-twitter-vids/"><u>[New] 2024 Approved Discover How to Get Sounds From Twitter Vids</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-comprehensive-guide-to-creating-movies-not-just-youtube-for-2024/"><u>[New] The Comprehensive Guide to Creating Movies, Not Just YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-drift-through-darkness-a-cam-review/"><u>[Updated] 2024 Approved Drift Through Darkness A CAM Review</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-insiders-manual-reacting-on-twitter-videos/"><u>2024 Approved Insider’s Manual Reacting on Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/digging-into-the-data-top-10-twitvideos-for-2024/"><u>Digging Into the Data Top 10 TwitVideos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-threats-at-your-doorstep-evading-fraudulent-transactions-online/"><u>Hidden Threats at Your Doorstep: Evading Fraudulent Transactions Online</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/high-quality-mercedes-benz-amg-cls-and-yl/"><u>High-Quality Mercedes Benz AMG CLS 지형 배경화면 및 너비 매김 - 와일드 코메탠 & YL 소프트웨어</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-facebook-video-orientation-dilemma/"><u>In 2024, Facebook Video Orientation Dilemma?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-newsfeed-with-4-easy-customization-tactics/"><u>Navigate the Newsfeed with 4 Easy Customization Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-profile-picture-change-scheduling/"><u>Strategic Profile Picture Change Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-masterful-fb-image-selection-and-display/"><u>Strategies for Masterful FB Image Selection and Display</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/urban-armor-gear-macbook-pro-protector-assessment-durable-and-functional/"><u>Urban Armor Gear MacBook Pro Protector Assessment: Durable and Functional</u></a></li>
+</ul></div>
 

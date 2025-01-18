@@ -1,7 +1,7 @@
 ---
 title: Pinpointing Unfriended Individuals on Facebook
-date: 2025-01-11T22:08:59.111Z
-updated: 2025-01-12T23:23:31.468Z
+date: 2025-01-15T16:00:21.296Z
+updated: 2025-01-18T16:15:43.341Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your Facebook Blocked List on Mobile
@@ -33,19 +33,15 @@ thumbnail: https://thmb.techidaily.com/200bad50912773155a76642b85b00bc52b52d7ab3
 ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot of blocked list on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-blocked-list-on-facebook-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
@@ -60,9 +56,17 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your Blocked List on the Web
 
 ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -72,10 +76,6 @@ Close
 4. Select**Blocking** in the Privacy sidebar.
 
  You should now see a list of all the people you've blocked on Facebook. From here, you can unblock anyone by clicking the Unblock button next to their name. And you could also go a step further by[refriending a person on Facebook](https://www.makeuseof.com/tag/refriend-someone-you-blocked-facebook/) if you want to re-establish the connection.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Can People Tell if You've Blocked Them on Facebook?
 
@@ -104,24 +104,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-facebook-vids-excellence-the-top-20-techniques/"><u>[New] 2024 Approved Facebook Vids Excellence The Top 20 Techniques</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-save-youtube-playback-a-comprehensive-screencast-guide-at-no-cost/"><u>[New] In 2024, Save YouTube Playback A Comprehensive Screencast Guide at No Cost</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-innovative-notetaking-for-mobile-photographers/"><u>[Updated] 2024 Approved Innovative Notetaking for Mobile Photographers</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-guide-to-exporting-pinterest-videos-into-mp3-format/"><u>[Updated] Guide to Exporting Pinterest Videos Into MP3 Format</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-guide-to-top-video-recorders/"><u>2024 Approved Ultimate Guide to Top Video Recorders</u></a></li>
-<li><a href="https://win-tips.techidaily.com/critical-security-alert-vmware-vcenter-exposed-vulnerabilities/"><u>Critical Security Alert: VMware vCenter Exposed Vulnerabilities</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-architectural-essence-of-facebook/"><u>Decoding the Architectural Essence of Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
-<li><a href="https://facebook.techidaily.com/detecting-irony-facebooks-latest-policy/"><u>Detecting Irony: Facebook's Latest Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decorum-validity-in-banning-trump-short-term-intervention/"><u>Digital Decorum: Validity in Banning Trump, Short-Term Intervention</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-reality-unbound-facebooks-pursuit-of-the-metaverse/"><u>Digital Reality Unbound: Facebook's Pursuit of the Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/discover-why-apple-prefers-originality-over-virtual-realms/"><u>Discover Why Apple Prefers Originality over Virtual Realms</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-campaigns-8-crowdfire-features-worth-mastering/"><u>Elevate Your Campaigns: 8 Crowdfire Features Worth Mastering</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-facebook-presence-redesign-and-rename/"><u>Elevate Your Facebook Presence: Redesign and Rename</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/explore-our-diverse-range-of-services/"><u>Explore Our Diverse Range of Services</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-transform-your-media-a-curated-list-of-the-best-free-video-editing-software-top-9/"><u>In 2024, Transform Your Media A Curated List of the Best Free Video Editing Software (Top 9)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigating-the-limits-of-chatgpts-response-tokens-insights-and-tips/"><u>Navigating the Limits of ChatGPT's Response Tokens: Insights & Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpanding-your-audience-stream-successfully-across-30plus-outlets-for-2024/"><u>[New] Expanding Your Audience Stream Successfully Across 30+ Outlets for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-the-art-of-disabling-youtube-shorts/"><u>[New] In 2024, Mastering the Art of Disabling YouTube Shorts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-cutting-edge-techniques-making-mac-videos-for-snapchat/"><u>[Updated] 2024 Approved Cutting-Edge Techniques Making Mac Videos for Snapchat</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-visual-vividity-techniques-in-hue-adjustment/"><u>[Updated] In 2024, Visual Vividity Techniques in Hue Adjustment</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/avchd-on-samsung-galaxy-z-fold-5-convert-mts-for-samsung-galaxy-z-fold-5-by-aiseesoft-video-converter-play-mts-on-android/"><u>AVCHD on Samsung Galaxy Z Fold 5-convert MTS for Samsung Galaxy Z Fold 5</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-x90s-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo X90S Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-visual-virtuosos-popular-ig-effects/"><u>In 2024, Visual Virtuosos Popular IG Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-versus-screen-name-dissecting-social-media-labels/"><u>Profile Versus Screen Name: Dissecting Social Media Labels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-synchronized-symphony-facebook-and-spotifys-projected-boombox-masterpiece/"><u>The Synchronized Symphony: Facebook & Spotify's Projected Boombox Masterpiece</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-facebook-portals-reviewed/"><u>Top Picks: Facebook Portals Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-life-heres-how-to-leave-facebook-behind/"><u>Transform Your Life – Here’s How to Leave Facebook Behind</u></a></li>
 </ul></div>
 

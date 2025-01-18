@@ -1,7 +1,7 @@
 ---
 title: "Elevate Operations: Designating an Admin on Facebook"
-date: 2024-07-29T07:34:55.893Z
-updated: 2024-07-30T07:34:55.893Z
+date: 2025-01-17T16:10:40.288Z
+updated: 2025-01-18T16:02:46.960Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/b8679192be865a4926b833c7643d484e4a5289f4d
  Here’s how to make someone an admin on your Facebook page, but also what you need to know about what happens when you assign the role to another user's account...
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What a New Admin Means for Your Facebook Page
 
  When you create a Facebook page, you’re automatically its administrator, which lets you control everything on it. Among other things, you can add buttons, create ads, respond to comments, post from Instagram to Facebook, and assign page roles.
@@ -46,16 +47,21 @@ You actually have five roles to choose from on a Facebook page:
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
 
  Scroll down to**Settings** , where you can customize features on a deeper level.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Click on Settings
 
@@ -63,9 +69,6 @@ You actually have five roles to choose from on a Facebook page:
 
  In terms of how to make someone an admin on your Facebook page, you need to visit the**Page roles** tab on the**Page settings** menu.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
 
 ### 3\. Click on Page Roles
@@ -74,9 +77,6 @@ You actually have five roles to choose from on a Facebook page:
 
  When you’re sure you want a new admin for your Facebook page and you have someone ready for the role, go to the**Assign a new Page role** section.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 4\. Assign a New Page Administrator
 
  Firstly, you need the person’s Facebook name or email address. Put either one in the available field and choose a role for them from the toggle bar—in this case**Admin** .
@@ -87,9 +87,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Edit an Admin’s Page Role to Remove Them
 
  If you want to replace or remove your extra administrator, find them in the**Existing Page roles** and click the**Edit** button beside their name.
@@ -97,6 +94,10 @@ You actually have five roles to choose from on a Facebook page:
  This opens a window where you can change their role or delete them completely from your team. To add someone else as an admin, just go through Facebook’s role assigning process again.
 
 ![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Add an Admin to Your Facebook Page on Mobile
 
@@ -106,20 +107,15 @@ Android and iOS platforms differ slightly as well.
 
  Related:[Here's What Facebook's New Page Labels Mean](https://www.makeuseof.com/what-facebook-new-page-labels-mean/)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Page Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-page-settings.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -129,20 +125,21 @@ The app usually asks for your password to reach the final steps.
 
  Also, there’s a glitch to keep in mind: you can change yourself from admin into another role, but you can’t switch it back.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Learn How to Manage Your Facebook Communities and Boost Interaction
 
  Adding an admin to your Facebook page or group is not only the only way to improve, especially when it comes to creating great communities and running them to perfection.
 
  There are several measures you can take to keep members happy, safe, and active, like enabling anonymous posting, setting firm rules, and monitoring the situation with your team’s help. All-in-all, good cooperation and communication are key.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +148,21 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-best-instagram-extractors-for-memories-saved/"><u>[New] In 2024, The Best Instagram Extractors for Memories Saved</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-stream-wars-fb-live-youtube-live-and-twitters-periscope-face-off/"><u>[New] The Stream Wars FB Live, YouTube Live, and Twitter's Periscope Face-Off</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-instant-upload-solutions-top-5-free-online-converter-services/"><u>[Updated] 2024 Approved Instant Upload Solutions Top 5 Free Online Converter Services</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-vivo-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Vivo Without PUK Codes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-dissecting-inshots-dominance-in-editing-apps/"><u>In 2024, Dissecting InShot's Dominance in Editing Apps</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/julys-must-watch-a-collection-of-top-free-movies-available-on-youtube/"><u>July's Must-Watch: A Collection of Top Free Movies Available on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-marketing-milestones-5-pioneering-platforms-for-businesses/"><u>Mastering Marketing Milestones: 5 Pioneering Platforms for Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-approach-to-stopping-private-photos-online/"><u>Metas' Approach to Stopping Private Photos Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-a-seamless-password-update-on-facebook-platform/"><u>Navigate Through a Seamless Password Update on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieve-lost-facebook-sign-in-methods-easily/"><u>Retrieve Lost Facebook Sign In Methods Easily</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-nonfunctional-qr-codes-try-these-10-iphone-fixes-to-get-it-running-smoothly-again/"><u>Struggling With Nonfunctional QR Codes? Try These 10 iPhone Fixes to Get It Running Smoothly Again</u></a></li>
+<li><a href="https://facebook.techidaily.com/time-travel-on-social-media-retrieving-old-fb-stories/"><u>Time Travel on Social Media: Retrieving Old FB Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-gracefully-disconnect-from-group-interactions/"><u>Tips to Gracefully Disconnect From Group Interactions</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/tutorial-pemulihan-file-gigabyte-windows-1011-jawaban-cara-mudah/"><u>Tutorial Pemulihan File Gigabyte Windows 10/11 - Jawaban Cara Mudah!</u></a></li>
+</ul></div>
 

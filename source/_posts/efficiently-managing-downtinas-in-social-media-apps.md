@@ -1,7 +1,7 @@
 ---
 title: Efficiently Managing Downtinas in Social Media Apps
-date: 2024-07-29T07:36:54.791Z
-updated: 2024-07-30T07:36:54.791Z
+date: 2025-01-11T16:13:29.163Z
+updated: 2025-01-18T16:01:54.759Z
 tags:
   - facebook
 categories:
@@ -24,13 +24,9 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
  First, let's cover how to figure out if Facebook is down for everyone, or if it's just a problem for you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Try Opening Other Websites
 
  When you can't load one website, your first troubleshooting step should always be to open a few other sites. This lets you figure out whether the problem is isolated to one site or more widespread.
@@ -51,9 +47,6 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
 
  On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open[Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook Downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Downdetector.png)
 
  If you see a spike in issues recently, chances are good that Facebook is down for everyone. Further down the page, you'll find a map of where people reported Facebook issues from, comments, and whether the issues are with the website, app, or server connections.
@@ -62,11 +55,6 @@ thumbnail: https://thmb.techidaily.com/bef0ee80271c03bca8fa1ceeb9bd487dbcf95a1c3
 
 ![Down For Everyone Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Down-For-Everyone-Facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ### 3\. See What People Say on Twitter
 
  While Downdetector and similar sites are a reliable source for Facebook (and other) outages, it's a good idea to supplement what you find there with other data. Twitter is one of the best places to find up-to-the-minute information about pretty much anything, including website outages.
@@ -75,11 +63,12 @@ The powerful video editing program for your Windows PC</a>
 
 ![Twitter Facebook Down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Facebook-Down.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you've seen strong evidence that Facebook is down from both outage detectors and Twitter, chances are that Facebook is indeed down for everyone and not just you.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Find Out When Facebook Comes Back Online
 
  Now that you know Facebook isn't working, there's unfortunately nothing you can do to fix it. You'll need to wait until Facebook fixes the issue, but there are a few ways to stay updated on Facebook's status.
@@ -99,8 +88,9 @@ The powerful video editing program for your Windows PC</a>
  Keeping a Twitter search page open with "Facebook down" or similar is an easy way to stay current on what's going on. Refresh it every so often to see what people are saying; you should know pretty quickly whether Facebook has come back.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Watch News Sites
 
  If you can't or don't want to use Twitter, you can also stay updated on Facebook's outage status by checking news sites. Any website that covers tech news should have an article up about an extended Facebook outage, and they will update it as events proceed.
@@ -111,35 +101,29 @@ The powerful video editing program for your Windows PC</a>
 
  If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like[DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![DownNotifier Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/DownNotifier-Facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You'll get an email when Facebook goes down, clueing you into the issue before you even check the site yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Facebook Is Down, This Is What You Do
 
  As we've looked at, it's easy to know whether Facebook is truly down and know when it comes back online. Most Facebook outages don't last long, but in some cases they can last for hours.
 
  In this case, don't despair; there's plenty you can do online to kill time, even without Facebook. It could even be an excuse to go outside and get away from your devices for a while.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +132,23 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-guide-to-best-youtube-banner-size-and-channel-art-dimension/"><u>[New] 2024 Approved Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-exploring-vr-landscapes-perks-pitfalls-and-pivots/"><u>[New] Exploring VR Landscapes Perks, Pitfalls and Pivots</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-sonys-shutterbug-fixing-the-no-video-fiasco/"><u>2024 Approved Sony's Shutterbug Fixing the No-Video Fiasco</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-share-your-location-on-facebook-messenger/"><u>How to Share Your Location on Facebook Messenger</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-honor-x9a-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Honor X9a Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-s17-pro-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Vivo S17 Pro Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-disconnect-steps-for-breaking-from-facebook/"><u>Mastering Disconnect: Steps for Breaking From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-profile-changes-for-messenger-kids-safely/"><u>Navigating Profile Changes for Messenger Kids Safely</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-get-noticed-with-animated-logos-best-free-tools-and-design-tips/"><u>New 2024 Approved Get Noticed with Animated Logos Best Free Tools and Design Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-random-group-tags-on-social-media/"><u>No More Random Group Tags on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-autoplay-on-instagram-and-fb/"><u>Say 'No' To Autoplay on Instagram and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/sound-connections-strengthened-with-facebook-update/"><u>Sound Connections Strengthened with Facebook Update</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-video-game-systems-in-2/"><u>Top Rated Video Game Systems in 2#!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlock-a-steep-bargain-on-lenovo-laptops-for-businesses-almost-1k-discount-pre-prime-day-exclusive-coverage/"><u>Unlock a Steep Bargain on Lenovo Laptops for Businesses - Almost 1K Discount Pre-Prime Day | Exclusive Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/untraceable-searches-delete-your-fb-snoop-logs/"><u>Untraceable Searches: Delete Your FB Snoop Logs</u></a></li>
+</ul></div>
 

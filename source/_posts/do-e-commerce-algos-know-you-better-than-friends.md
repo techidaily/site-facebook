@@ -1,7 +1,7 @@
 ---
 title: Do E-Commerce Algos Know You Better Than Friends?
-date: 2024-07-29T07:39:45.634Z
-updated: 2024-07-30T07:39:45.634Z
+date: 2025-01-15T16:08:12.743Z
+updated: 2025-01-18T16:13:16.723Z
 tags:
   - facebook
 categories:
@@ -27,6 +27,10 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -36,8 +40,9 @@ What is going on?
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Reddit Users Think Their Phones Are Listening
 
  Common search terms for this subject on Google include things like: "does iphone listen to you for ads," "can my phone hear me," and "is google listening to my conversations?"
@@ -55,8 +60,9 @@ What is going on?
  You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
@@ -67,9 +73,6 @@ What is going on?
 
  Google reacted to this by taking action,[stating](https://www.blog.google/products/assistant/more-information-about-our-processes-safeguard-speech-data/) : "Audio snippets are not associated with user accounts." But as VRT pointed out, they don't need to be. More recently, I was brushing my teeth while reading an article about a movie when this advert appeared.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
@@ -86,9 +89,6 @@ What is going on?
 
  "We gave ourselves permission to use the microphone on the phone, set up a listening server on the internet, and everything that microphone heard on that phone, wherever it was in the world, came to us and we could then have sent back customized ads."
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
@@ -96,8 +96,9 @@ What is going on?
  Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -123,8 +124,9 @@ What is going on?
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -137,14 +139,11 @@ What is going on?
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +152,21 @@ What is going on?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-frame-perfection-ultimate-picks-for-photographic-lenses/"><u>[New] In 2024, Frame Perfection Ultimate Picks for Photographic Lenses</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-navigate-nearby-landscapes-on-roblox-easily/"><u>[Updated] 2024 Approved Navigate Nearby Landscapes on Roblox Easily</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-striking-the-balance-visual-strategies-for-podcast-identity/"><u>[Updated] Striking the Balance Visual Strategies for Podcast Identity</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-ultimate-list-best-skype-audio-capture-tools-for-professionals/"><u>[Updated] The Ultimate List Best Skype Audio Capture Tools for Professionals</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elite-fight-club-best-of-10-battle-royale-titles-for-2024/"><u>Elite Fight Club Best of 10 Battle Royale Titles for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-a-viral-strategy-for-impressive-instagram-stories/"><u>In 2024, A Viral Strategy for Impressive Instagram Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindful-metrics-assessing-your-online-influence/"><u>Mindful Metrics: Assessing Your Online Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/patterns-in-internet-account-compromises/"><u>Patterns in Internet Account Compromises</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-elite-deceptive-networks-in-sight/"><u>Steer Clear: Elite Deceptive Networks in Sight</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/charge-videos-download-premium-effs/"><u>Supercharge Videos - Download Premium Effs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-definitive-guide-to-secure-social-networking-on-fb/"><u>The Definitive Guide to Secure Social Networking on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-an-era-instas-chats-discontinued/"><u>The End of an Era: Insta’s Chats Discontinued</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-5-methods-for-gratis-entry-into-the-world-of-gpt-4/"><u>Top 5 Methods for Gratis Entry Into the World of GPT-4</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-to-viral-content-on-facebook/"><u>Unlocking the Secrets to Viral Content on Facebook</u></a></li>
+</ul></div>
 

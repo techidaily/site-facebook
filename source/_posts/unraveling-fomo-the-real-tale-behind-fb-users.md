@@ -1,7 +1,7 @@
 ---
 title: "Unraveling FOMO: The Real Tale Behind FB Users"
-date: 2025-01-09T18:20:16.885Z
-updated: 2025-01-12T16:54:25.385Z
+date: 2025-01-11T16:08:43.346Z
+updated: 2025-01-18T16:27:13.387Z
 tags:
   - facebook
 categories:
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/698acf9899d7549d0c21beb422c9a4efb393d0c10
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Where Have These Facebook Stats Come From?
 
  Meta released its[annual financial report for 2021](https://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/) on February 2, 2022\. The report listed all of Meta's financials for the year, and also for the fourth quarter. Meta released this report, as many other companies have also recently done, to give investors an update on the company's performance.
@@ -35,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/698acf9899d7549d0c21beb422c9a4efb393d0c10
 ![Facebook Numbers Screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Numbers-Screenshot.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image Credit: Meta
@@ -48,6 +44,10 @@ Image Credit: Meta
 
  This is the first time Facebook's DAU number has declined, which is interesting to note. But the internet is freaking out as if Facebook is on the brink of collapse. That's not the case at all. Here are three reasons why everyone needs to chill out about Facebook's user numbers.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Facebook Has Barely Lost Any Users
 
  As Meta's report included rounded figures, we have to take an average decrease of 500,000 users. It could be slightly more, it could be slightly less. That equates to a decrease in users of 0.025%.
@@ -59,7 +59,7 @@ Image Credit: Meta
  That's enough of the numbers, you get it. Facebook has, literally, billions of users, which is an insane userbase. The platform is still going strong, and half a million users barely makes a dent.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. It's Natural for Facebook to Lose Some Users
@@ -74,10 +74,6 @@ Image Credit: Meta
 
 ![Critical Mass Graph](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Critical-Mass-Graph.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image Credit: <a target="\_blank" rel="noopener noreferrer nofollow" href="[http://drpeering.net/HTML\_IPP/chapters/ch13-0-1-Value-of-an-IXP/ch13-0-1-Value-of-an-IXP.html](https://unsplash.com/photos/45Z2rsbUFMc) ">The Internet Peering Playbook</a>
 
  Delving even deeper, you can consider the critical mass curve for a platform's users. Critical mass is the minimum number of users you need to sustain value in the product with no other product changes. Usually businesses want to work up this curve towards critical mass, but there's a point when you exceed it.
@@ -85,7 +81,7 @@ Image Credit: Meta
  Once you've exceeded critical mass, it no longer becomes organic for a platform to continue to generate users. As Facebook passed critical mass years ago, the platform is in that position. And, as it no longer needs to generate users, it's going to begin to lose some.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Meta Is Focusing on the Metaverse
@@ -99,6 +95,10 @@ Image Credit: Meta
  If Meta does indeed bring the metaverse into the mainstream, it's likely it will continue to pursue that area. At this point, perhaps Facebook becomes less important for the company. Or perhaps Meta will integrate Facebook into the metaverse itself.
 
  Regardless of what the company is trying to do, it's clear that Meta has taken its foot off the Facebook accelerator for the short-term, and that's OK. If Mark Zuckerberg isn't worried, why should anyone else be?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Chill Out! Facebook Is Fine
 
@@ -121,19 +121,18 @@ Image Credit: Meta
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/outube-shorts-revenue-sharing-explained-how-much-will-i-make-in-2024/"><u>[New] YouTube Shorts Revenue Sharing Explained How Much Will I Make, In 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-next-gen-peripherals-exploring-virtual-reality-accessories/"><u>[Updated] Next-Gen Peripherals Exploring Virtual Reality Accessories</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2023s-best-mobile-emulators-top-choices-for-your-classic-psp-adventures/"><u>2023'S Best Mobile Emulators Top Choices for Your Classic PSP Adventures</u></a></li>
-<li><a href="https://win11.techidaily.com/beating-back-blue-screens-in-your-daily-computing-life/"><u>Beating Back Blue Screens in Your Daily Computing Life</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/choosing-your-champion-a-deep-dive-into-vmware-vsphere-and-hyper-v-features/"><u>Choosing Your Champion: A Deep Dive Into VMware vSphere and Hyper-V Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-social-medias-sustainability-the-case-for-fb/"><u>Deciphering Social Media’s Sustainability: The Case for FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-facebooks-revenue-sharing-for-melodies/"><u>Demystifying Facebook’s Revenue Sharing for Melodies</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-best-resources-your-guide-to-free-book-downloads-online/"><u>Discover the Best Resources: Your Guide to Free Book Downloads Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-public-resentment-towards-internet-socialization-sites/"><u>Dissecting Public Resentment Towards Internet Socialization Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-strategies-to-connect-with-clients-on-facebook-professionally/"><u>Effective Strategies to Connect with Clients on Facebook Professionally</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficiently-terminating-a-social-media-collective/"><u>Efficiently Terminating a Social Media Collective</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-turn-tracks-into-tunes-mp3-to-youtube-conversion-made-simple/"><u>In 2024, Turn Tracks Into Tunes MP3-to-YouTube Conversion Made Simple</u></a></li>
-<li><a href="https://fox-links.techidaily.com/professional-iphone-cinematography-learn-and-apply-top-8-insights/"><u>Professional iPhone Cinematography Learn and Apply Top 8 Insights</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleashing-power-in-small-packages-top-mini-desktops-for-gamers/"><u>Unleashing Power in Small Packages: Top Mini Desktops for Gamers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enhancing-video-aesthetics-incorporating-lc-and-bb-in-facebook-posts/"><u>[New] Enhancing Video Aesthetics Incorporating LC and BB in Facebook Posts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-demystifying-the-anatomy-of-a-great-yt-short-video/"><u>[Updated] 2024 Approved Demystifying the Anatomy of a Great YT Short Video</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-zigzag-zeal-spotlight-on-snowboard-cross-thrills-winter-olympics-22/"><u>[Updated] 2024 Approved Zigzag Zeal Spotlight on Snowboard Cross Thrills, Winter Olympics '22</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premiere-script-highlights/"><u>[Updated] Premiere Script Highlights</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/decoding-the-mystery-of-grok-ai-with-musks-insight-into-purpose-and-expenses/"><u>Decoding the Mystery of Grok AI with Musk's Insight Into Purpose & Expenses</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/maximize-productivity-in-your-home-workspace-using-an-ipad-pro-tips-and-tricks-from-zdnet/"><u>Maximize Productivity in Your Home Workspace Using an iPad Pro: Tips & Tricks From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-adoption-meta-drops-tested-on-social-giants/"><u>NFT Adoption: Meta Drops Tested on Social Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/regulating-online-status-viewable-by-fb-friends/"><u>Regulating Online Status Viewable by FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaping-your-digital-space-the-art-of-fb-feed-customization/"><u>Shaping Your Digital Space: The Art of FB Feed Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-caused-the-social-media-blackout-epidemic/"><u>What Caused the Social Media Blackout Epidemic?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-post-for-best-social-media-results/"><u>When to Post for Best Social Media Results</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-10-ignoring-seagate-external-drive-fix-tips/"><u>Windows 10 Ignoring Seagate External Drive - Fix Tips</u></a></li>
 </ul></div>
 

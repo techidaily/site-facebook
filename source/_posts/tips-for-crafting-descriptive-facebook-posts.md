@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2025-01-11T20:01:44.191Z
-updated: 2025-01-12T22:26:12.785Z
+date: 2025-01-14T16:00:14.491Z
+updated: 2025-01-18T16:20:43.074Z
 tags:
   - facebook
 categories:
@@ -46,11 +46,11 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -66,12 +66,16 @@ Here’s how you add alt text to images while uploading them:
  There you have it. Your photos will now upload with your desired alt text.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Add Alt Text to Facebook Images on the Web
 
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -85,25 +89,21 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -139,18 +139,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-understanding-the-essence-of-luts-for-professional-photography-for-2024/"><u>[Updated] Understanding the Essence of LUTs for Professional Photography for 2024</u></a></li>
-<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-oppo-find-n3-flip-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-dissolution-of-face-tech-with-fb/"><u>Decoding Meta's Dissolution of Face Tech with FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dwelling-pinpointing-the-top-20-social-media-havens/"><u>Digital Dwelling: Pinpointing the Top 20 Social Media Havens</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-facebooks-impact-analysis/"><u>Disconnecting: Facebook's Impact Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/downtime-dilemma-facebook-whatsapp-and-instagram-down/"><u>Downtime Dilemma: Facebook, WhatsApp & Instagram Down?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/effortless-tips-for-instagram-collage-creation/"><u>Effortless Tips for Instagram Collage Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-platforms-reach-with-ripl-methods/"><u>Elevate Your Platform's Reach with Ripl Methods</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-step-into-sound-design-crafting-and-integrating-whatsapp-ringtone-on-devices/"><u>In 2024, Step Into Sound Design Crafting and Integrating WhatsApp Ringtone on Devices</u></a></li>
-<li><a href="https://common-error.techidaily.com/innovative-solutions-to-get-your-ps4-microphone-working-again/"><u>Innovative Solutions to Get Your PS4 Microphone Working Again</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/reverse-action-flipping-your-iphone-video-footage-for-2024/"><u>Reverse Action Flipping Your iPhone Video Footage for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/understanding-the-importance-of-addressing-legacy-technology-lessons-from-a-failed-system-upgrade/"><u>Understanding the Importance of Addressing Legacy Technology: Lessons From a Failed System Upgrade</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-11-pros-of-perfect-color-balancing-mastery/"><u>[New] 2024 Approved 11 Pros of Perfect Color Balancing Mastery</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-benq-bl2711u-a-journey-through-professional-4k-display-tech/"><u>[New] BenQ BL2711U - A Journey Through Professional 4K Display Tech</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-gopro-hero4-black-vs-drift-ghost-s-for-2024/"><u>[Updated] GoPro Hero4 Black VS Drift Ghost-S for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/affordable-luxury-reviewing-the-glion-dollys-swift-ride-and-exclusive-design/"><u>Affordable Luxury? Reviewing the Glion Dolly's Swift Ride & Exclusive Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/event-execution-insight-pros-and-cons-of-utilizing-facebook/"><u>Event Execution Insight: Pros & Cons of Utilizing Facebook</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-x50-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor X50? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-photo-transformations-3dlut-on-the-go/"><u>In 2024, Mastering Photo Transformations 3DLUT On-the-Go</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-through-the-best-routers-for-safe-family-surfing-2024-edition/"><u>Navigating Through the Best Routers for Safe Family Surfing: 2024 Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-pursues-facts-enhanced-repercussions-for-myth-spreading/"><u>Platform Pursues Facts: Enhanced Repercussions for Myth-Spreading</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722902338124-slash-your-spending-6-unbeatable-online-deal-destinations-revealed/"><u>Slash Your Spending: 6 Unbeatable Online Deal Destinations Revealed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-fbcta-its-impact-on-us/"><u>Understanding the FBCTA: Its Impact on Us</u></a></li>
+<li><a href="https://win-able.techidaily.com/untangling-the-problems-in-call-of-duty-wwii-decoding-error-4128/"><u>Untangling the Problems in Call of Duty: WWII - Decoding Error 4128</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-zuckerberg-stops-what-about-your-info/"><u>When Zuckerberg Stops, What About Your Info?</u></a></li>
 </ul></div>
 

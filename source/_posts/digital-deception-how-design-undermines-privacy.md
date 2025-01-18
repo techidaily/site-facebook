@@ -1,7 +1,7 @@
 ---
 title: "Digital Deception: How Design Undermines Privacy"
-date: 2024-07-29T07:37:35.719Z
-updated: 2024-07-30T07:37:35.719Z
+date: 2025-01-15T16:10:18.477Z
+updated: 2025-01-18T16:10:48.139Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,10 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Pay Full Price Dark Pattern](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Pay-Full-Price-Dark-Pattern.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **Disguised ads:** Advertisements that pretend to be legitimate content, like fake download buttons.
 * **Forced continuity:** A free trial ends and then starts charging your credit card immediately, often without an easy way to cancel.
 * **Friend spam:** You give a site permission to use your email or social account to find friends, but it then uses that info to spam your friends, claiming to come from you.
@@ -60,9 +64,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ### 1\. Default Settings
 
  This dark pattern is pretty obvious. Nobody is surprised that major companies default to collecting a lot of your data. They make money by using your data to show you more relevant ads, as well as selling your information to third parties, so they want as much info as possible.
@@ -73,6 +74,10 @@ The site lists 12 types of dark patterns to watch out for:
 
  A GDPR-compliant setup, without dark patterns, would have no default settings and let everyone choose whatever options they want from the start.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Ease of Changing Settings
 
  How simple do these companies make it to change privacy settings? If you've ever used Facebook or Google's privacy settings, you won't be surprised to find out that it's hard to turn data-sharing off. These services often choose images and text placement to encourage users to share more data.
@@ -81,23 +86,12 @@ The site lists 12 types of dark patterns to watch out for:
 
  In contrast, Twitter's privacy settings are pretty straightforward. They're all clearly labeled and accessible from one menu, with no warnings about how disabling them will harm your experience.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Framing
 
  A huge part of dark patterns concerns how options are presented. Companies tell you the positives of letting them sell your data to advertisers, but not the negatives. And they tell you all the reasons you shouldn't increase your privacy options, but none of the privacy concerns you might face without them.
@@ -111,18 +105,20 @@ The site lists 12 types of dark patterns to watch out for:
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
 
  The site hopes you won't want to lose all the information you've shared on it, so this is supposed to scare you into staying on Facebook. This deception is further illustrated by a flowchart showing Facebook's GDPR privacy update options (which is, in itself, likely a form of punishment).
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Facebook GDPR Flowchart](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-GDPR-Flowchart.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
@@ -132,9 +128,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Forced Action and Timing
 
  Do you make good decisions when you're rushed? Do you weigh all the options carefully, thinking about the pros and cons of each choice? Of course not. Under pressure, you feel that you have to pick a suitable option as quickly as possible.
@@ -147,9 +140,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  Don't be surprised to see companies use the same tactics that get you to spend more money, like counting down the hours until a limited-time promotion ends, to goad you into giving up more of your data.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Fighting Back Against Dark Patterns
 
  Unfortunately, there's not a whole lot you can do about these types of misleading tactics. You're bound to come across them sooner or later on the web. Generally, we recommend that you read over privacy options carefully for all the sites you use. It's important to dig deep into settings to find out what you do and don't have control over.
@@ -170,14 +160,11 @@ The site lists 12 types of dark patterns to watch out for:
 
  It would be great if we could just stop using the services that treated users this way, but since it's a widespread problem, you wouldn't be able to use almost anything with that strategy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -186,4 +173,20 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-user-friendly-steps-for-storing-google-voice-conversations-for-2024/"><u>[New] User-Friendly Steps for Storing Google Voice Conversations for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-screen-capture-without-a-penny-the-top-apps-reviewed-for-2024/"><u>[Updated] Screen Capture Without a Penny The Top Apps Reviewed for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-prime-6-sleek-designs-in-virtual-houses/"><u>2024 Approved Prime 6 Sleek Designs in Virtual Houses</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/direct-dissemination-from-tiktok-to-social-networks-for-2024/"><u>Direct Dissemination From TikTok to Social Networks for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-xiaomi-redmi-note-12r-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Xiaomi Redmi Note 12R Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazon-lunas-exceptional-cloud-gaming-performance/"><u>In-Depth Look at Amazon Luna's Exceptional Cloud Gaming Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-story-removal-with-ease-on-facebook/"><u>Navigating Story Removal with Ease on Facebook</u></a></li>
+<li><a href="https://techtrends.techidaily.com/overcoming-non-charging-issues-in-airpods-discover-9-key-methods/"><u>Overcoming Non-Charging Issues in AirPods: Discover 9 Key Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-here-are-9-reasons-to-keep-connected-online/"><u>Social Savvy? Here Are 9 Reasons to Keep Connected Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-paradox-navigating-its-darker-impacts/"><u>The Social Media Paradox: Navigating Its Darker Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-selecting-the-perfect-fb-picture/"><u>Tips for Selecting the Perfect FB Picture</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/understanding-simplified-han-characters/"><u>Understanding Simplified Han Characters</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/windows-explorer-has-stopped-working-in-windows-7-solved/"><u>Windows Explorer Has Stopped Working in Windows 7 [Solved]</u></a></li>
+</ul></div>
 

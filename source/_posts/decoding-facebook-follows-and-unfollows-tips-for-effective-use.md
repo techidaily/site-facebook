@@ -1,7 +1,7 @@
 ---
 title: "Decoding Facebook Follows and Unfollows: Tips for Effective Use"
-date: 2024-07-29T07:37:36.586Z
-updated: 2024-07-30T07:37:36.586Z
+date: 2025-01-14T16:04:43.698Z
+updated: 2025-01-18T16:05:38.394Z
 tags:
   - facebook
 categories:
@@ -43,14 +43,16 @@ There are two reasons to use the follow feature.
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Follow and Unfollow on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
@@ -72,12 +74,13 @@ There are two reasons to use the follow feature.
 
  On the next screen, you'll see a new set of tabs. Choose**Following** . If you don't see the option, it means you're not following anyone who isn't also a friend.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ## How Do You Let People Follow You?
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
@@ -89,10 +92,6 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## What Do Your Facebook Followers See?
 
 ![facebook likes privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-likes-privacy.png)
@@ -108,8 +107,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to See Who Follows You on Facebook
 
  Seeing who is following you is much the same as seeing who you're following.
@@ -118,13 +118,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Can You Remove Facebook Followers?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
@@ -137,23 +136,17 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Should You Use the Follow Feature on Facebook?
 
  Hopefully, this article has given you a better understanding of the Facebook follow feature. Whether you decide to use the follow feature should depend on how you use Facebook.
 
  If you're the type of person who has a large Facebook friends list while simultaneously liking endless brands and pages, you might find it useful. However, if you've decided to start deleting lots of Facebook friends and avoid liking too much content, you probably won't see any benefit to it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +155,22 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/onetization-milestone-the-500-subscriber-trick/"><u>[New] Monetization Milestone The 500-Subscriber Trick</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-boost-visual-impact-learning-to-edit-videos-using-storyremix-and-windows-photos/"><u>[Updated] 2024 Approved Boost Visual Impact Learning to Edit Videos Using StoryRemix and Windows Photos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-elevate-your-facebook-ads-game-no-price-tag-for-video-kit/"><u>[Updated] In 2024, Elevate Your Facebook Ads Game - No Price Tag for Video Kit</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/acer-chromebook-516g-evo-premium-performance-in-a-budget-device-techspot/"><u>Acer Chromebook 516G EVO - Premium Performance in a Budget Device | TechSpot</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-security-with-updated-login-details-in-facebook/"><u>Enhance Security with Updated Login Details in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-disappearance-to-recurrence-the-instagram-paradox/"><u>From Disappearance to Recurrence: The Instagram Paradox</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-c32-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from C32?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-zte-nubia-z60-ultra-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best ZTE Nubia Z60 Ultra Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-subtextual-cues-in-online-chats/"><u>Interpreting Subtextual Cues in Online Chats</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/quick-and-easy-access-to-elgato-driver-downloads/"><u>Quick and Easy Access to Elgato Driver Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-content-sharing-instagram-reels-on-your-facebook-wall/"><u>Seamless Content Sharing: Instagram Reels on Your Facebook Wall</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-paradigm-shifts-exploring-4-media-induced-changes/"><u>Social Paradigm Shifts: Exploring 4 Media-Induced Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-shun-the-habit-of-constant-reel-consumption-on-fb/"><u>Steps to Shun the Habit of Constant Reel Consumption on Fb</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/tecniche-efficaci-per-sbarazzarti-del-blue-screen-in-windows-10-un-manuale-esauriente/"><u>Tecniche Efficaci per Sbarazzarti Del Blue Screen in Windows 10: Un Manuale Esauriente</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-impactful-tech-personalities-sparking-debate/"><u>The Biggest Impactful Tech Personalities Sparking Debate</u></a></li>
+</ul></div>
 

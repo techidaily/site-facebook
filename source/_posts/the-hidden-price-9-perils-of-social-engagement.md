@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Price: 9 Perils of Social Engagement"
-date: 2025-01-09T00:21:37.654Z
-updated: 2025-01-12T20:24:21.304Z
+date: 2025-01-15T16:15:35.988Z
+updated: 2025-01-18T16:15:37.767Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Depression and Anxiety
@@ -44,16 +44,12 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
@@ -74,13 +70,13 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -121,7 +117,7 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
@@ -131,6 +127,10 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
  At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -153,18 +153,19 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-prime-data-keepers-expert-top-10-selections/"><u>[New] 2024 Approved Prime Data Keepers Expert Top 10 Selections</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-enhance-your-messaging-keywords-that-drive-marketing/"><u>[Updated] In 2024, Enhance Your Messaging Keywords that Drive Marketing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-expert-mp3-creation-guide-top-video-to-audio-devices/"><u>[Updated] In 2024, Expert MP3 Creation Guide Top Video-to-Audio Devices</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-crafting-viral-video-content-on-youtube/"><u>[Updated] The Art of Crafting Viral Video Content on YouTube</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-soloists-path-to-trending-podcasts/"><u>2024 Approved The Soloist's Path to Trending Podcasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-practical-approach-to-ending-a-fb-assembly/"><u>A Practical Approach to Ending a Fb Assembly</u></a></li>
-<li><a href="https://facebook.techidaily.com/bracing-for-impact-expecting-tough-news-on-fb/"><u>Bracing for Impact: Expecting Tough News on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-free-how-to-leave-facebook-behind-on-androids/"><u>Break Free - How to Leave Facebook Behind on Androids</u></a></li>
-<li><a href="https://facebook.techidaily.com/capturing-hearts-and-eyes-top-6-profile-pic-ideas/"><u>Capturing Hearts and Eyes: Top 6 Profile Pic Ideas</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-cloaked-space-for-online-dialogues/"><u>Creating a Cloaked Space for Online Dialogues</u></a></li>
-<li><a href="https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/"><u>Customizing Profile Information: Email/Phone Switch</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-samsung-galaxy-s23-ultra-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Samsung Galaxy S23 Ultra For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-samsung-galaxy-a14-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Samsung Galaxy A14 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-strategic-brand-integrations-within-youtube-realms-for-2024/"><u>[New] Strategic Brand Integrations Within YouTube Realms for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-experts-guide-to-rapid-time-lapsing-for-2024/"><u>[Updated] Expert's Guide to Rapid Time-Lapsing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-engagement-advanced-youtube-tag-strategies-revealed/"><u>[Updated] In 2024, Boost Engagement Advanced YouTube Tag Strategies Revealed</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-efficiency-using-powertoys-copy-pasting-features/"><u>Boost Efficiency: Using PowerToys' Copy-Pasting Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-interaction-use-polls-to-peek-into-friends-lives/"><u>Enhance Interaction: Use Polls to Peek Into Friends' Lives</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-google-pixel-fold-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Google Pixel Fold</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streamlining-presentations-how-to-add-youtube-videos-to-ppt/"><u>In 2024, Streamlining Presentations How to Add YouTube Videos to PPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-recovery-techniques-for-locked-out-facebook-users/"><u>Key Recovery Techniques for Locked-Out Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-blueprint-to-bar-private-images-online/"><u>Meta's Blueprint to Bar Private Images Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-hidden-blacklist-entities-on-facebook-platform/"><u>Revealing Hidden Blacklist Entities on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-profit-with-these-5-online-platform-strategies/"><u>Seize Profit with These 5 Online Platform Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandberg-and-social-media-dynamics/"><u>Sheryl Sandberg and Social Media Dynamics</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-windows-ultimate-laptop-picks-comprehensive-testing-and-reviews-experts/"><u>Top-Rated Windows Ultimate Laptop Picks - Comprehensive Testing & Reviews Experts</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unbeatable-july-2024-deals-save-big-on-iphone-apple-watches-and-ipads-smart-shopping/"><u>Unbeatable July 2024 Deals: Save Big on iPhone, Apple Watches, and iPads | Smart Shopping</u></a></li>
 </ul></div>
 

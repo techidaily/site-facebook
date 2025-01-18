@@ -1,7 +1,7 @@
 ---
 title: "Disrupting Digital Dynamics: Pal-Activists Challenge FB Star Ratings"
-date: 2024-07-29T07:35:52.094Z
-updated: 2024-07-30T07:35:52.094Z
+date: 2025-01-11T16:01:10.397Z
+updated: 2025-01-18T16:05:01.050Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
  Facebook may be sitting at the top of the Social Networking category on Apple's App Store, but that doesn't necessarily mean that people are content with it—just that they're downloading it.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook's Mobile App Rating Takes a Nosedive
 
  Pro-Palestinian activists are running a coordinated campaign to lower Facebook's mobile app rating on the Apple and Google app stores.
@@ -30,10 +31,11 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 
  Many of the newest reviews accuse Facebook of censoring Palestinian voices, and include hashtags like #FreePalestine and #GazaUnderAttack.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook open in a mobile browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-in-mobile-browser.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The team behind Facebook is reportedly taking this issue very seriously—they've marked it as "SEV1" or "severity 1," which is a descriptor used internally when there is a high-priority issue with the site.
 
@@ -46,14 +48,16 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
@@ -63,14 +67,11 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 
  Facebook might be the prime example of the phrase "all publicity is good publicity." It's a platform that everyone seems to hate, and yet, we stay on it anyway.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,4 +80,23 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-a-comprehensive-guide-to-embellishing-images-and-vids-in-windows-10s-photo-app/"><u>[New] A Comprehensive Guide to Embellishing Images and Vids in Windows 10'S Photo App</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/bewaarde-daten-na-chkdsk-procedure-veiligheidstips-voor-herstel-vanaf-verwijderde-bestanden/"><u>Bewaarde Daten Na CHKDSK-Procedure: Veiligheidstips Voor Herstel Vanaf Verwijderde Bestanden</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/guia-paso-a-paso-crear-copias-de-respaldo-completas-con-wbadmin-en-windows-7/"><u>Guía Paso a Paso: Crear Copias De Respaldo Completas Con WBAdmin en Windows 7</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-z50s-pro-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Z50S Pro.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-lenovo-thinkphone-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Lenovo ThinkPhone? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-image-impact-alt-text-strategies-for-facebook/"><u>Maximizing Image Impact: Alt-Text Strategies for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-facebook-web-view-in-the-app/"><u>Preventing Facebook Web View in the App</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-safe-path-dodge-these-invasive-applications/"><u>Privacy-Safe Path: Dodge These Invasive Applications</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tech-horizon-lookout-when-will-gpt-5-launch/"><u>Tech Horizon Lookout: When Will GPT-5 Launch?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-entry-into-facebooks-localized-spaces/"><u>The Mechanics of Entry Into Facebook's Localized Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-what-youve-watched-on-facebook-lately/"><u>Uncovering What You've Watched on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/unhook-spotify-from-your-fb-account-now/"><u>Unhook Spotify From Your FB Account Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-reason-for-multiple-personas-under-one-account/"><u>Unraveling Facebook's Reason for Multiple Personas Under One Account</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/unraveling-the-mystery-printer-works-after-win-10-patch/"><u>Unraveling the Mystery: Printer Works After Win 10 Patch</u></a></li>
+<li><a href="https://win-tips.techidaily.com/why-is-my-laptop-running-so-slowly-understanding-common-issues-tech-tips-by-yl-computing/"><u>Why Is My Laptop Running So Slowly? Understanding Common Issues - Tech Tips by YL Computing</u></a></li>
+</ul></div>
 

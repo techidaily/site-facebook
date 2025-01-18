@@ -1,7 +1,7 @@
 ---
 title: Leveraging Facebook's Today Memory Recollection
-date: 2025-01-05T16:18:37.025Z
-updated: 2025-01-12T23:38:03.503Z
+date: 2025-01-15T16:20:38.356Z
+updated: 2025-01-18T16:00:02.627Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/cfa45c8957851b057661f0d98a0c4cd9830d27a0c
 
  You can use the On This Day feature to better manage your Facebook profile. Let's see how you can share, save and manage your memories.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Share Memories
 
  The first thing that most users discover is the option to share their memories with others. You can post it on your timeline, send them in messages, and even tag specific people.
@@ -54,15 +58,15 @@ To share a memory from the On This Day feature:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
 Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Save and Delete Memories
 
@@ -75,10 +79,6 @@ You can save your On This Day posts with the following steps:
 3. Select**Save Post** , and it will be stored in the**Saved items** section on Facebook.
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
@@ -93,7 +93,7 @@ To access your saved memories:
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
@@ -105,7 +105,7 @@ Close
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
@@ -113,6 +113,10 @@ Close
  With a thriving social circle, your friends might tag you in posts and share them on your profile. Remember a birthday or a special occasion on which your friends tagged you in their posts?
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Customization Options for the On This Day Feature
 
@@ -125,7 +129,7 @@ Close
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
@@ -141,10 +145,6 @@ Close
  You can also pick only the important memories. Tap**Highlights** if you wish to get notified about the special posts and events. For instance, your birthday or a special event with your friends.
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Hide Memories
 
@@ -173,20 +173,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-farming-to-the-next-level-stardews-leading-mods-listed-for-2024/"><u>[New] Farming to the Next Level Stardew's Leading Mods Listed for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-ensuring-compliance-for-apple-podcast-listing/"><u>[Updated] 2024 Approved Ensuring Compliance for Apple Podcast Listing</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-finalcut-pro-tutorials-for-top-tier-youtube-video-editing/"><u>[Updated] 2024 Approved FinalCut Pro Tutorials for Top-Tier YouTube Video Editing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-revamping-your-windows-11-photo-viewer-add-filters-and-background-music/"><u>[Updated] In 2024, Revamping Your Windows 11 Photo Viewer Add Filters and Background Music</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149358872-a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms.</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-successful-career-with-savvy-facebook-uses/"><u>Building a Successful Career with Savvy Facebook Uses</u></a></li>
-<li><a href="https://facebook.techidaily.com/cease-new-contact-proposals-on-facebook-platform/"><u>Cease New Contact Proposals on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/concealed-consent-uxs-role-in-privacy-losses/"><u>Concealed Consent: UX's Role in Privacy Losses</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-guidelines-to-direct-your-online-collective-efforts/"><u>Crafting Guidelines to Direct Your Online Collective Efforts</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-down-on-selective-marketing-in-digital-communities/"><u>Cut Down on Selective Marketing in Digital Communities</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/day-by-day-rapidly-rise-as-a-bulgarian-speaker/"><u>Day by Day: Rapidly Rise as a Bulgarian Speaker</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149610552-ending-facial-id-at-meta-but-why-uncover-the-story/"><u>Ending Facial ID at Meta, But Why? Uncover The Story</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-integrating-moving-images-with-sound-a-comprehensive-guide/"><u>New Integrating Moving Images with Sound A Comprehensive Guide</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95782577-9781620554937-the-divining-heart/"><u>The Divining Heart | Free Book</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-mini-by-drfone-ios/"><u>How to Unlock iPhone 13 mini?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/nokia-71-a-detailed-review-of-its-crystal-clear-screen-and-impressive-camera-features-at-a-great-value/"><u>Nokia 7.1: A Detailed Review of Its Crystal Clear Screen and Impressive Camera Features at a Great Value</u></a></li>
+<li><a href="https://win-premium.techidaily.com/solution-facile-et-securisee-corriger-chkdsk-nest-pas-accessible-sur-raw-drives-sans-endommager-votre-fichier/"><u>Solution Facile Et Sécurisée : Corriger « CHKDSK N'est Pas Accessible Sur RAW Drives » Sans Endommager Votre Fichier</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/step-by-step-tutorial-on-using-the-best-flv-video-recorder-for-smooth-playback/"><u>Step-by-Step Tutorial on Using the Best FLV Video Recorder for Smooth Playback</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transitioning-from-sierra-to-legacy-os-el-capitan-for-2024/"><u>Transitioning From Sierra To Legacy OS - El Capitan for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-virtual-audience-numbers/"><u>Unveiling Virtual Audience Numbers</u></a></li>
 </ul></div>
 

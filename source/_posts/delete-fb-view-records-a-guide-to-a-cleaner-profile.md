@@ -1,7 +1,7 @@
 ---
 title: "Delete FB View Records: A Guide to a Cleaner Profile"
-date: 2024-07-29T07:35:13.133Z
-updated: 2024-07-30T07:35:13.133Z
+date: 2025-01-13T16:10:16.288Z
+updated: 2025-01-18T16:20:47.206Z
 tags:
   - facebook
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 ---
 
 ## Delete FB View Records: A Guide to a Cleaner Profile
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Quick Links
 
@@ -28,14 +32,15 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 
  Managing your Facebook watched videos history is an integral part of staying in control of your digital footprint. Because no one needs to know what videos you watch on Facebook. And if you want to protect your privacy, you can delete your Facebook watch history completely.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Delete Your Facebook Watch History
 
  You can delete your Facebook video history on whatever device you use to access Facebook. You just need to access your Activity log.
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Delete Your Facebook Watch History on Android
 
@@ -44,19 +49,18 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 ![screenshot showing facebook profile page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Close
 
@@ -74,16 +78,19 @@ Close
 1. ![clear video watch history on the facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/clear-video-watch-history-pc-screenshot.jpg)  
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 2. Click on the**three-dot icon** , then click**Activity log** .
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
 
@@ -92,14 +99,8 @@ Close
 1. Go to**Profile > Three-dot icon > Activity log** .
 2. Click on**Videos you've watched** .
 3. Click on**Live videos you've watched** from the left sidebar.
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
 ## Why You Should Delete Your Facebook Watch History
@@ -112,14 +113,11 @@ Close
 
  Whether you should clear your Facebook watch history is a personal decision that comes down to your individual needs. If privacy and control are paramount, clearing your watch history is a good way to manage your digital footprint. If you value relevant recommendations and convenient access to past videos, keeping your history might be more beneficial.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,4 +126,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-pilots-toolkit-top-drones-must-have-gear-and-replacements/"><u>[New] Pilot's Toolkit Top Drones Must-Have Gear and Replacements</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-guide-to-iphoneandroid-photo-editors-for-2024/"><u>[New] Ultimate Guide to iPhone/Android Photo Editors for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/3-ways-to-export-contacts-from-apple-iphone-12-pro-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>3 Ways to Export Contacts from Apple iPhone 12 Pro to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/intimate-images-and-internet-metas-preventive-policies/"><u>Intimate Images and Internet: Meta's Preventive Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-career-path-through-social-networks/"><u>Mastering Your Career Path Through Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-sudden-disconnects-on-friendbook-and-its-fixes/"><u>Navigating Sudden Disconnects on Friendbook & Its Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-evolved-fb-launches-next-gen-oversight-tools/"><u>Social Networking Evolved: FB Launches Next-Gen Oversight Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-resurgence-of-a-social-media-phenomenon/"><u>The Resurgence of a Social Media Phenomenon</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/top-5-display-choices-to-enhance-ps5xbox-playtime/"><u>Top 5 Display Choices to Enhance PS5/Xbox Playtime</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/warum-ihre-sd-karte-sich-nicht-formatieren-lasst-und-was-sie-tun-konnen/"><u>Warum Ihre SD-Karte Sich Nicht Formatieren Lässt Und Was Sie Tun Können</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Nokia C32? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-remains-when-fb-is-gone/"><u>What Remains When FB Is Gone?</u></a></li>
+</ul></div>
 

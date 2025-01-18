@@ -1,7 +1,7 @@
 ---
 title: "Digital Expression: A Double-Edged Sword"
-date: 2024-07-29T07:35:57.306Z
-updated: 2024-07-30T07:35:57.306Z
+date: 2025-01-13T16:03:27.872Z
+updated: 2025-01-18T16:16:02.090Z
 tags:
   - facebook
 categories:
@@ -18,8 +18,9 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
  Is there a place for dislike buttons in social media as we know it today? Do dislikes even serve a purpose? When examining the most prominent social media platforms widely used today, you get mixed results.Facebook and Instagram do not have a dislike button. Reddit has a downvote button, and YouTube a dislike one. Twitter doesn't have a dislike button, but that could change soon as it ran a test allowing some users to downvote.Let's examine some pros and cons to platforms and their dislike button.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Pros to the Dislike Button Hiding Its Numbers
 
  YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
@@ -27,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Hate Campaigns Leave Less of an Impact
 
  A major reason YouTube shared for[hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
@@ -45,16 +47,11 @@ thumbnail: https://thmb.techidaily.com/4da8b1db0a8dedc0caf245bd9d36532200ad5924e
 
 ### Less Stress When Posting
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
@@ -78,9 +75,6 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding the dislikes number, YouTube essentially spares both the creator and their fan base of the stress, anxiety, and all the other negative emotions that can arise from being the victim of a hate campaign.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Cons to the Dislike Button Hiding Its Numbers
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
@@ -97,6 +91,10 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### You Can't Tell if It's Worth Seeing
 
 ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
@@ -107,18 +105,12 @@ What's more, it goes beyond affecting only the poster.
 
  Many YouTube viewers use the like-to-dislike ratio to decide whether to watch a video or move on to another. When you can't use that ratio to make your judgment, you might get duped into watching something that wastes your time.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Is It the Right Move to Have or Hide Dislikes?
 
  Another important matter to consider is whether having a dislike button is even right for the platform.
 
  Does it make sense to have a dislike button, remove it, or hide the count? Let's look at two examples: Twitter and Reddit.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### Does It Make Sense for the Platform at All?
 
  Twitter is dipping its toes into the dislike pool by introducing a[downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
@@ -144,22 +136,20 @@ What's more, it goes beyond affecting only the poster.
  Reddit needs the balance of both upvotes and downvotes to be the platform people signed up to use. So, instead of removing the button entirely, it chose to hide the count of both buttons it offers.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Are Hidden Dislikes the Future?
 
  YouTube and Reddit took the path of hiding the dislike count. Twitter is looking to introduce a dislike system. Facebook had a dislike button but chose to remove it.
 
  There's no clear answer yet on whether dislikes should remain a part of social media or not. As clearly visible, there are both pros and cons to removing the number of dislikes under a post.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +158,19 @@ What's more, it goes beyond affecting only the poster.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-exploring-the-future-of-social-sharing-with-tiktok-vs-snapchat/"><u>[New] 2024 Approved Exploring the Future of Social Sharing with TikTok vs Snapchat</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-uncomplicated-blueprint-for-crafting-successful-ads-online/"><u>[New] Uncomplicated Blueprint for Crafting Successful Ads Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/experiential-rollout-of-meta-drops-to-instagram-and-fb-fans/"><u>Experiential Rollout of Meta Drops to Instagram & FB Fans</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ideal-voice-modification-programs-for-dynamic-virtual-personalities-for-2024/"><u>Ideal Voice-Modification Programs for Dynamic Virtual Personalities for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-vivo-x100-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Vivo X100 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-ultimate-guide-to-top-video-editors-for-webcams/"><u>In 2024, Ultimate Guide to Top Video Editors for Webcams</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/investigate-truthgpt-coin-is-this-the-next-big-scam-or-a-hidden-gem/"><u>Investigate TruthGPT Coin - Is This the Next Big Scam or a Hidden Gem?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-meta-ais-social-media-presence-a-good-idea/"><u>Is Meta AI's Social Media Presence a Good Idea?</u></a></li>
+<li><a href="https://facebook.techidaily.com/titans-guiding-facebook-presently/"><u>Titans Guiding Facebook Presently</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-bert-how-this-cutting-edge-language-model-outperforms-gpt-algorithms/"><u>Understanding BERT: How This Cutting-Edge Language Model Outperforms GPT Algorithms</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-facebook-access-status/"><u>Unlocking the Secrets of Facebook Access Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-facebook-refreshed-easier-content-selection/"><u>Your Facebook, Refreshed: Easier Content Selection</u></a></li>
+</ul></div>
 

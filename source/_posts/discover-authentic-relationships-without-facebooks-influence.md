@@ -1,7 +1,7 @@
 ---
 title: Discover Authentic Relationships Without Facebook's Influence
-date: 2024-07-29T07:36:05.143Z
-updated: 2024-07-30T07:36:05.143Z
+date: 2025-01-17T16:12:04.869Z
+updated: 2025-01-18T16:09:21.694Z
 tags:
   - facebook
 categories:
@@ -21,15 +21,13 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Facebook Tracks You Around the Web
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
@@ -38,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/fb64d3334f8fecc4f94c1ae3403a6dd894e812df5
  But Facebook also tracks you when you're not using the site. Worse still, you don't even need a Facebook account—the company will still track you. And it has been behind more than one data leak with severe consequences.
 
  It's more than likely that there isn't a single person who hasn't heard of the Facebook–Cambridge Analytica data scandal that occurred in 2018 and led to an utter privacy mess. But sadly, that's not the only data leak scandal. Several have followed that one,[along with many investigations](https://www.makeuseof.com/ireland-launches-investigation-facebook-massive-data-leak/) and fines, yet it doesn't appear that Facebook's users can feel safe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Human Experimentation
 
@@ -53,9 +55,6 @@ Bottom line: Facebook sees you as a lab rat.
 
 ## 3\. Fake News
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
@@ -67,6 +66,10 @@ Bottom line: Facebook sees you as a lab rat.
  But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Questionable Privacy Practices
 
@@ -81,13 +84,11 @@ Bottom line: Facebook sees you as a lab rat.
  Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Facebook Has Forgotten Its Roots
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
@@ -96,12 +97,12 @@ Bottom line: Facebook sees you as a lab rat.
 
  But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. What Even Is Facebook Anymore?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![people looking at laptop confused](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/people-looking-at-laptop-confused.jpg)
 
  It's almost a given that social media platforms nowadays copy each other's features, so it's pretty much expected to see some overlap. But each still managed to have one thing it's known for above all others. So, for Instagram, it's image uploads, Twitter is a status-sharing platform, TikTok is for video uploads, and so on. But what about Facebook?
@@ -118,14 +119,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Facebook actively threatens your data. There have been so many data leaks and privacy breaches over the years—would you even find it surprising if another one follows? That shouldn't be the case. Spare yourself the headaches of holding onto Facebook, and move on.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +132,20 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-window-into-the-world-a-complete-guide-to-live-tv-recording-on-your-pc/"><u>[New] Window Into the World A Complete Guide to Live TV Recording on Your PC</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-key-strategies-for-recruiting-superior-video-artists/"><u>[Updated] 2024 Approved Key Strategies for Recruiting Superior Video Artists</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-exploring-the-efficiency-of-modern-tunefab-recorders-for-2024/"><u>[Updated] Exploring the Efficiency of Modern Tunefab Recorders for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-complete-srt-reference-manual/"><u>2024 Approved The Complete SRT Reference Manual</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlock-your-films-potential-top-11-color-grading-and-correction-methods/"><u>2024 Approved Unlock Your Film's Potential Top 11 Color Grading and Correction Methods</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/connectivity-restored-laptop-recognizes-headphones/"><u>Connectivity Restored: Laptop Recognizes Headphones</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-social-media-twitters-guiding-principles-adapted-by-facebook/"><u>Harnessing Social Media: Twitter's Guiding Principles Adapted by Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-afterlife-how-to-honor-or-end-a-relatives-fb-presence/"><u>Online Afterlife: How to Honor or End a Relative's FB Presence</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-se-2022-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone SE (2022) Data From iOS iTunes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-ambiance-a-guide-to-user-removal-on-facebook/"><u>Securing Your Page's Ambiance: A Guide to User Removal on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/status-sovereignty-verified-vs-blue-who-rules-the-realm/"><u>Status Sovereignty: Verified Vs. Blue – Who Rules the Realm?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-social-stranglehold/"><u>Understanding Meta's Social Stranglehold</u></a></li>
+</ul></div>
 

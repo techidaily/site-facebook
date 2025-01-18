@@ -1,7 +1,7 @@
 ---
 title: "Social Stealth: Evasion of Friendlists"
-date: 2024-12-30T16:12:28.564Z
-updated: 2025-01-06T02:05:37.066Z
+date: 2025-01-13T16:30:47.007Z
+updated: 2025-01-18T16:18:00.397Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 ![facebook mutual followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-mutual-followers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
@@ -58,19 +58,19 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
-![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
-Close
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Close
 
 ### Hiding Your Friends List on Desktop
 
@@ -82,21 +82,21 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  3\. From the left sidebar, click**Privacy** .
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
@@ -125,22 +125,18 @@ The steps are similar on Facebook's desktop website.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://sound-issues.techidaily.com/fixed-anthem-no-sound-in-windows-11/"><u>[FIXED] Anthem No Sound in Windows 11</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-exploring-vlcs-screen-recorder-features/"><u>[New] In 2024, Exploring VLC's Screen Recorder Features</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-tecno-pop-8-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Tecno Pop 8</u></a></li>
-<li><a href="https://facebook.techidaily.com/accusations-facebook-targets-honest-commerce-promotion/"><u>Accusations: Facebook Targets Honest Commerce Promotion</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-pristine-profile-7-strategies/"><u>Achieve Pristine Profile: 7 Strategies</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/canon-dslr-530-driver-download-how-to-update-and-install-latest-version/"><u>Canon DSLR-530 Driver Download: How to Update & Install Latest Version</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-romance-in-the-social-media-era-facebooks-fresh-take-on-dating/"><u>Crafting Romance in the Social Media Era: Facebook's Fresh Take on Dating</u></a></li>
-<li><a href="https://facebook.techidaily.com/eight-paths-how-netizens-bond-across-cyberspace/"><u>Eight Paths: How Netizens Bond Across Cyberspace</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-preferences-in-online-news-distribution-by-fb/"><u>Exploring Preferences in Online News Distribution by FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope.</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://win-data.techidaily.com/1728500054205-macosaomei-backupper/"><u>MacOS用AOMEI Backupperで初心者向けバックアップ同期ガイド</u></a></li>
-<li><a href="https://facebook.techidaily.com/manage-custom-recommendations-for-better-privacy-online/"><u>Manage Custom Recommendations for Better Privacy Online</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-chromes-page-display-errors-solutions-for-loading-issues/"><u>Overcoming Chrome's Page Display Errors: Solutions for Loading Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-mystery-behind-excluded-social-media-content/"><u>The Mystery Behind Excluded Social Media Content</u></a></li>
-<li><a href="https://win-web3.techidaily.com/the-ultimate-selection-process-finding-top-notch-m2-ssd-drives-for-optimal-operating-system-performance/"><u>The Ultimate Selection Process: Finding Top-Notch M.2 SSD Drives for Optimal Operating System Performance</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-xiaomi-mix-fold-3-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Xiaomi Mix Fold 3 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-taking-command-with-custom-character-sounds-in-free-fire-no-expense-involved/"><u>[Updated] In 2024, Taking Command with Custom Character Sounds in Free Fire - No Expense Involved</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-step-by-step-premiere-pro-for-softening-soundtracks/"><u>2024 Approved A Step-by-Step Premiere Pro for Softening Soundtracks</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/etapes-pour-recuperer-avec-succes-le-systeme-image-dun-autre-pc-une-approche-sure-et-fiable/"><u>Étapes Pour Récupérer Avec Succès Le Système Image D'un Autre PC : Une Approche Sûre Et Fiable</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-elegance-sony-ps-lx310bt-turntable/"><u>Explore the Elegance: Sony PS-LX310BT Turntable</u></a></li>
+<li><a href="https://some-tips.techidaily.com/icloud-update-brings-major-upgrades-to-windows-users-latest-developments-from-apple-unveiled-gadgetpundit/"><u>ICloud Update Brings Major Upgrades to Windows Users - Latest Developments From Apple Unveiled | GadgetPundit</u></a></li>
+<li><a href="https://facebook.techidaily.com/imagery-as-language-catalyst-for-facebooks-artific-cookie/"><u>Imagery as Language Catalyst for Facebook’s Artific Cookie</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-personal-social-data-retrieval/"><u>Mastering the Art of Personal Social Data Retrieval</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-revised-guide-to-page-titles-and-their-significance/"><u>Navigating Facebook's Revised Guide to Page Titles & Their Significance</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-youtube-and-instagram-sharing-video-content-without-limits-for-2024/"><u>Navigating YouTube and Instagram Sharing Video Content without Limits for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-kids-online-details-with-parental-oversight-on-messenger/"><u>Revamping Kid’s Online Details with Parental Oversight on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-early-relationships-a-fb-adventure/"><u>Revisiting Early Relationships: A FB Adventure</u></a></li>
+<li><a href="https://video-capture.techidaily.com/skype-to-mp3-capturing-calls-at-no-charge/"><u>Skype to MP3 Capturing Calls at No Charge</u></a></li>
+<li><a href="https://games-able.techidaily.com/value-in-gaming-top-economical-motherboards-listed/"><u>Value in Gaming: Top Economical Motherboards Listed</u></a></li>
 </ul></div>
 

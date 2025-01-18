@@ -1,7 +1,7 @@
 ---
 title: Disentangling Public Dismay with Universal Social Applications
-date: 2024-07-29T07:35:55.592Z
-updated: 2024-07-30T07:35:55.592Z
+date: 2025-01-15T16:05:47.818Z
+updated: 2025-01-18T16:04:17.309Z
 tags:
   - facebook
 categories:
@@ -19,12 +19,13 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
 
  So, why do so many people hate Facebook? Here's a look at some of the most common gripes people have with the company and platform.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. The Platform's Overabundance of Features
 
 ![Browsing Facebook on PC and Phone](https://thmb.techidaily.com/c614df743851cde902b9dc7b624e356646f565efb6b83602d7f5ffd347873428.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you've been using Facebook for a long time, you would have noticed what could be considered an obsessive desire to make it "the" social media platform. Twitter is where you share quick thoughts, Snapchat is where you message your friends and TikTok is for short videos. However, Facebook has tried to be everything for everyone and, in doing so, has made the platform confusing and difficult to use.
 
@@ -32,14 +33,8 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
 
  Its constant feature adoption has made it feel like Facebook is just trying to do too much and, in the process, has lost its focus. What really is Facebook for?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2\. Privacy Concerns
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
@@ -56,9 +51,6 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
 
  The most recent breach happened in 2021 and exposed the personal information of over 500 million users. This breach was especially concerning because it happened despite Facebook's claims that it had fixed the problems that caused the Cambridge Analytica scandal.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Its Addictive Potential
 
  Many people also hate Facebook because it can be addictive. They designed it to keep you engaged for as long as possible. This means that you're constantly being bombarded with notifications, new posts, and ads.
@@ -68,8 +60,9 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
  TikTok's rise has reduced some addiction-related criticisms of Facebook, but with its new Reels feature, it looks like the criticisms won't be gone for long.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Fake News
 
 ![fake-news-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/fake-news-2.jpg)
@@ -78,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
 
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Its Impact on Mental Health
 
  One of the biggest problems with Facebook is its impact on mental health. The platform can be a breeding ground for negativity and comparison. When you're constantly seeing everyone's highlight reel, it's easy to forget that everyone has struggles and difficulties.
@@ -85,8 +82,9 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Perceived Inaction on Hate Speech
 
 ![man holding hate is a virus sign](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/man-holding-hate-is-a-virus-sign.jpg)
@@ -97,20 +95,21 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
 
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Making Sense of It All
 
  Many of the reasons people hate Facebook are valid. The platform has serious problems with privacy, fake news, and hate speech. It's also addictive and can be detrimental to your mental health.
 
  However, it's important to remember that Facebook is just a tool. It's how we use it that matters.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +118,24 @@ thumbnail: https://thmb.techidaily.com/72529af7d2bf02239916cd0ba31d950846919ac8a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-vives-ultimate-virtual-journey-unparalleled-immersion/"><u>[New] In 2024, Vive's Ultimate Virtual Journey Unparalleled Immersion</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-android-clippers-essential-image-editing-apps/"><u>[New] Top 5 Android Clippers Essential Image Editing Apps</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-10-best-mobile-edits-youtube-shorts-clips-on-iosandroid/"><u>[Updated] 10 Best Mobile Edits YouTube Shorts Clips on iOS/Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-podcast-versus-visual-media-which-suits-your-content-best/"><u>[Updated] Podcast versus Visual Media Which Suits Your Content Best?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-12-camera-guide-for-effortless-screen-swivel-use/"><u>[Updated] The Ultimate 12 Camera Guide for Effortless Screen Swivel Use</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/fy-online-impact-through-savvy-templates-design-for-2024/"><u>Amplify Online Impact Through Savvy Templates Design for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-privacy-controls/"><u>Enhancing Your Facebook Experience: Privacy Controls</u></a></li>
+<li><a href="https://fox-links.techidaily.com/excellent-pictorial-archive-networks-for-2024/"><u>Excellent Pictorial Archive Networks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fine-tuning-visibility-a-facebook-photos-primer/"><u>Fine-Tuning Visibility: A Facebook Photos Primer</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/frame-to-firm-selecting-your-mcn-partner/"><u>From Frame to Firm Selecting Your MCN Partner</u></a></li>
+<li><a href="https://facebook.techidaily.com/gadget-whispers-what-we-know-of-facebooks-stealth-watch/"><u>Gadget Whispers: What We Know of Facebook’s Stealth Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-facebook-hit-its-share-of-market-saturation/"><u>Has Facebook Hit Its Share of Market Saturation?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-techniques-for-banishing-personal-updates-from-fb/"><u>Instant Techniques for Banishing Personal Updates From FB</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-youtube-video-text-overlay-techniques/"><u>Mastering YouTube Video Text Overlay Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-revolution-meta-drops-on-popular-networks-tested/"><u>NFT Revolution: Meta Drops on Popular Networks Tested</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-fb-memories-heres-how-to-delete-them-android/"><u>No More FB Memories? Here's How To Delete Them, Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-revisiting-traditional-features-could-help-instagram/"><u>Why Revisiting Traditional Features Could Help Instagram</u></a></li>
+</ul></div>
 

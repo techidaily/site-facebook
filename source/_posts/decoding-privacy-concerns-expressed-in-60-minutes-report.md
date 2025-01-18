@@ -1,7 +1,7 @@
 ---
 title: Decoding Privacy Concerns Expressed in 60 Minutes Report
-date: 2024-07-29T07:34:51.722Z
-updated: 2024-07-30T07:34:51.722Z
+date: 2025-01-16T16:11:32.563Z
+updated: 2025-01-18T16:06:33.832Z
 tags:
   - facebook
 categories:
@@ -20,8 +20,9 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Who Is the Facebook Whistleblower?
 
  The Facebook whistleblower is a woman called Frances Haugen, aged 37\. She is a former product manager on the Civic Integrity team at Facebook.
@@ -33,13 +34,11 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
  Here are some of the biggest claims made by Haugen in her recent 60 Minutes interview:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5 Claims Made by Frances Haugen on 60 Minutes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
 
  Haugen claims that of all the content options Facebook can show you, the algorithm shows you content that is most likely to get a particular reaction from you—content that may incite violence or other extreme reactions or emotions.
@@ -48,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
 
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
 
  Haugen claims that the more you consume content that evokes anger or incites violence, the more profitable it is for Facebook.
@@ -55,8 +58,9 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
 > Facebook makes more money when you consume more content. People enjoy engaging with things that elicit an emotional reaction. And the more anger that they get exposed to, the more they interact and the more they consume.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Facebook Chooses Profit Over Safety
 
  Haugen claims that Facebook continuously trades in users' safety for its own gain by allowing dangerous content on its platform.
@@ -71,9 +75,6 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
 
  Related:[Study Suggests Facebook Handled Election Misinformation Poorly](https://www.makeuseof.com/study-facebook-election-misinformation/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Instagram Is Harming Teenage Girls
 
  As already widely reported, Haugen claims that Instagram is negatively impacting the teenagers using the social media app.
@@ -81,22 +82,20 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
 > Facebook's own research says, as these young women begin to consume this-- this eating disorder content, they get more and more depressed. And it actually makes them use the app more. And so, they end up in this feedback cycle where they hate their bodies more and more. Facebook's own research says it is not just the Instagram is dangerous for teenagers, that it harms teenagers, it's that it is distinctly worse than other forms of social media.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Way Forward for Facebook?
 
  Haugen has made some bold claims about the way Facebook operates, and her lawyers have filed several complaints with the Securities and Exchange Commission, which enforces the law in financial markets.
 
  In the meantime, Facebook has, unsurprisingly, released a statement denying the claims made by Haugen, saying it has invested significantly in keeping its platform safe. But this could yet prove to be a watershed moment, with Facebook forced to hold itself more to account.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +104,22 @@ thumbnail: https://thmb.techidaily.com/c96841199ff180b06a551ff8b5da580eafb5a9f00
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-virtual-studio-compiling-the-best-dj-visuals-for-download/"><u>[Updated] Virtual Studio Compiling the Best DJ Visuals for Download</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-swift-systems-for-rearranging-youtube-video-lineup/"><u>2024 Approved Swift Systems for Rearranging YouTube Video Lineup</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/bypass-the-infinite-boot-cycle-fixes-for-windows-auto-repair-sequence/"><u>Bypass the Infinite Boot Cycle - Fixes for Windows Auto-Repair Sequence</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dragon-ball-fighterz-error-troubleshooting-network-initialization-failures/"><u>Dragon Ball FighterZ Error: Troubleshooting Network Initialization Failures</u></a></li>
+<li><a href="https://win-web.techidaily.com/free-access-best-hong-kong-drama-series-in-english-dubbing-top-picks-to-binge/"><u>Free Access: Best Hong Kong Drama Series in English Dubbing - Top Picks to Binge!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-brand-presence-8-ways-company-profiles-excel-over-personal/"><u>Mastering Social Media Brand Presence: 8 Ways Company Profiles Excel over Personal</u></a></li>
+<li><a href="https://facebook.techidaily.com/out-of-sight-not-out-of-mind-4-crucial-technology-updates/"><u>Out of Sight, Not Out of Mind: 4 Crucial Technology Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/peering-behind-the-curtain-extracting-exclusive-network-content/"><u>Peering Behind the Curtain: Extracting Exclusive Network Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-branding-via-facebook-profile-picture-change/"><u>Personal Branding via Facebook Profile Picture Change</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/quick-and-simple-guide-converting-videos-to-mobile-friendly-format-in-seconds/"><u>Quick & Simple Guide: Converting Videos to Mobile-Friendly Format in Seconds!</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-for-success-identifying-the-top-5-corporate-websites/"><u>Social Synergy for Success: Identifying the Top 5 Corporate Websites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-complete-resource-for-high-quality-videos-in-gopro-studio-for-2024/"><u>The Complete Resource for High-Quality Videos in GoPro Studio for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-operational-dynamics-of-fbs-ethical-tribunal/"><u>The Operational Dynamics of FB’s Ethical Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-apples-strategic-choice-for-digital-evolution/"><u>Understanding Apple’s Strategic Choice for Digital Evolution</u></a></li>
+<li><a href="https://blog-min.techidaily.com/unifying-mp4-with-m4a-content-effective-techniques-for-seamless-integration/"><u>Unifying MP4 with M4A Content: Effective Techniques for Seamless Integration</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Digital Dynamics: Making Friends without Feuds"
-date: 2024-07-29T07:36:01.647Z
-updated: 2024-07-30T07:36:01.647Z
+date: 2025-01-11T16:01:23.943Z
+updated: 2025-01-18T16:18:58.635Z
 tags:
   - facebook
 categories:
@@ -16,12 +16,17 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 ## Digital Dynamics: Making Friends without Feuds
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What Is Poking on Facebook?](#what-is-poking-on-facebook)
 * [How to Poke Someone on Facebook in 2024](#how-to-poke-someone-on-facebook-in-2024)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -30,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/69e9ce291a37fc7b18e662948bbf53944b60034e4
 * You can access the poke feature by searching "poke" in the search bar on the Facebook website.
 
  You may have thought poking was dead on Facebook. But it turns out the feature is still there and Facebook is even trying to revive it. Here's what you need to know about poking someone on Facebook and how you can still use the feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is Poking on Facebook?
 
@@ -43,14 +52,8 @@ Close
 
  You should also note that you can only use the feature with friends, so the button will not appear next to the names of people you're not Facebook friends with.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## How to Poke Someone on Facebook in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
 
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
@@ -62,26 +65,23 @@ To do this, follow these steps:
 1. In the search bar, type the word**"poke"** and press**Enter** .
 2. Select the menu item that says**Pokes** . This will take you to a page where you can see who has poked you.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook pokes feature on website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/facebook-pokes-feature.png)
 
  From this page, you can also access the poke button to send pokes to friends. Facebook will provide a list of suggested users to poke, but you can also use the search bar to look for someone specific.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ![list of friends to poke on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/list-of-friends-to-poke-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  When you poke someone, Facebook will send the person a notification to let them know that you used the feature.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like[seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
 
@@ -89,14 +89,11 @@ The powerful video editing program for your Windows PC</a>
 
  So if you want to catch a friend's attention or just give the feature a try, check out the poke feature on Facebook for a sense of nostalgia or a new way to attract someone's notice.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,4 +102,24 @@ The powerful video editing program for your Windows PC</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-boosting-visual-and-auditory-composition-with-custom-filters-and-melodies-windows-10-photos/"><u>[New] 2024 Approved Boosting Visual & Auditory Composition with Custom Filters & Melodies (Windows 10 Photos)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-whats-winning-in-the-world-of-2023-tweets/"><u>[New] What's Winning in the World of 2023 Tweets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-from-script-to-screen-youtube-studio-editing-workshop-guide/"><u>[Updated] From Script to Screen YouTube Studio Editing Workshop Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-uncomplicated-routines-to-streamline-your-online-sessions-pcmac-os-for-2024/"><u>[Updated] Uncomplicated Routines to Streamline Your Online Sessions - PC/Mac OS for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-techniques-to-develop-engaging-vlogger-conversations/"><u>2024 Approved Techniques to Develop Engaging Vlogger Conversations</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-infinix-note-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discreet-chat-management-how-to-mask-your-chatgpt-conversations-from-others/"><u>Discreet Chat Management: How to Mask Your ChatGPT Conversations From Others</u></a></li>
+<li><a href="https://facebook.techidaily.com/fix-for-inaccessible-verification-codes-on-social-media-platforms-fb/"><u>Fix for Inaccessible Verification Codes on Social Media Platforms (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-fixing-facebook-security-code-delivery-issue/"><u>Guide to Fixing Facebook Security Code Delivery Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-evasive-language-within-fbc-discussions/"><u>Interpreting Evasive Language Within FBC Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-trumps-virtual-footprint/"><u>Reactivating Trumps' Virtual Footprint</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revive-your-internet-connection-the-ultimate-guide-to-mac-network-resets/"><u>Revive Your Internet Connection: The Ultimate Guide to Mac Network Resets</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-converging-facebook-meets-instagram/"><u>Social Sites Converging: Facebook Meets Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-storytelling-weaving-a-captivating-online-narrative/"><u>The Power of Storytelling: Weaving a Captivating Online Narrative</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/the-ultimate-selection-of-free-backup-solutions-for-outlook-users-to-secure-all-your-files/"><u>The Ultimate Selection of Free Backup Solutions for Outlook Users to Secure All Your Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-tricks-for-finding-exciting-online-communities/"><u>Top 4 Tricks for Finding Exciting Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-drives-the-desire-to-reinvent-instagram/"><u>What Drives the Desire to Reinvent Instagram?</u></a></li>
+</ul></div>
 

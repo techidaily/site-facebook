@@ -1,7 +1,7 @@
 ---
 title: Decoding FB Picture Visibility Options
-date: 2024-07-29T07:37:33.942Z
-updated: 2024-07-30T07:37:33.942Z
+date: 2025-01-14T16:15:49.543Z
+updated: 2025-01-18T16:13:52.963Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,6 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 
  Keep reading to learn everything you need to know about Facebook photo privacy settings...
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -51,16 +48,21 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
 
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -70,11 +72,11 @@ thumbnail: https://thmb.techidaily.com/4cc1197e18d9544b2124a65bfec1efb521b06ec23
 
  You can edit photos on a case-by-case basis in the**Profile Pictures** album, the**Cover Photos** album, the**Mobile Uploads** album, and the**Timeline Photos** album. However, other albums apply the same setting to all the photos within them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
 
@@ -83,8 +85,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Pro Tip: Use the Activity Log
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
@@ -105,32 +108,27 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Tag Suggestions
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Does Facebook Photo Privacy Concern You?
 
  We hope this article has made you realize photo privacy is important and helped you to understand the steps you can take to ensure images of you aren't being exposed in the public realm. Because despite what tech companies would like you to believe, online privacy is important.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +137,23 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-bridging-the-gap-enhancing-your-edits-with-inshot-transitions/"><u>[Updated] Bridging the Gap Enhancing Your Edits with Inshot Transitions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-modern-marketers-guide-to-video-sharing-exploring-igtv-and-youtube/"><u>[Updated] In 2024, The Modern Marketer's Guide to Video Sharing Exploring IGTV & YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-secrets-of-selecting-a-powerful-streaming-device/"><u>2024 Approved The Secrets of Selecting a Powerful Streaming Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-and-saturday-are-now-for-live-bargain-hunting-at-fb/"><u>Friday and Saturday Are Now for Live Bargain Hunting at FB</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/viewer-to-video-voyager-building-strong-backlinks-in-youtube-for-2024/"><u>From Viewer to Video Voyager Building Strong Backlinks in YouTube for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-complete-story-on-dji-phantom-4s-performance/"><u>In 2024, The Complete Story on DJI Phantom 4'S Performance</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-honor-x50iplus-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Honor X50i+ Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-process-with-facebooks-mobile-code-creator/"><u>Secure Login Process with Facebook's Mobile Code Creator</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/topo-dos-3-aplicativos-mais-populares-de-extracao-de-dvd-para-windows-10-e-11-descubra-a-versao-completa-agora/"><u>Topo Dos 3 Aplicativos Mais Populares De Extração De DVD Para Windows 10 E 11 - Descubra a Versão Completa Agora!</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-transparency-in-retrospect-download-tutorial-for-fb-data/"><u>Total Transparency in Retrospect: Download Tutorial for FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwanted-facebook-interactions-a-step-by-step-removal-guide/"><u>Unwanted Facebook Interactions: A Step-by-Step Removal Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwrapping-the-5-most-affecting-facebook-slip-ups/"><u>Unwrapping the 5 Most Affecting Facebook Slip-Ups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwrapping-the-facebook-reimbursement-procedure/"><u>Unwrapping the Facebook Reimbursement Procedure</u></a></li>
+<li><a href="https://win-unique.techidaily.com/usb-partition-management-for-windows-11-users-three-proven-methods-for-deletion-and-optimization/"><u>USB Partition Management for Windows 11 Users: Three Proven Methods for Deletion and Optimization</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-conversations-take-flight-with-facebooks-podcast-hub/"><u>Virtual Conversations Take Flight with Facebook’s Podcast Hub</u></a></li>
+<li><a href="https://app-tips.techidaily.com/why-small-and-medium-sized-businesses-overlook-necessary-cybersecurity-coverage-insights-from-zdnet/"><u>Why Small and Medium-Sized Businesses Overlook Necessary Cybersecurity Coverage: Insights From ZDNet</u></a></li>
+</ul></div>
 

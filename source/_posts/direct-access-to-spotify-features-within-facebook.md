@@ -1,7 +1,7 @@
 ---
 title: Direct Access to Spotify Features Within Facebook
-date: 2024-07-29T07:39:41.402Z
-updated: 2024-07-30T07:39:41.402Z
+date: 2025-01-13T16:03:52.920Z
+updated: 2025-01-18T16:08:31.463Z
 tags:
   - facebook
 categories:
@@ -20,23 +20,21 @@ thumbnail: https://thmb.techidaily.com/738b7371069538e959521966db00e5f006e9b11d9
  We're going to explain what the Spotify miniplayer is, how to use it, and what features premium and free users get while using the feature on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Spotify Miniplayer?
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Spotify Miniplayer screen example](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Before the Spotify miniplayer, sharing songs from Spotify directly to Facebook had a bit of an issue. Instead of being able to listen to the shared music in your Facebook app, you would automatically be taken to the Spotify app.
 
  Those days are over as Spotify has created a way for you to listen to any shared song in the Facebook app. You can scroll through your news feed and navigate throughout the app while still being able to listen to your music.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Who Can Use the Spotify Miniplayer?
 
  Anyone with a Spotify account is able to use the miniplayer. The features you have will depend on[the Spotify subscription that you have](https://www.makeuseof.com/tag/which-spotify-subscription-is-best/) .
@@ -46,14 +44,16 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  Premium users will enjoy free rein when using their Spotify miniplayer. The feature offers full control over playability and which songs you listen to. There are also no ads interjected between tunes for premium users.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Use the Spotify Miniplayer on Facebook
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once you find a shared track in your news feed, click the track to listen like you normally would.
 
@@ -64,22 +64,20 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  If you're concerned about what is being shared between Spotify and Facebook, there are ways you can[limit the amount of data that Facebook shares with Spotify](https://www.makeuseof.com/stop-facebook-sharing-data-with-spotify/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Listen to Spotify Using the Facebook App
 
  With the Spotify miniplayer, you can listen to tracks your friends share through the Facebook app without switching back and forth. Premium users will have no interruptions but free Spotify subscribers will have ads with limited shuffle only.
 
  There are plenty of tricks to learn about the Spotify app to get the most out of the platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,4 +86,16 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-freedom-in-focus-top-20-prisoner-wit-punchlines-on-social-media/"><u>[New] 2024 Approved Freedom in Focus Top 20 Prisoner-Wit Punchlines on Social Media</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-decoding-windows-10-imports-a-deep-dive-into-file-transfer/"><u>[Updated] In 2024, Decoding Windows 10 Imports A Deep Dive Into File Transfer</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-snapshot-excellence-the-finest-software-on-market/"><u>[Updated] In 2024, Snapshot Excellence The Finest Software on Market</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-mastering-sound-design-adding-audio-enhancements-to-videos-seamlessly/"><u>2024 Approved Mastering Sound Design Adding Audio Enhancements to Videos Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-page-participation-with-fb-polls/"><u>Enhancing Page Participation with FB Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-facebook-to-meta-saga/"><u>Revolutionizing Relationships: Facebook to Meta Saga</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-(securityfbcom)-is-it-real-fb-safety-email/"><u>Scrutinizing @<security@fb.com>: Is It Real FB Safety Email?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-phenomenon-elevate-your-virtual-forum/"><u>The Popularity Phenomenon: Elevate Your Virtual Forum</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-boost-your-war-thunder-game-with-5-key-optimization-strategies-for-higher-fps/"><u>Ultimate Guide: Boost Your War Thunder Game with 5 Key Optimization Strategies for Higher FPS</u></a></li>
+</ul></div>
 

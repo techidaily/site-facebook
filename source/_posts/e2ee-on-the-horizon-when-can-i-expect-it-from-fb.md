@@ -1,7 +1,7 @@
 ---
 title: "E2EE on the Horizon: When Can I Expect It From FB?"
-date: 2024-07-29T07:34:55.059Z
-updated: 2024-07-30T07:34:55.059Z
+date: 2025-01-13T16:02:54.423Z
+updated: 2025-01-18T16:09:15.205Z
 tags:
   - facebook
 categories:
@@ -20,9 +20,9 @@ thumbnail: https://thmb.techidaily.com/276d97c36ad2008d7cfbd98152b79e1acd5c5f1c2
  As such, many people are wondering when the service will offer end-to-end encryption by default. This article will reveal the answer, along with discussing why it's not already in place.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Will Facebook Messenger Offer End-to-End Encryption?
 
  Facebook has announced plans to [bring default end-to-end encryption to Messenger](https://www.makeuseof.com/facebook-messenger-instagram-direct-chats-wont-encrypted-until-2022/) .
@@ -32,14 +32,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
 
@@ -52,22 +54,20 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
 
  Normally, you don't need to worry too much about the privacy of your conversations on Messenger. And if you want to send and receive encrypted messages, you could use the Secret Conversations feature.
 
  But if you’d rather use a messaging platform that offers default end-to-end encryption, plenty of alternatives exist. So why not give them a try and see how you like them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,4 +76,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-instant-upload-tiktok-vids-to-your-fb-page-easily/"><u>[New] In 2024, Instant Upload TikTok Vids to Your FB Page Easily</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-blueprint-for-mastering-picsart/"><u>[New] The Ultimate Blueprint for Mastering PicsArt</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-visual-guide-to-mastering-aspect-ratios-on-youtube/"><u>[Updated] In 2024, The Visual Guide to Mastering Aspect Ratios on YOUTUBE</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/clearer-than-ever-the-impact-of-resolved-visual-issues-on-outriders-performance/"><u>Clearer Than Ever: The Impact of Resolved Visual Issues on Outriders Performance</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ensuring-clear-screens-with-win11-fixes/"><u>Ensuring Clear Screens with Win11 Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-fined-by-german-authorities-for-unlawful-whatsapp-data-harvesting/"><u>Facebook Fined by German Authorities for Unlawful WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-presence-in-the-virtual-frontier/"><u>Facebook's Presence in The Virtual Frontier</u></a></li>
+<li><a href="https://games-able.techidaily.com/grab-your-new-tcl-television-epic-85-inches-for-an-unbeatable-price-of-900-limited-offer-this-labor-day-at-zdnet/"><u>Grab Your New TCL Television: Epic 85 Inches for an Unbeatable Price of $900 - Limited Offer This Labor Day at ZDNet!</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/high-definition-alexandra-daddario-wallpaper-and-image-collections-digital-backdrops-yl-creations/"><u>High-Definition Alexandra Daddario Wallpaper & Image Collections | Digital Backdrops - YL Creations</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-kiddie-koala-race-relays/"><u>In 2024, Kiddie Koala Race Relays</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-patterned-pixels-looms-guide-to-screen-casting/"><u>In 2024, Patterned Pixels Loom's Guide to Screen Casting</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-numerous-chat-spaces-pro-advice-for-novices/"><u>Navigating Numerous Chat Spaces: Pro Advice for Novices</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-6-reasons-to-quit-the-online-obsession/"><u>The 6 Reasons to Quit the Online Obsession</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-great-digital-migration-4-reasons-people-abandon-facebook/"><u>The Great Digital Migration: 4 Reasons People Abandon Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reappearance-of-llife-a-metaverse-prospect-analysis/"><u>The Reappearance Of LLife: A Metaverse Prospect Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unraveling-of-social-media-hegemony-meta-in-the-european-arena/"><u>The Unraveling of Social Media Hegemony: Meta in the European Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-hidden-behind-invisible-mode-on-fb/"><u>What Is Hidden Behind Invisible Mode on FB?</u></a></li>
+</ul></div>
 
